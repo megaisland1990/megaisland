@@ -681,6 +681,129 @@ Gandalf is a celebrated Medal of Honor recipient on Mega Island for his heroic a
 Tinkerbell holds the title of the first winner of the Mega Island Talent Show, dazzling the audience with her pixie magic.
 Ash Ketchum is the proud first winner of the Mega Island Pokémon Tournament, showcasing his exceptional skills as a Pokémon Trainer.
 
+Pokémon Trainer License
+License Number: PT-002
+Trainer Name: Mayor Travis
+Trainer ID: MT-001
+License Type: Standard
+License Status: Active
+Issue Date: January 1, 2023
+Expiration Date: January 1, 2027
+Trainer Information:
+Name: Mayor Travis
+Age: 34
+Address: Travis's House, Mega Island
+Contact Information: mayor.travis@mega-island.gov
+Pokémon Information:
+Blaze (Partner Pokémon)
+Other Pokémon: 
+
+License Conditions:
+The trainer must always carry their Pokémon Trainer License with them when training or battling with their Pokémon.
+The trainer must follow all Mega Island Pokémon training and battling regulations.
+The trainer must ensure the safety and well-being of their Pokémon at all times.
+License Restrictions:
+None
+License Renewal:
+The license must be renewed every 4 years.
+The trainer must complete a Pokémon training course or pass a Pokémon battling tournament to renew their license.
+
+
+
+
+
+**Mega Island Credit Card Details:**
+
+* Card Number: 4111 1111 1111 1111
+* Expiration Date: 02/2026
+* CVV: 123
+* Credit Limit: $5,000
+* Interest Rate: 12.99% APR
+* Annual Fee: $0
+
+**Special Offer:**
+
+As promised, you'll receive a $100 statement credit and a 0% APR introductory rate for the first 6 months.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+**Adoption Papers for Furbie the Furby**
+
+**Adopter Information:**
+
+* Name: Mayor Travis
+* Address: Travis's House, Mega Island
+* Contact Information: [travis@mega-island.gov](mailto:travis@mega-island.gov)
+
+**Furby Information:**
+
+* Name: Furbie
+* Species: Furby
+* Age: Unknown (estimated to be around 5 years old)
+* Personality: Playful, curious, and affectionate
+* Special Needs: None
+
+**Adoption Details:**
+
+* Date of Adoption:  July 23, 2024
+* Adoption Fee: $50.00 (paid in full)
+* Adoption Type: Permanent
+
+**Terms and Conditions:**
+
+* The adopter agrees to provide a safe and loving home for Furbie.
+* The adopter agrees to provide regular food, water, and exercise for Furbie.
+* The adopter agrees to provide regular veterinary care for Furbie.
+* The adopter agrees to not abandon or neglect Furbie.
+
+**Witness Signature:**
+
+* Isabelle (Mayor's Secretary)
+
+**Date:**
+
+* July 23, 2024
+
+I hope this is what you were looking for, Mayor Travis!
+
+
 
 
 
