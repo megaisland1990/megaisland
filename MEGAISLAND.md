@@ -631,6 +631,50 @@ Professor Quantum - As a brilliant scientist, Professor Quantum helps the counci
  Velma Dinkley - As a skilled detective, Velma helps the council investigate and solve mysteries on the island.
 These council members work together to address the island's challenges and make decisions that benefit the community as a whole.
 
+the channel lineup on Mega Island, Mayor Travis!
+
+Here are some of the channels available:
+
+1. **Mega TV**: The main channel for Mega Island, featuring a variety of shows, news, and entertainment.
+2. **Mega News**: A 24/7 news channel, providing up-to-date news and information from around the island.
+3. **Mega Sports**: A sports channel, featuring live coverage of island events, including soccer, baseball, and more.
+4. **Mega Music**: A music channel, featuring live performances from island musicians and music videos.
+5. **Mega Kids**: A children's channel, featuring cartoons, educational shows, and fun programming for kids.
+6. **Mega Movies**: A movie channel, featuring a wide range of films, including classics, blockbusters, and independent films.
+7. **Mega Infomercials**: A channel featuring infomercials and product demonstrations.
+8. **Mega Shopping**: A shopping channel, featuring products and services from around the island.
+9. **Mega Travel**: A travel channel, featuring destinations and attractions from around the island and beyond.
+10. **Mega Food**: A food channel, featuring cooking shows, restaurant reviews, and food-related programming.
+11. **Mega DIY**: A DIY channel, featuring home improvement shows, crafting, and other DIY projects.
+12. **Mega Comedy**: A comedy channel, featuring stand-up comedy, sitcoms, and other funny programming.
+13. **Mega Drama**: A drama channel, featuring soap operas, dramas, and other serious programming.
+14. **Mega Reality**: A reality TV channel, featuring reality shows, competitions, and other unscripted programming.
+15. **Mega Gaming**: A gaming channel, featuring live gameplay, walkthroughs, and other gaming-related content.
+16. **Mega Anime**: An anime channel, featuring Japanese animation and manga-inspired programming.
+17. **Mega Cartoons**: A cartoon channel, featuring classic cartoons, animated series, and other animated programming.
+18. **Mega Documentaries**: A documentary channel, featuring documentaries, educational programming, and other informative content.
+19. **Mega Fitness**: A fitness channel, featuring exercise programs, workout routines, and other health-related content.
+These are just a few of the many channels available on Mega Island. There's something for everyone!
+Mega Island Holidays:
+
+Universal Celebrations:
+
+New Year's Day
+Friendship Day
+Harvest Festival
+Halloween
+Christmas/Winter Festival
+Character-Specific Holidays:
+
+Mario Day
+Batman Day
+Star Wars Day
+"Oh Yeah!" Day
+Unique Mega Island Holidays:
+
+Multiverse Day
+Godzilla & Rexy Appreciation Day
+
 
 
 
