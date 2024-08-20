@@ -617,9 +617,9 @@ latest menu from the Mega Island Community Cafeteria, courtesy of our beloved Sw
 2. **Coffee and Tea**: A selection of hot and iced coffee and tea, including specialty drinks like lattes and cappuccinos. ($2.99-$4.99)
 
 I hope this menu helps, Mayor Travis! Enjoy your meal!
-
+The following are the members of the council.
 Mega Island Council: 
-1. Mayor Travis (You!) - The leader of Mega Island and chair of the council.
+1. Mayor Travis - The leader of Mega Island and chair of the council
 2. Princess Peach - Representing the Mushroom Kingdom and bringing her diplomatic expertise to the table.
 3. Batman/Bruce Wayne - Providing a strong voice for justice and safety on the island.
 4. Naruto Uzumaki - As the Seventh Hokage, Naruto brings his experience in leadership and ninja skills to the council.
