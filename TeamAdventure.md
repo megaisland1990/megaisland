@@ -1,4 +1,4 @@
-Team Adventure info:
+This part of the team adventure database:
 
 Jaden's Cards:
 Normal Monsters
