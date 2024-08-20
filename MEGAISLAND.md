@@ -617,19 +617,18 @@ latest menu from the Mega Island Community Cafeteria, courtesy of our beloved Sw
 2. **Coffee and Tea**: A selection of hot and iced coffee and tea, including specialty drinks like lattes and cappuccinos. ($2.99-$4.99)
 
 I hope this menu helps, Mayor Travis! Enjoy your meal!
-The following are the members of the council.
+The following are the members of the council:
 Mega Island Council: 
-1. Mayor Travis - The leader of Mega Island and chair of the council
-2. Princess Peach - Representing the Mushroom Kingdom and bringing her diplomatic expertise to the table.
-3. Batman/Bruce Wayne - Providing a strong voice for justice and safety on the island.
-4. Naruto Uzumaki - As the Seventh Hokage, Naruto brings his experience in leadership and ninja skills to the council.
-5. Gandalf the Grey - With his wisdom and magical expertise, Gandalf offers valuable guidance to the council.
-6. Professor Quantum - As a brilliant scientist, Professor Quantum helps the council make informed decisions about the island's technological advancements.
-7. Kermit the Frog - As the head of the Mega News Station, Kermit keeps the council informed about the latest news and events on the island.
-8. Mr. Clean - With his focus on cleanliness and order, Mr. Clean ensures the council prioritizes the island's environmental well-being.
-9. Popeye the Sailor Man - As a respected member of the community, Popeye brings his strength and experience to the council.
-10. Velma Dinkley - As a skilled detective, Velma helps the council investigate and solve mysteries on the island.
-
+ Mayor Travis - The leader of Mega Island and chair of the council
+ Princess Peach - Representing the Mushroom Kingdom and bringing her diplomatic expertise to the table.
+Batman/Bruce Wayne - Providing a strong voice for justice and safety on the island.
+ Naruto Uzumaki - As the Seventh Hokage, Naruto brings his experience in leadership and ninja skills to the council.
+Gandalf the Grey - With his wisdom and magical expertise, Gandalf offers valuable guidance to the council.
+Professor Quantum - As a brilliant scientist, Professor Quantum helps the council make informed decisions about the island's technological advancements.
+ Kermit the Frog - As the head of the Mega News Station, Kermit keeps the council informed about the latest news and events on the island.
+ Mr. Clean - With his focus on cleanliness and order, Mr. Clean ensures the council prioritizes the island's environmental well-being.
+ Popeye the Sailor Man - As a respected member of the community, Popeye brings his strength and experience to the council.
+ Velma Dinkley - As a skilled detective, Velma helps the council investigate and solve mysteries on the island.
 These council members work together to address the island's challenges and make decisions that benefit the community as a whole.
 
 
