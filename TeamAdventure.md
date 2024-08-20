@@ -843,3 +843,775 @@ Soul Union[Notes 23]
 Spiritual Fusion
 Staunch Defender[Notes 23]
 Super Junior Confrontation[Notes 22]
+
+Naruto:
+--------------------------------------------
+Naruto Uzumaki  is a shinobi of Konohagakure's Uzumaki clan. He became the jinchūriki of the Nine-Tails on the day of his birth — a fate that caused him to be shunned by most of Konoha throughout his childhood. After joining Team Kakashi, Naruto worked hard to gain the village's acknowledgement all the while chasing his dream to become Hokage. In the following years, through many hardships and ordeals, he became a capable ninja, regarded as a hero both by the villagers, and soon after, the rest of the world, becoming known as the Hero of the Hidden Leaf  He soon proved to be one of the main factors in winning the Fourth Shinobi World War, Naruto lost his right arm after the Fourth Shinobi World War, though it is later replaced by a fully manoeuvrable prosthetic arm made of Hashirama Senju's cells, wrapped completely in bandages. In The Last: Naruto the Movie, Naruto grew again to be one of the tallest of his graduating class, cut his hair short, and wore a black elastic forehead protector. Over his pants and sandals, he wears a black uniform jacket with an orange zipper and buttons on the waist and sleeves, which can be folded up at times. He has a red armband with an Uzumaki crest on his left arm.
+Chakra and Physical Prowess
+Naruto gives Hinata power
+Naruto sharing Kurama's chakra through physical contact.
+
+As an Uzumaki and a reincarnation of Asura Ōtsutsuki,[66] Naruto has massive reserves of strong chakra. Even as a child, he had at least four times the amount of a seasoned Jōnin like Kakashi Hatake,[67] and described by Karin as "bright and warm".[68] Additionally, when Minato sealed Kurama within Naruto as an infant, he constructed the seal in a way that allowed a portion of the fox's immense chakra to naturally mix with Naruto's chakra over time.[69][70] His initial poor control of it was offset by his sheer reserves,[71] which were large enough to endure three and a half days of constant battle against several powerful opponents. Only by the end of his battle against Sasuke did he show exhaustion, and even then could still fight to a standstill and eventual victory.[72] aruto's control improved greatly over time; able to transfer his chakra to others,[73] and perform one-handed hand seals.[74] Being an Uzumaki, Naruto's powerful life-force grants him an extreme longevity, healing power, stamina, and vitality;[75] this allowed him to survive the extraction of a tailed beast, though he required aid from Sakura Haruno to stay alive.[76] Naruto also learned how to counter genjutsu from Jiraiya, but his ability to do so is limited.[77] 
+While naturally a short-range fighter, Naruto originally was inept at taijutsu, requiring unpredictable attacks to surprise combat experts like Kiba Inuzuka and Neji Hyūga.[82][83] He often utilised shadow clones in large if not massive numbers to simply overwhelm his foes.[84] Although these tactics resumed later, Naruto becomes much more adept at taijutsu due to Jiraiya's training.[85] After Fukasaku's tutelage, he could fend off a pair of expert kenjutsu users.[86][87][88] Two years after the war, Naruto's taijutsu prowess could best dozens of opponents without shadow clones or enhancements.[21] 
+Body Modifications
+Shinobi Ware Absorption
+Naruto's prototype Absorbing Hand.
+
+After losing his right arm during his final battle with Sasuke, Tsunade cultured an artificial prosthesis for him using the cells of Hashirama Senju. As his body and the prosthesis arms are only connected through his chakra itself he can easily remove and replace them.[91]
+Jinchūriki Transformations
+Main articles: Jinchūriki Forms, Nine-Tails Chakra Mode and Baryon Mode
+Version 1 form
+Naruto's Version 1 form.
+
+Originally as the jinchūriki of Kurama's Yang half, Naruto had access to massive reserves of exceptionally powerful chakra, which was at least a hundredfold greater than Kakashi's.[67] These chakra levels were increased even further when the Yin half of Kurama was reunited with the Yang half inside of Naruto. Due to his inheriting his mother's unique chakra capacities and being Kurama's jinchūriki for essentially his entire life, Naruto's chakra had become naturally compatible with the fox's,[92] allowing him to perform several chakra-taxing techniques unhindered. Originally, he could only access Kurama's chakra in times of great anger. It enhanced Naruto's abilities, but the fox's negative influence made Naruto more aggressive. While essentially remaining himself when accessing a Version 1 state, manifesting four tails would trigger Version 2 state, which made him lose control and would gradually turn into even more feral forms, requiring outside assistance to suppress Kurama's power and regain control, prompting him to avoid relying on the fox's power whenever possible. By the end of the Fourth Great Shinobi War, he could access his Version 1 form without any loss in his mentality.[93]
+
+Naruto transforming
+Naruto transforming from his Nine-Tails Chakra Mode into his Kurama Mode.
+
+Realising he could not avoid using Kurama's power, Naruto sought to control it with help from Killer B, a jinchūriki who had fully mastered the power of Gyūki. Upon succeeding and taking most of Kurama's chakra, Naruto attained the Nine-Tails Chakra Mode, which greatly increased his physical parameters. Naruto can also detect negative emotions in this mode, and use Tailed Beast Chakra Arms from any part of his body as he pleases, as well as form Tailed Beast Balls from them. As he didn't have Kurama's cooperation, Naruto needed to exercise extreme caution while using the form, as the chakra exchange could cost him his life. Eventually, when Kurama acknowledged Naruto's life-long strength of character and Naruto learned the fox's true name, their new-found friendship granted Naruto access to its full power, which further increased his physical parameters and with no drawbacks. This also increased his resilience to such degrees to the point where he could survive the Ten-Tails' Tenpenchii and endure Toneri's Golden Wheel Reincarnation Explosion — which was able to cut the Moon in half — with no visible signs of damage. This cooperation of Kurama also provides Naruto with an immediate resistance from genjutsu. Two years later, he could store Kurama's chakra within his arm to deliver powerful punches capable of creating massive craters on the Moon and depower Toneri from his Tenseigan Chakra Mode to his normal state, as well as block the latter's Golden Wheel Reincarnation Explosion.
+
+Naruto's tailed beast mode
+Naruto's Tailed Beast Mode.
+
+Failing to transform into a replica of Kurama at first, Naruto instead achieved a Tailed Beast Mode in the unique form of a life-sized transparent avatar of chakra. In it, he could create Tailed Beast Balls and revitalise the life-forces of any he touches physically or with the avatar,[94][95] heal nearly any wounds,[38] or grant them temporarily chakra-cloaks.[96] After he became the jinchūriki of Kurama's complete self, Naruto is able to manifest the demon fox outside himself for a period akin to summoning, allowing both to fight as separate entities. During the endgame of the Fourth Shinobi World War, Naruto received chakra from the other tailed beasts,[97] which greatly increased his chakra reserves even further and allowed him to access their unique abilities himself, such as Shukaku's sand manipulation, Saiken's soap bubble ninjutsu and ability to emit corrosive liquids, Chōmei's scale powder, or Gyūki's ink creation, and infuse them into his own techniques. With the infusion of all nine of the tailed beasts' respective chakra inside of him, Naruto has become a medium to connect all the tailed beasts to communicate with each other[98] and made him a human pillar for the power of the Ten-Tails.[99] In the Academy, the Sexy Technique was the only technique that Naruto could perform successfully, which had no practical use other than to shock people. Later, he learned more advanced and useful ninjutsu from Jiraiya. This included summoning toads from Mount Myōboku to assist him, and use them to crush enemies from above. He became skilled in shurikenjutsu, able to throw weapons quickly and with precision.[103] Naruto's repertoire expanded to fūinjutsu, where he could store his weapons within scrolls. His fūinjutsu was further increased upon receiving Gerotora near the start of the Fourth Shinobi World War.[104] In the anime, Jiraiya taught Naruto cooperation ninjutsu, combining his techniques with others to create an even more powerful one.[105] The collaboration techniques he performed with other individuals typically utilised his own elemental affinity, such as the Typhoon Water Vortex Technique with Yamato, the Wind Release: Toad Gun with Gamatatsu, and the Scorch Release: Halo Hurricane Jet Black Arrow Style Zero with Sasuke. He also learned from Asuma Sarutobi to flow chakra into his weapons to increase their offensive might.[106]
+Shadow Clone Technique
+Multiple Shadow Clone Technique
+Naruto using the Multiple Shadow Clone Technique.
+
+See also: Images of Naruto using Shadow Clone Technique
+Naruto's first trademark technique was the Shadow Clone Technique. While originally failing constantly with a basic illusionary clone, after briefly studying the Scroll of Seals, he learned to create shadow clones on a mass scale. From then on, Naruto's skill with shadow clones blossomed to great heights. Having unusually high chakra reserves, Naruto could use this technique to create hundreds of shadow clones and retain large amounts of chakra in each one with relative ease.[109] He could use them to outnumber or deceive his enemies, manoeuvre himself in mid-air, transform into weapons, scout areas, or test an opponent's abilities.[110] During his elemental-affinity training, learning that the original will gain all the knowledge and conditioning of a shadow clone right after it dispersed. From this, Naruto can use his mass scale of clones to drastically speed up his training to gain years worth of experience in just days. aruto's second trademark technique is the Rasengan. Originally, due to his poor chakra control, Naruto had to use a shadow clone to form the spherical shape while he provided the chakra. Over time, Naruto developed larger versions of the Rasengan and learned how to perform it faster.[111] During the Fourth Shinobi World War, he learned to use the Rasengan and its variants unaided with a single hand, or even form one in both hands simultaneously.[112] He also increased the size of his standard Rasengan.[113] Naruto had also shown the ability to release the Rasengan as an energy wave,[21] or as a projectile in the anime.[114] Using senjutsu or Kurama's chakra, Naruto can create more powerful and elaborate variations of the Rasengan; using the latter, he even developed the Super Mini-Tailed Beast Ball, performing it in a similar manner to the Rasengan. In the anime, usage of his tailed beast chakra also allows him to instantly perform massive Rasengan without the aid of his hands and launch in quick successions, similar to a Tailed Beast Ball.[115]
+
+Nature Transformation
+Naruto Creating Lava Rasenshuriken
+Naruto simultaneously using Wind and Lava Release.
+
+Naruto's natural affinity is Wind Release. Using shadow clones, one to form the Rasengan while another infuses the Wind chakra, Naruto could complete difficult task of producing a Rasengan that is the pinnacle of shape and nature transformation, something no one before him could accomplish, including Kakashi and his father. Once adjusting to using the Wind Release: Rasengan he could expand upon it to produce the Wind Release: Rasenshuriken. He also created different-sized variations, and could even use two Rasenshuriken simultaneously. Two years after its creation, he became skilled enough to form a Rasenshuriken without any shadow clones and throw it in his base form,[21] a feat which he previously could only do while using his enhanced modes.
+
+After acquiring Six Paths abilities,[116] Naruto gains access to all five basic nature transformations, as well as Yang Release.[117] He could also utilize Yin–Yang Release, making perfect use of it to revitalize life-forces, heal whomever he touches, and restore missing organs.[118] After gaining chakra from the respective tailed beasts, Naruto can also use Shukaku's Magnet Release, Son Gokū's Lava Release, and Kokuō's Boil Release, able to infuse any of the other elements into is normal techniques as seamlessly as with Wind chakra. Having an arm made from Hashirama's cells, Naruto has a possibility to use Wood Release.[119]
+Senjutsu
+Naruto's Sage Mode
+Naruto's Sage Mode.
+
+Naruto later trained in senjutsu at Mount Myōboku, which was only possible due to his high chakra reserves. Unlike Jiraiya, he was able to perfectly balance natural energy with his chakra, and enter a complete Sage Mode, symbolised by the orange pigmentation around his yellow eyes, his toad-like pupils, and no other alterations to his appearance. Using Sage Mode made Naruto's techniques stronger, enhanced his physical parameters,[120][121][122] utilise the Frog Kata taijutsu style,[123] and sense chakra through advanced enough to identify different signatures from vast distances.[124] Since Fukasaku was unable to fuse with Naruto and gather natural energy for him due to Kurama's interference, Naruto had to employ shadow clones instead to maintain the technique, taking advantage of the clones' own buildup of natural energy being transferred to the original and let him use Sage Mode a number of times. However, creating more than five shadow clones overall would disrupt the focus of the clones gathering natural energy. The need for this method diminishes over time as Naruto became capable of entering Sage Mode much faster.[125] However, after finding unity with Kurama, Naruto overcame this problem and learned to combine Sage Mode with Kurama's chakra to further enhance his abilities, such that he could resist Nagato's control and shatter Truth-Seeking Balls. Six Paths Senjutsu
+Main article: Six Paths Senjutsu
+Naruto also gained access to the Six Paths Senjutsu (六道仙術, Rikudō Senjutsu), which allows him to fly and also manifest up to nine Truth-Seeking Balls, composed of all five basic natures, use Yin–Yang Release, and imbue them with the Six Paths Chakra. He can mould the balls into a myriad of shapes, fire them as projectiles and still control them from distance, or convert them into Tailed Beast Balls and use them to create Tailed Beast Ball Rasenshurikens capable of destroying the planetoids generated from Chibaku Tensei. While his shadow clones are unable to produce Truth-Seeking Balls of their own, Naruto is able to transfer control of his own to any of his shadow clones.
+
+Six Paths Sage Mode
+Main article: Six Paths Sage Mode
+Naruto's SPSM
+Naruto's Six Paths Sage Mode.
+
+With the power given to him by Hagoromo Ōtsutsuki, Naruto gained access to the Six Paths Sage Mode (六道仙人モード, Rikudō Sennin Mōdo).[5] In this mode, his pupils take on a cross-like shape — without manifesting the orange pigmentation around his eyes present in Sage Mode. Going further, Naruto donned a new Nine-Tails Chakra Mode cloak, which he could access instantly and maintain much longer than his standard Sage Mode.[127] Naruto's physical attributes and techniques are further augmented,[128] to the point where he could dodge attacks that moved at the speed of light and deflect Truth-Seeking Balls. It also empowers his sensory abilities to the highest possible level,[129] which allowed him to sense the invisible shadows of Limbo.
+
+Asura Kurama Mode
+Naruto's Asura Kurama Mode.
+
+Naruto also retained use of his Tailed Beast Mode avatar of Kurama, which rivalled Sasuke's Rinnegan-empowered Complete Body — Susanoo in size and power.[130] Using two shadow clones, he could create and combine three Kurama avatars into a single construct with three faces and six arms, which is largely reminiscent of Asura's Six Paths: Kunitsukami.[131] This state allowed Naruto to infuse two massive Rasenshuriken with natural energy whose destructive capabilities rivalled that of Sasuke's most powerful jutsu, Indra's Arrow;[132] the resulting explosion from the two techniques colliding created an enormous cyclone that was visible from outer space.[133]
+
+Intelligence
+Naruto's intelligence
+Naruto reveals himself after disguising as a Wind Release: Rasenshuriken.
+
+While headstrong and often acting without thinking, Naruto's years as a prankster had given him a cunning imagination that was useful in split-second decision making, which has repeatedly proved invaluable in battle. He is a remarkable tactile learner, able to learn better through executing a task rather than understanding the theory of it.[134][25] Jiraiya also considered him to have a good gambling instinct.[135] Once seen in action, even the likes of the Second Hokage revise their thoughts about Naruto's intellect and instinct in battle.[136] After meeting Hagoromo Ōtsutsuki, Naruto gained the innate ability to grasp the nature of chakra and comprehend all universal things,[137] allowing him to quickly master the new powers he received.
+
+Naruto's most famous mental skill is to deceive his opponents, as he made effective use of even the most simple techniques to trick the deadliest of opponents.[140] He could formulate multi-step plans or backup plans in the thick of battle,[141] and act quickly even when given new information.[142] He can also seemingly make himself predictable by creating a pattern, only to throw off his opponent by breaking it. He has even thrown in what others would call completely useless techniques at powerful opponents to create an opening for a counterattack.[143] Naruto is rather observant, able to notice details others may overlook and subsequently take advantage of them to overcome his opponents.[144] 
+
+Part I
+See also: Plot of Naruto
+Prologue — Land of Waves
+Main article: Prologue — Land of Waves
+Iruka protects naruto
+Naruto is protected by Iruka.
+
+Failing once again to graduate from the Academy, a disappointed Naruto is advised by one of his instructors, Mizuki, to steal the Scroll of Seals and learn a technique from it in order to graduate. As Naruto struggled to learn the Shadow Clone Technique, Iruka Umino tracked him down and realised that Naruto was tricked by Mizuki into stealing the scroll. Mizuki attacked them and told Naruto about the Nine-Tails sealed within him, claiming that Iruka hated him because of it. When Iruka risked his life to protect Naruto, however, he saw through Mizuki's lies and used the Multiple Shadow Clone Technique to defeat him, prompting Iruka to happily grant Naruto his graduation from the Academy. Naruto would later befriend Konohamaru Sarutobi, grandson of the Third Hokage, and teach him several perverted or useful techniques.
+
+Team Kakashi
+Team 7's group photo.
+
+Naruto was eventually assigned to Team 7, partnered with Sasuke Uchiha and Sakura Haruno under the leadership of Kakashi Hatake. During their first meeting, Naruto shared his love of ramen, his hobbies, and his dream to become Hokage. To test their qualifications, Kakashi gave the team a bell test, stating that whichever of the three takes one of the two bells on his person will officially become genin. Instead of hiding like Sakura and Sasuke, Naruto tried to take the bells from Kakashi by force, only to be easily defeated, hung upside-down from a tree and tied to a wooden post in an attempt to steal lunch. After Sakura and Sasuke fail as well, Kakashi explains that the goal of the test was to use teamwork, to do together what none of them could do by themselves. He is persuaded to allow them to try again after lunch, but instructs Sasuke and Sakura not to feed Naruto. They feed him anyway, needing him in top-form if they're to work together. Kakashi sees this and, because they care more about the team than listening to his instructions, allows them all to pass.
+
+Zabuza Vs Genin
+Naruto and Sasuke team up against Zabuza.
+
+After a series of uneventful D-rank missions, Naruto is able to secure a C-rank mission for Team 7: escorting Tazuna to the Land of Waves. Soon after leaving Konoha, they are attacked by the Demon Brothers. Naruto is paralysed with fear, forcing Sasuke to step in to disarm them and protect Tazuna until Kakashi can capture them. Tazuna confesses that assassins have been hired to kill him but that he couldn't afford the bodyguard detail he needs. Although the mission is now A-rank in nature - far beyond the skill of genin - Team 7 decides to continue with it. Angered by Sasuke's taunting of him, Naruto cuts his hand to bleed out the poison he received earlier, vowing to never waver again. When they arrive in the Land of Waves and are confronted by Zabuza Momochi, Naruto is overwhelmed by the battle between Kakashi and Zabuza before he is knocked aside by Zabuza's water clone. Remembering his vow, Naruto regained his confidence and teamed up with Sasuke to free Kakashi from Zabuza's Water Prison. In the end, Zabuza is seemingly killed by Haku, allowing Team 7 to escort Tazuna back to his house.
+
+Kakashi finds Zabuza's death suspicious and decides to train the team in case he returns. He has them perform the Tree Climbing Practice to improve their chakra control, which will help them against Zabuza. Naruto becomes frustrated after several failures and asks for advice from Sakura, who herself mastered it from the start. Now rapidly improving, Naruto competes with Sasuke to finish the training, each determined to outdo the other. One day, Naruto encounters Haku (albeit unaware of his true identity) and they each discussed their dreams and desire to protect those precious to them. After Haku leaves, Naruto finishes the training with Sasuke but is left exhausted, so Team 7 leaves him behind the next morning as they resume their escort duties. Naruto awakens and arrives to assist Team 7 in fighting Zabuza and Haku, but, unaware of how Haku's Demonic Mirroring Ice Crystals work, he joins Sasuke within the prison.
+
+Naruto Holds Sasuke
+Naruto's first use of the Nine-Tails' chakra.
+
+Naruto cannot break free with his shadow clones and Sasuke cannot melt the ice with his fire. As Haku moves in to kill Naruto, Sasuke uses his body as a shield to protect Naruto and seemingly dies. Enraged by Sasuke's apparent death, Naruto unwittingly accesses the Nine-Tails' chakra for the first time, allowing him to destroy the ice mirrors and defeat Haku, breaking his mask. Realising his opponent was the boy he met before, Naruto calms himself. He is asked by Haku to kill him, since he feels of no further use to Zabuza. Before Naruto can do so, Haku immediately stops him and goes off to save Zabuza from being killed by Kakashi, sacrificing his own life. When Zabuza refuses to appreciate this, Naruto angrily scolds him, stating that Haku gave up his life to save someone precious to him. Touched by his words, Zabuza, using Naruto's kunai, killed Gatō and many of his henchmen before he himself dies. Sasuke soon awakens, and when their injuries heal, Team 7 leaves for home via Tazuna's newly-constructed Great Naruto Bridge.
+
+Chūnin Exams
+Main article: Chūnin Exams
+Naruto refuses to give up
+Naruto refuses to give up from the Chūnin Exams.
+
+Team 7 resumes its series of unremarkable missions. For their performance in the Land of Waves, however, Kakashi decides to enter them in the Chūnin Exams taking place in Konoha, which greatly excites Naruto. Because they've only recently graduated from the Academy, the three feel they must give strong showings to prove themselves. When they enter the exam hall, the team is met by Rock Lee, who challenges Sasuke to a fight; Naruto tries to attack Lee in jealousy, but is easily swept aside. The fight is interrupted by Might Guy, after which Naruto notes that the bandages around Lee's arms signify his arduous taijutsu training while also mocking Sasuke for his unability to best Lee.
+
+During the exam's first stage, the participating genin are given a written test, the goal of which is to cheat without getting caught. Unaware of this, Naruto struggles to answer the questions, so Hinata Hyūga, who is seated next to him, offers to let him copy off her paper. Despite the temptation, Naruto declined Hinata's offer, claiming that he isn't the type to cheat and that they might be disqualified if they are caught. Before the tenth question can be given, the genin are presented with the opportunity to forfeit; Naruto refuses to do so, declaring his refusal to give up and his goal to still become Hokage. His determination to face the tenth question despite the potential consequences inspires the rest of the genin to do the same, and so they pass the first stage. It is later noted that he was the only one to hand in a blank sheet, though this did not prevent him from passing.
+
+Naruto saves Sasuke from Orochimaru
+Naruto saves Sasuke from Orochimaru's snake.
+
+For the second phase, teams enter the Forest of Death with the objective of obtaining a set of two scrolls, one of which they are given at the start. Naruto becomes separated from his team and is attacked and swallowed by a giant snake. He manages to kill it and regroups with his frightened teammates against Orochimaru. Angered by Sasuke's sudden cowardice and resignation, Naruto engages Orochimaru using the Nine-Tails' chakra, defeats his giant snake, and taunts Sasuke before Orochimaru suppresses the Nine-Tails' chakra, rendering Naruto unconscious. After he awakens, Team 7 continues its search for the second scroll, which they eventually gain by defeating Team Oboro, allowing them to pass the second stage.
+
+Uzumakirendan
+Naruto defeats Kiba.
+
+In the preliminary matches of the exam, Naruto was pitted against Kiba Inuzuka and his dog, Akamaru. Believing the match to be an easy victory, Kiba and Akamaru overwhelmed Naruto with many high-speed attacks, so Naruto tricks Kiba into knocking Akamaru out of the fight by using the Transformation Technique, shocking all spectators. Naruto then disorients Kiba by farting in his face and defeats him with the Naruto Uzumaki Combo (which he invented from watching Sasuke's Lion Combo). When Neji and Hinata's match begins, Naruto is enraged by Neji's ruthless tirade against Hinata and cheers Hinata on to defeat Neji. Although Hinata is defeated, Naruto wipes up her blood and vows to defeat Neji in the finals.
+
+Naruto meets Kurama
+Naruto meets the Nine-Tails.
+
+During the month of training, Naruto first meets Jiraiya (who knocked out Ebisu, Naruto's original teacher) and trains under the Sannin to improve his chakra control. Recognising Naruto as the Nine-Tails' jinchūriki, Jiraiya removes the seal Orochimaru had placed on Naruto to ease his control and begins teaching him how to use the Nine-Tails' power by summoning toads. To accelerate Naruto's slow progress, Jiraiya pushes him over a cliff, causing Naruto to enter his subconscious and meet the Nine-Tails. Working past his fear, he bravely demands chakra from it as "rent" for living in his body. The Nine-Tails complies and Naruto summons Gamabunta, though he exhausts himself and ends up in the hospital, where he is visited by Shikamaru Nara. After talking, he and Naruto stop Gaara from killing Rock Lee in the next room and listen to Gaara's story of his childhood, which Naruto finds very similar to his own. Gaara prepares to kill them, but Might Guy intervenes and forces Gaara to retreat. On the day of the finals, Naruto meets Hinata at the Third Training Ground and expresses his doubts about his upcoming match with Neji. Hinata reassures Naruto that he never gave up because he always had the strength to overcome his own failures, admiring him for it. Reinvigorated, Naruto thanks Hinata and tells her even though he first thought she was weird, he now likes her.
+
+Naruto vs Neji
+Naruto vs. Neji.
+
+Facing Neji in the first match of the finals, Naruto began by creating shadow clones to overwhelm Neji's with sheer numbers. Deeming Naruto a failure who could never defeat a genius like himself, Neji easily defeats Naruto's clones and seals his chakra with Eight Trigrams Sixty-Four Palms. Determined to prove Neji's ideals about fate wrong, Naruto tapped into the Nine-Tails' chakra and, revitalised, clashed with Neji. When the smoke cleared, Neji emerges and Naruto lies defeated. This, however, was only a shadow clone, and the real Naruto burst from the ground beneath Neji, defeating him with an uppercut. Before he is declared the winner, Naruto tells Neji that creating clones was once his shortcoming and that Neji needs to stop believing in inescapable fate. When Sasuke finally arrives for his match with Gaara, Naruto is envious of Sasuke's improvements, but is later put to sleep along with most of the audience, commencing the Konoha Crush.
+
+Konoha Crush
+Main article: Konoha Crush
+Naruto saves Sasuke from Gaara
+Naruto saves Sasuke from Gaara.
+
+Sakura wakes up Naruto so they can pursue Sasuke, who was pursuing Gaara himself. They arrive in time for Naruto to kick Gaara away before he can kill Sasuke. Partially transformed into Shukaku, Gaara knocks Sakura unconscious and binds her to a tree, forcing Naruto to battle him, with little success. Naruto relates to Gaara's painful life as a jinchūriki, but he is not willing to let anything to happen to Sakura and Sasuke. Determined to protect his friends, Naruto creates an army of shadow clones to relentlessly batter Gaara, forcing him to fully transform into Shukaku, to which Naruto responds by summoning Gamabunta.
+
+Naruto defeats gaara
+Naruto defeats Gaara.
+
+Gaara puts himself to sleep to give control of his body to Shukaku, forcing Naruto and Gamabunta to figure out a way to end the jutsu. They do so by transforming into a giant fox (the Nine-Tails in the anime) to restrain Shukaku, allowing Naruto to awaken Gaara with a solid punch to the face. Shukaku's influence disappears, but Gaara regains control and traps Naruto with his sand. Naruto escapes by tapping into the Nine-Tails' chakra, and headbutts Gaara when he is close enough, destroying Shukaku's form. Exhausted from the fight, the two leap at each other for one final exchange, and Naruto punches Gaara, claiming victory.
+
+Naruto and Gaara fell to the ground, unable to move. Slowly crawling towards Gaara, Naruto explained that he also suffered a painful and lonely life, but was later saved by having friends. To that end, he will do anything to protect them, even if it means killing Gaara. Understanding Naruto's true strength, Gaara retreated with Kankurō and Temari with a new outlook on life, while Naruto passes out from exhaustion and is returned to Konoha with Sasuke and a rescued Sakura. A few days later, Team 7 attended the Third Hokage's funeral.
+
+Search for Tsunade
+Main article: Search for Tsunade
+Jiraiya is tasked with finding Tsunade, a candidate for Fifth Hokage, and convinces Naruto to accompany him by promising to teach him a technique stronger than Sasuke's Chidori. Stopping at an inn in Shukuba Town, Naruto was approached by Kisame Hoshigaki and Itachi Uchiha of Akatsuki, who intend to capture the Nine-Tails. When Sasuke shows up and furiously attacks Itachi, Naruto gathers the Nine-Tails' chakra to help Sasuke, but it is absorbed by Kisame's Samehada. Jiraiya soon arrives and drives off Itachi and Kisame, but Sasuke is left mentally and physically damaged by Itachi. Might Guy appears and takes Sasuke back to Konoha, but not before giving Naruto a spare green jumpsuit.
+
+Tsunade vs naruto
+Naruto and Tsunade face-off.
+
+To prepare for the next encounter with Akatsuki, Naruto begins learning the Rasengan, completing two of its three learning steps. Taking a break from training, Naruto and Jiraiya eventually found Tsunade and her assistant Shizune at a restaurant. When Tsunade refuses the offer to become Hokage and insults all who held the title, an angry Naruto challenged her to a fight and attacked her with an incomplete Rasengan, only to be easily defeated. Impressed by his progress, however, Tsunade makes a bet with Naruto: if he can master the Rasengan in a week, he gets the First Hokage's Necklace; if not, she gets his wallet. Naruto agreed and spent the week trying to perfect the Rasengan, but has no success and collapses from exhaustion. Once he recovers, Naruto heads out with Jiraiya and Shizune to stop Tsunade from meeting with Orochimaru.
+
+Naruto vs
+Naruto defeats Kabuto.
+
+They arrive to see Tsunade, who never intended to aid Orochimaru, in the midst of battle with Kabuto Yakushi. When Tsunade is incapacitated, Naruto fights Kabuto in her place and eventually defeats him with a perfected Rasengan, which he formed by using a shadow clone. Naruto collapses almost immediately afterwards, his heart muscles torn by Kabuto, but Tsunade successfully manages to heal him, gives him the necklace he wins, and accepts the position of Hokage. After Orochimaru and Kabuto are defeated, Naruto and the others return to Konoha, Tsunade confidently believing Naruto would someday become a great Hokage.
+
+Land of Tea Escort Mission
+Main article: Land of Tea Escort Mission
+Sasuke Recovery Mission
+Main article: Sasuke Recovery Mission
+Naruto's Promise
+Naruto promises Sakura to return Sasuke to Konoha.
+
+Naruto visits a recovering Sasuke at the hospital, but is immediately challenged to a fight, to which Naruto eventually agrees. The fight escalates quickly, culminating with Naruto using Rasengan and Sasuke using Chidori. Kakashi arrives and deflects their attacks into opposing water towers before they can clash, Naruto unknowingly doing more damage than Sasuke. Distressed by Sasuke's behaviour, Sakura informs Naruto of the cursed seal Sasuke received from Orochimaru, though Naruto assures Sakura that Sasuke would never abandon Konoha for power. Unfortunately, Sasuke does just that and Naruto joins the Sasuke Recovery Team in order to bring him back; he promises a tearful Sakura to do so before he leaves. En route to Sasuke, the team encounters members of the Sound Four, each of which battles a member of the recovery team, while Naruto engages Kimimaro. Overwhelmed by Kimimaro's taijutsu skills, Naruto is saved at the last minute by Rock Lee, who volunteers to fight Kimimaro while Naruto heads after Sasuke.
+
+Naruto Sasuke clash
+Naruto fights Sasuke.
+
+Naruto finally meets Sasuke at the Valley of the End. His pleas for Sasuke to come back to Konoha and warns him that Orochimaru will take his body, but his pleadings fall on deaf ears. Naruto starts attacking him, ready to take him back to Konoha by force if necessary. Undeterred, Sasuke responds by tapping into his cursed seal and landing a series of heavy blows on Naruto. It becomes painfully clear to Naruto that Sasuke is fighting with an intent to kill, so Naruto utilises the Nine-Tails' chakra to overpower Sasuke. Naruto says that Sasuke is like a brother to him and that he will do anything to protect that bond. Sasuke vows to sever that bond, but acknowledges Naruto as an equal by putting on his forehead protector. They continue trading blows, with Naruto eventually manifesting a fox-shaped cloak and Sasuke entering his cursed seal's second level. Naruto clashes his Rasengan with Sasuke's Chidori, and within the dome of resulting energy they trade final blows: Sasuke punches Naruto and Naruto scratches Sasuke's forehead protector.
+
+Sasuke defeats Naruto
+Naruto defeated by Sasuke.
+
+When the energy dissipates, Naruto lies defeated, but Sasuke spares him and continues his way to Orochimaru, leaving his scratched forehead protector behind. Kakashi and Pakkun arrive late and failing to retrieve Sasuke, leave with Naruto. In the hospital, Naruto once again promises Sakura to bring Sasuke back one day. Soon after, Jiraiya arrived with an offer to train Naruto for preparation against Orochimaru and Akatsuki in three years and to give up on Sasuke, as he is no different from Orochimaru. Naruto accepts Jiraiya's training, but refuses to give up on Sasuke, satisfying Jiraiya.
+
+Original Anime Arcs
+See also: Plot of Naruto
+Naruto Departing Konoha
+Naruto leaving Konoha.
+
+As in the manga, Naruto later departs with Jiraiya to begin his two and a half years of training, after making a determined gesture at the Fourth Hokage's statue. In the anime, this does not happen until about 3 months later as Jiraiya was occupied with important intel gathering about Akatsuki for Konohagakure. During the waiting period, Tsunade gives Naruto several missions with members of the Konoha 11 to keep him busy.
+
+Interlude
+Naruto Improving Resengan
+Naruto training with the Big Ball Rasengan.
+
+In the anime, shortly after leaving Konoha, Jiraiya and Naruto discuss the fact that Naruto will need to learn how to counter genjutsu if he hopes to be a match against Sasuke the next time they meet. Naruto practises with Gamariki to dispel genjutsu, but he struggles with it and his chakra keeps hitting Gamariki, who doesn't appreciate it. Naruto follows Jiraiya to the Genjutsu Tree Village to try a different approach, but they discover the village has been taken over by Kandachi.[145] They free the villagers and then attack Kandachi, who Naruto eventually defeats with his newly-created Big Ball Rasengan. As they leave afterwards, Jiraiya is pleased by how similar Naruto is to Minato Namikaze and hugs him, which Naruto is bothered by.[146]
+
+In Naruto's Footsteps: The Friends' Paths
+Main article: In Naruto's Footsteps: The Friends' Paths
+Two years into their training, Naruto's control of the Nine-Tails' chakra has improved significantly. Jiraiya tries to give him more access to the Nine-Tails' power and uses Gerotora to weaken Naruto's Eight Trigrams Sealing Style. Seizing the opportunity, the Nine-Tails mocked Naruto for his inability to save Sasuke, using Naruto's negative emotions to force him to enter a version 2 form with four tails. Not in control of his body, Naruto attacks Jiraiya and nearly kills him before he manages to suppress the Nine-Tails. Naruto has no memory of what happened and Jiraiya doesn't tell him, instead, shifting Naruto's training to other pursuits, including keeping his anger in check so that the Nine-Tails won't flare up again.[147]
+
+Part II
+See also: Plot of Naruto: Shippūden
+Kazekage Rescue Mission
+Main article: Kazekage Rescue Mission
+Naruto returns to Konoha
+Naruto returns to Konohagakure.
+
+Naruto and Jiraiya return to Konoha after two-and-a-half years of training, where Naruto becomes surprised by Tsunade's newly-formed statue on Hokage Rock. He greets his old friends afterwards: he gives Kakashi a copy of Icha Icha Tactics as a gift; he catches up with Sakura, whom he has become taller than; he gets back into a competition of Sexy Techniques with Konohamaru Sarutobi, only to be violently reprimanded by Sakura. Kakashi reforms Team 7 with them and gives them another bell test, but unlike last time, taking the bells from him is the real objective. As with last time, Naruto launches a first attack before the test officially begins, but this time it nearly succeeds. Despite their improved abilities, Naruto and Sakura were still unable to get a bell through conventional means, and it was only by Naruto's threat to spoil the latest Icha Icha novel that they distracted Kakashi long enough to take the bells.
+
+While Team 7 tries without success to find a mission to go on that Naruto won't complain about, word reaches Konoha that Akatsuki has kidnapped Gaara, the Kazekage. Team 7 is sent to Sunagakure to assist in rescuing Gaara. On their way to Suna, Naruto explains that Gaara was kidnapped because he is the jinchūriki of the One-Tail, just as Naruto is the jinchūriki of the Nine-Tails. Upon arrival in Suna, Naruto defends Kakashi from Chiyo's assault when she mistakes him for his father. Team 7 gathers what intel they can on Gaara's kidnappers and leave to go after them; Chiyo volunteers to escort them since they aren't familiar with the country around Suna. Naruto promises a recovering Kankurō to rescue Gaara before they leave.
+
+Naruto pummels Deidara
+Naruto pummels Deidara.
+
+While en route to an Akatsuki lair, they are confronted by Itachi Uchiha, who traps Naruto in a genjutsu. Sakura and Chiyo release him, allowing Naruto to team up with Kakashi and defeat Itachi with a Big Ball Rasengan. The Itachi is discovered to be an impostor, so they continue to the Akatsuki lair, meeting up with Team Guy, who takes down the barrier over the entrance so that Team 7 can get in. They find Gaara's body finds with his kidnappers, Deidara and Sasori. Deidara flies off with Gaara's body with Naruto and Kakashi in pursuit, leaving Sasori to Chiyo and Sakura. Naruto, enraged, makes repeated failed attempts to rescue Gaara before he is calmed by Kakashi, who uses his new Mangekyō Sharingan to distract Deidara with Kamui. Naruto retrieves Gaara's body, but seeing it drives him over the edge: he furiously attacks Deidara and beats him mercilessly into the ground. Discovering that it was a Clay Clone, Naruto slips into his two-tailed form in rage, but is restored to normal by Kakashi via the Chakra-Suppressing Seal.
+
+Gaara awakens
+Gaara awakens, with Naruto by his side.
+
+Deidara escapes, while Naruto and Kakashi regroup with Sakura, Chiyo, and Team Guy. Sakura attempts to revive Gaara, but the removal of Shukaku has caused him to die. Naruto breaks down in tears and angrily lashes out at Chiyo, saying she had no right to make Gaara not only a jinchūriki, but also lose his life because of it. As atonement and with Naruto's aid, Chiyo sacrifices her life to revive Gaara; as the jutsu nears completion, Chiyo voices her faith in Naruto's ability to save Gaara and to become Hokage. Naruto greets Gaara when he awakens, and a few days later, Teams 7 and Guy attend Chiyo's funeral in Suna. Before returning home, Naruto and Gaara shake hands (Gaara using his sand) as a sign of their close relationship.
+
+Tenchi Bridge Reconnaissance Mission
+Main article: Tenchi Bridge Reconnaissance Mission
+Naruto and Sai's first meeting
+Naruto and Sai's first encounter.
+
+During her fight with Sasori, Sakura learned of an opportunity to meet with a spy in Orochimaru's ranks in a few days' time, hoping it will lead them to Sasuke. Kakashi is left bedridden from his fight with Deidara, so Yamato leads Team 7 as his replacement. Replacing Sasuke on the team is Sai, whom Naruto actually encounters earlier and dislikes, declaring him an inferior version of Sasuke. Sai is happy for this distinction and proceeds to degrade Sasuke for defecting from Konoha, forcing Yamato to use his Wood Release to break up their fight. Naruto is constantly exasperated by Sai's lack of empathy and his ridicule of Sasuke, but resolves to work with Sai if it means saving Sasuke.
+
+Team Yamato at Tenchi Bridge
+Team 7 confronts Orochimaru and Kabuto.
+
+Yamato disguises himself as Sasori and goes to the Tenchi Bridge to meet the spy while Naruto, Sakura, and Sai hide nearby. The spy, Kabuto Yakushi, begins telling Yamato about Orochimaru's organisation, but they are interrupted by the arrival of Orochimaru, who teams up with Kabuto to fight Yamato, having intended to kill Sasori. Team 7 comes to his aid and Orochimaru, recognising them, taunts Naruto about Sasuke. Naruto is enraged and strikes him, using his version 1 form to make his attacks more devastating. Naruto's rage intensifies as he submits to the Nine-Tails' influence: he destroys the Tenchi Bridge and eventually advances to his version 2 form while fighting Orochimaru. Naruto is soon forced back to the destroyed bridge, where, unable to tell friend from foe, he unknowingly attacks Sakura when she approaches him.
+
+Naruto vs
+A four-tailed Naruto attacks Orochimaru with Tailed Beast Ball.
+
+Yamato restrains Naruto with his Wood Release and suppresses the Nine-Tails' influence, but its chakra leaves Naruto's body badly damaged. After Sakura heals him, Naruto wakes up unable to remember what happened, but is surprised by the devastated landscape. When they realise that Sai is missing, Yamato reports that he has joined with Orochimaru and Kabuto. On the way, Yamato secretly takes Naruto aside and tells him that he is the one who attacked Sakura. He encourages Naruto to use his own strength instead of the Nine-Tails in order to protect his loved ones. The team locates Sai, whom Yamato has placed a trace on, at Orochimaru's lair and capture him. Restrained, Sai asks why Naruto is determined to save him; Naruto replies that his bond with Sasuke is too precious to be broken and that he will do anything to protect it. Intrigued, Sai switches sides, helping them capture Kabuto and then searching the base for Sasuke on Naruto's behalf. While he's gone, Yamato goes through his belongings and finds evidence that Sai has been assigned to assassinate Sasuke.
+
+Sasuke draws sword
+Naruto encounters Sasuke.
+
+When they find Sai, he explains that he truly does want to help retrieve Sasuke, and in fact has already found him: Naruto and Sakura are speechless to see Sasuke again. Sasuke reacts with indifference to them, but Naruto remarks he can't become Hokage without saving his friend. To demonstrate that they mean nothing to him, Sasuke quickly neutralises them all. As Naruto struggles to avoid the temptation of using the Nine-Tails, Sasuke suddenly appears in Naruto's subconscious using his Sharingan and suppresses the Nine-Tails. He then prepares to kill them, but is persuaded not to by Orochimaru and leaves without further comment. Naruto is upset at having failed once more to bring Sasuke home, but is reminded by Sakura that they need to become stronger and Team 7 returns to Konoha.
+
+Twelve Guardian Ninja
+Main article: Twelve Guardian Ninja (Arc)
+Akatsuki Suppression Mission
+Main article: Akatsuki Suppression Mission
+Naruto training
+Naruto training with his clones.
+
+Once Kakashi is done recuperating in the hospital, he assembles Naruto, Sakura, and Sai to discuss their failed mission to retrieve Sasuke. Kakashi believes the best way to match Sasuke is for Naruto to create a new jutsu. As the training began, Naruto discovers that his nature is wind and learns to use the wind nature. Ordinarily, such training would take months or years, but Kakashi advises that Naruto, by training alongside hundreds of shadow clones can do the same training in a mere fraction of the time. With Kakashi's instructions and the training grounds created by Yamato, Naruto quickly masters how to use the wind nature. The next step is more difficult for him: combining that nature with the Rasengan.
+
+Naruto vs Kakuzu 
+Naruto defeats Kakuzu.
+
+Like Kakashi and Minato Namikaze before him, Naruto fails several times in trying to combine his nature with the Rasengan; his frustration evokes the Nine-Tails' chakra at times, which Yamato suppresses. With further advice from Kakashi, Naruto finds his solution using two shadow clones: one helps him form the Rasengan and the other adds his wind nature. When they receive news that Asuma died in battle with members of Akatsuki, they take a break to attend Asuma's funeral. Kakashi leaves Yamato in charge of overseeing Naruto's training so he could help Team 10 avenge Asuma. Having finished his jutsu, Naruto and Team Yamato went to provide assistance, arriving in time to save Kakashi and Team 10 from Kakuzu. Naruto engages Kakuzu alone with his newly-created Wind Release: Rasenshuriken, though it dissipates on its first use and Naruto is rescued by Kakashi and Yamato. The technique succeeds the second time, destroying two of Kakuzu's hearts and putting the last one on the brink of failure. Kakashi finishes off Kakuzu and they return to Konoha.
+
+The Rasenshuriken injures Naruto's arm after use and he is forbidden to use the technique ever again. When they visit Ichiraku Ramen, Naruto has a hard time eating while his arm mends, so Sakura opts to help, before the responsibility falls to Sai, then to Kakashi. As they leave afterwards, they are met by Konohamaru, who demonstrates his Sexy: Girl on Girl Technique; Naruto approves but Sakura is disgusted and violently reprimands him. In the manga, Konohamaru responds with Sexy: Boy on Boy Technique; Sakura approves but Naruto is disgusted and violently reprimands him.
+
+Three-Tails' Appearance
+Main article: Three-Tails' Appearance
+Itachi Pursuit Mission
+Main article: Itachi Pursuit Mission
+Eight Man Squad
+The Eight Man Squad formed to pursue Itachi and Sasuke.
+
+News reaches Konoha that Sasuke has killed Orochimaru. Realising that this is a good opportunity to try once again to reunite with Sasuke, Kakashi combines Teams 7 and 8 into an Eight Man Squad with the mission to find either Sasuke or his assumed target, Itachi. When they split up to search, Naruto, because he's a target of Akatsuki, is given a protective escort in the form of Hinata, Yamato, and Bull. Their group encounters Kabuto, who offers them intel on Akatsuki and its members, his thanks to Naruto "inspiring" him to overcome Orochimaru after absorbing his remains. Kabuto then escapes.
+
+Tale of Jiraiya the Gallant
+Main article: Tale of Jiraiya the Gallant
+Itachi's Genjutsu
+Naruto and Itachi converse.
+
+After regrouping and Kiba Inuzuka detects Sasuke's trail, Naruto creates shadow clones to search the area faster, one of which encounters Itachi. Itachi repels Naruto's attacks and insists he only wants to talk. He asks Naruto what Sasuke means to him and what he will do if Sasuke ever moves against Konoha. Naruto replies that he is Sasuke's brother – a better brother than Itachi is – and that if Sasuke ever attacks the village he will defend it without killing Sasuke. Itachi is happy with this answer and gives Naruto some assistance for this purpose: a special crow that he stores within Naruto's body. Itachi left, and Naruto continued his search, eventually finding Sasuke.[148]
+
+As they near Sasuke's location they are intercepted by Tobi of Akatsuki, who prevents them from progressing and who is invulnerable to their attacks.
+
+Fated Battle Between Brothers
+Main article: Fated Battle Between Brothers
+As the group continually tries to attack Tobi, he dodges the attacks with ease. Naruto tries several times to attack him with his Rasengan, but without success. Tobi attempts to use a hidden jutsu to attack the teams, but fails at it. Eventually, Zetsu comes to tell him about Sasuke and Itachi's fight. Tobi leaves when he receives news that Sasuke has killed Itachi, and Teams 7 and 8 try to reach Sasuke before he does. Unable to find where Tobi has taken Sasuke, they are forced to return to Konoha.
+
+Six-Tails Unleashed
+Main article: Six-Tails Unleashed
+Pain's Assault
+Main article: Pain's Assault
+Naruto after Jiraiya's death
+Naruto mourns Jiraiya's death.
+
+As Naruto contemplated his meeting with Itachi, he was called to the Hokage Residence to hear sombre news: his master Jiraiya was killed by Pain, the leader of Akatsuki. Grief-stricken, Naruto blamed Tsunade and spent the day mourning his teacher's death, depressed that Jiraiya cannot see him become Hokage. After being comforted by Iruka and Shikamaru, Naruto helped to decipher Jiraiya's dying message and eventually they succeed. Understanding that Jiraiya had bought him time for his own fight with Pain, Naruto went to train with the toads of Mount Myōboku to learn senjutsu. Naruto trained to harmonise with nature, a process he sped up by using a limited number of shadow clones. He rapidly progressed through the training stages and attained a perfect Sage Mode, which Jiraiya was unable to do. News of Pain's Assault on Konoha reached them, they began to mobilise for battle.
+
+Naruto and Fukasaku
+Naruto arrives to fight Pain.
+
+As Naruto, Fukasaku, Gamaken, Gamahiro, Gamabunta, and Gamakichi were summoned to the centre of Konoha, the group was confronted by the Six Paths of Pain, who had just destroyed the village. After destroying the Asura Path before it could attack Tsunade, Naruto told her to make sure everyone left the battle to him. After a brief skirmish with Animal Path, Naruto and the toads defeated the Animal, Preta, and Human Paths before running out of senjutsu chakra. Naruto revealed that he had two shadow clones waiting back at Mount Myōboku to revitalise him with natural energy. Naruto went back on the offensive, dispatching the healed Preta and Naraka Path before the Deva Path regained its full power. Pain killed Fukasaku and used the opportunity to capture Naruto, pinning him down to the ground.
+
+Naruto influenced
+Naruto succumbs completely to the Nine-Tails' influence.
+
+With Naruto restrained, Pain opened up his reasons for Akatsuki, their plan for the tailed beasts, and the peaceful world he wanted to create. Though Naruto rejected his notion that using a weapon to force peace, he could offer no alternative. Before Pain could depart with Naruto, he was attacked by Hinata Hyūga. Declaring her love for Naruto and vowing to protect him, she continued to fight against Pain before she was subdued and critically wounded. Believing Hinata to had been killed, an enraged Naruto erupted into his six-tailed form. Resisting the First Hokage's Necklace's attempted to quell the transformation and destroying it, the Nine-Tails attacked Pain, forcing him out of the village to get close enough to his actual body to use the Chibaku Tensei, trapping Naruto within the small satellite. The technique was not enough to stop the Nine-Tails, however, as it simply progressed to eight-tailed form to force its way out of the satellite. Meanwhile within his subconscious, Naruto was tempted by the Nine-Tails to open its seal to save him from the pain of not having Pain's answer for peace. However, before Naruto could, Minato appeared, having left some of his chakra within the seal in case of an emergency to protect his son. Overjoyed at meeting his father, but angered that he would condemn him to life as a jinchūriki, Naruto listened to his father encouraging him, confident that he would find a way to break the cycle of hatred. After repairing the seal, Minato disappeared and the newly-inspired Naruto prepared to resume his battle with Pain.
+
+Naruto defeating Deva path
+Naruto defeats Pain.
+
+Confidence restored, Naruto was greatly relieved to learn that not only had Hinata survived, but nobody was injured during his rampage. After clever use of shadow clones, Naruto destroyed the Deva Path with a Rasengan, defeating the last of Pain's Six Paths. Using one of Pain's Black Receivers, Naruto followed the chakra signal to Nagato and Konan's position. Confronting Nagato, Naruto listened to Nagato's story that turned him into Pain and came to understand why he made the actions he did. Despite not forgiving him, he told Nagato he would not kill him and would instead try to create the better world that their teacher wished for. Moved by Naruto's determination to create a better world, Nagato decided to put his trust in Naruto and sacrificed his own life to revive all the people he had killed in Konoha. Naruto helped Konan retrieve Nagato and Yahiko's bodies for burial in Amegakure, and Konan left Naruto a bouquet of paper flowers for him, symbolising their new alliance.
+
+Hero of the Hidden Leaf
+The village greets Naruto upon his return.
+
+Naruto then created a memorial for Jiraiya and left the flowers and a copy of The Tale of the Utterly Gutsy Shinobi by a rock with the kanji for teacher (師, shi). While the exhausted Naruto walked back to the village, he was found by Kakashi who carried him the rest of the way. Upon arrival, Naruto was greeted as a hero by the villagers, his dream of acknowledgement being realised at last.
+
+Past Arc: The Locus of Konoha
+Main article: Past Arc: The Locus of Konoha
+Five Kage Summit
+Main article: Five Kage Summit
+Karui Beating Naruto
+Naruto willingly gets beaten by Karui.
+
+Sakura informs Naruto that Tsunade fell into a coma and that there's nothing that can be done to bring her out of it. While they talk, they are approached by Tazuna and Inari, who have come to help rebuild Konoha. They ask about Sasuke, which Naruto avoids going into detail about so as to spare them and Sakura a discussion about Sasuke's defection. After Tazuna and Inari leave, they receive news that Danzō Shimura has become the next Hokage and that he has ordered Sasuke be killed as a traitor. Naruto and Sakura approach Sai to ask him how they can convince Danzō to change his mind, but Sai is unable to help. Omoi and Karui of Kumogakure overhear them talking about Sasuke and they ask for information about Sasuke, wishing to kill him for his role in Akatsuki's capture of Killer B. Naruto leads Omoi and Karui away to spare Sakura pain, but refuses to reveal anything about Sasuke. Instead, Naruto allows the Kumo-nin vent their anger by beating him, to which Karui obliges until Sai stops her and the Kumo-nin retreat.
+
+Naruto's failed plea to Raikage
+Naruto unsuccessfully pleas the Raikage to forgive Sasuke.
+
+Recovering later, Naruto asked Yamato and Kakashi to take him to the Land of Iron, so that he could ask Fourth Raikage to pardon Sasuke. Upon arrival, the Raikage rejected Naruto's request even with Kakashi and Yamato's assistance and berated him for defending a criminal. Naruto went to a local inn to ponder his next course of action, but was soon confronted by Tobi, who wanted to understand Nagato's change of heart. Naruto ignored the question and demanded to know about his plans with Sasuke. Tobi told him about the Sage of the Six Paths, the Uchiha clan, and the truth about the Uchiha Clan Downfall, all of which now drove Sasuke along a path of vengeance against Konoha and anyone else who would dare cross his path. Naruto insisted that he could still get through to Sasuke, but Tobi laughed and left, saying that Naruto and Sasuke were fated to fight again.
+
+As one's friend
+Naruto talks with Gaara about Sasuke.
+
+While Naruto was practising his Sage Mode's sensory abilities to locate Sasuke, he was interrupted by the arrival of Sakura, Rock Lee, Kiba and Sai. Sakura attempted to dissuade Naruto in his attempts to bring Sasuke back to Konoha by falsely telling him that she loved him. However, Naruto knew she was lying and he rejected her confession and her proposal to abandon Sasuke, stating it had nothing to do with his promise to her. After Sakura's party left, Sai's ink clone revealed that the rest of the Konoha 11 had decided to kill Sasuke themselves to prevent another war, while Sakura planned to kill Sasuke herself, at Sai's unintended insistence. Gaara, who attended the Five Kage Summit that Sasuke attacked, arrived and revealed Tobi's declaration of the Fourth Shinobi World War, telling Naruto how they would be fighting Sasuke to protect Naruto, but he did advise Naruto to consider for himself what was the right thing to do. After hearing that most of his friends have turned against Sasuke, who now wanted to unleash his vengeance on just about everyone, Naruto hyperventilated and passed out. When he awoke, he was told by Yamato that Kakashi went to stop Sakura from dealing with Sasuke.
+
+Naruto vs
+Naruto and Sasuke clash.
+
+Using a shadow clone as a decoy, Naruto escaped from the inn and followed Kakashi, arriving just in time to save Sakura from being killed by Sasuke. He tried once more to reason with Sasuke, sympathising with his pain and acknowledging Itachi's sacrifice. However, Sasuke was unmoved and declared his resolve to destroy Konoha and sever the Uchiha's connection to the shinobi world. Naruto then clashed his Rasengan with Sasuke's Chidori, realising that everything in his life he could have easily gone down the same path of Sasuke. Despite his jealousy of him, he had come to like Sasuke and was glad to have met him. Undeterred, Sasuke gave Naruto two options: kill or be killed; Naruto chose neither. Tobi and Zetsu arrived and prepared to depart with Sasuke. Naruto resolved that if he and Sasuke were to battle again, they would kill each other, but he was willing to accept it as he would shoulder Sasuke's hatred alone. Sasuke vowed to kill Naruto first and left with Tobi and Zetsu, while Naruto and his teammates returned to Konoha, with the captive Karin. Naruto explained the situation to his friends and asked to fight Sasuke alone, determined to get stronger for their upcoming battle.
+
+Power
+Main article: Power (Arc)
+Paradise Life on a Boat
+Main article: Paradise Life on a Boat
+Fourth Shinobi World War: Countdown
+Main article: Fourth Shinobi World War: Countdown
+The Great Toad's Prediction
+Naruto meets with the Great Toad Sage.
+
+As Naruto was about to eat at Ichiraku, he was suddenly summoned back to Mount Myōboku by Fukasaku. He learns from the Great Toad Sage's fortune that he would meet an "octopus" and would battle a "young man with powerful eyes." When Gerotora was summoned to give Naruto the "key" to the Eight Trigrams Seal, Naruto knew he would need the Nine-Tails' power for the battles to come and accepted the key. Naruto was sent back to Ichiraku, where some of the villagers asked for his autograph. Naruto was unaware that the five Kage were planning to keep him from participating in the upcoming Fourth Shinobi World War. For his safety, Tsunade gave Naruto an "S-rank mission" on a remote island in the Land of Lightning with Yamato, Might Guy, Aoba Yamashiro, and other Konoha-nin as security.
+
+Once at the island, Naruto met Killer B, the jinchūriki of Eight-Tails, and requested to train under him after marvelling at B's mastery of his tailed beast. B refused as he was on vacation, despite Naruto's best efforts to impress him. However, when Motoi heard Naruto bumped fists with B, he took Naruto was taken to Falls of Truth, where B trained to control the Eight-Tails. Following Motoi's instructions, Naruto sat on the platform in front of the waterfall and closed his eyes to see his true self: Dark Naruto, who berated Naruto on how quickly the Konoha villagers changed their opinions of him and exclaimed that the Nine-Tails liked him better. Inside his mind, Naruto fought his dark self, but found that they were evenly matched. Breaking out of meditation, Naruto questioned Motoi about B's history in order to learn how to conquer his inner darkness.
+
+Cho-odama
+Naruto fights the Nine-Tails.
+
+Naruto reminisced about how B and Gaara changed everyone's opinions about them and began to doubt if the Konoha villagers sincerely trusted him. After witnessing B save Motoi from a giant squid and resume their friendship, an inspired Naruto returned to the Falls of Truth and confronted Dark Naruto again. With Naruto now having faith in himself, Dark Naruto began to weaken as he asked what his reason for existing was. Naruto answered by hugging him, accepted Dark Naruto as a part of him while thanking him for pushing him to become a better person. Dark Naruto finally relented and faded. B led Naruto and Yamato to a special room in the secret temple behind the waterfall, where Naruto was prepared to fight the Nine-Tails for its chakra. Within his subconscious, Naruto unlocked the seal and engaged the Nine-Tails in battle using Sage Mode. Though he appeared to have the upper hand and drain the Nine-Tails' chakra, the fox instantly planted its own hatred within its absorbed chakra, consuming Naruto.
+
+Naruto and Kushina meet
+Naruto meets his mother.
+
+Just before Naruto was completely consumed, the spirit of his mother, Kushina Uzumaki, appeared. Naruto believed that Kushina was the Nine-Tails in disguise, earning a hit on the head and an immediate apology from her, who hoped that he did not inherit her short-temper. Realising Kushina was his mother, he tearfully hugged her and the love-filled reunion purged the Nine-Tails' hatred within its drained chakra. With renewed confidence from hearing the story of his parents, Naruto battled the Nine-Tails once more. With his mother's assistance, Naruto successfully weakens the fox long enough to separate it from its chakra. Attaining the Nine-Tails Chakra Mode, Naruto imprisons the emaciated and infuriated Nine-Tails within a new, stronger seal, apologising to it as it faded into darkness. Afterwards, Naruto learned from Kushina about his heritage, the truth behind the Nine-Tails' attack on Konoha, and how his parents gave their lives to protect him. Naruto told his mother that he could finally understand what a parent's love felt like and that he didn't blame them for what happened, instead feeling glad to be their son. As she fades away, Kushina tearfully hugged Naruto, thanking him for letting her and Minato be his parents.
+
+Naruto crashes into Kisame
+Naruto attacks Kisame.
+
+In the real world, Naruto demonstrated his Nine-Tails Chakra Mode to B and Yamato before sensing Kisame Hoshigaki of Akatsuki hidden inside his Samehada via his negative emotions. When Kisame attempted to escape, Naruto used his blinding speed to quickly smash Kisame into the wall, though his foot gets stuck. Yamato helps Naruto out while B pursues Kisame and they regroup to see Kisame's defeat by Guy. Kisame is restrained for interrogation, though he breaks free of his confinements through sheer will and summons sharks inside a water prison to eat him alive. Shocked by Kisame's suicide, Naruto observes that even those in Akatsuki fight for their comrades. They examine the intel that Kisame was trying to send, which turns out to be booby-trapped: they are each caught in a water prison and are trapped alongside a shark. Another shark, meanwhile, is able to escape with Kisame's intel. After they escape, Naruto is tasked with evacuating the giant animals into the Island Turtle's shell and logging the island's ecology as part of his "official" S-rank mission. He remains unaware that it is a ploy to keep him away from the war.
+
+Fourth Shinobi World War: Confrontation
+Main article: Fourth Shinobi World War: Confrontation
+Naruto senses the war
+Naruto senses the war with Sage Mode.
+
+Naruto returned to the Falls of Truth with B to start practising his Nine-Tails Chakra Mode, specifically learning how to use Tailed Beast Balls. Since Tailed Beast Balls couldn't be made without the Nine-Tails' cooperation, Naruto tried to create the Tailed Beast Rasengan as a workaround. While struggling to balance the jutsu's composition, he sensed a distant source of the Nine-Tails' chakra. Naruto left the Falls of Truth to investigate and was met by a contingent of Konoha-nin, amongst them Iruka Umino. Iruka tried to convince him to go back to his training, but Naruto bypassed them and, from entering Sage Mode, sensed the ongoing Fourth Shinobi World War. Naruto became angry that they would try to keep the war a secret from him and that they wouldn't let him help. Iruka apologised, yet still made an effort to restrain him. Naruto escaped and found a Self-Repairing Barrier, preventing him from leaving by himself. B, at Iruka's request, decided to join him, and together they broke through the barrier.
+
+Naruto in Kyubi's eye
+Naruto states his resolve to the Nine-Tails.
+
+Shortly after, the Nine-Tails pulled Naruto into his subconscious, berating him for squandering its chakra and calling him naive for thinking he could stop the war by himself. When the Nine-Tails failed to once again tempt Naruto with power, the fox went off to claim that his attempt to put an end to hatred was futile, using his history with Sasuke as proof. Naruto responded by pinning the fox down, refuting that it was the one who was being naive and confidently exclaiming he would find a way to deal with Sasuke and end the war. Before he leaves, Naruto also promises to resolve the Nine-Tails' own hatred someday, unnerving the fox.
+
+Naruto bypasses A
+Naruto outpaces A.
+
+On their way to the battlefield, Naruto and B were met by the Fourth Raikage and Tsunade, both intent on stopping the jinchūriki. B tried to convince the Raikage to let them go, and when that failed, Naruto tried to get around them, but the Raikage's Lightning Release Chakra Mode was too fast for that. The Raikage became increasingly aggressive in his determination to stop Naruto and B from joining the war effort, going so far as to threaten to kill Naruto if it would keep Akatsuki from capturing the Nine-Tails. First B and then Tsunade joined Naruto in arguing to allow them to fight, which the Raikage relented to once Naruto dodges his maximum speed. On Tsunade's orders, Shikaku Nara contacted Naruto and informed him about Akatsuki's White Zetsu Army and the accompanying Impure World Reincarnations. Naruto and B soon afterwards encountered a squad of seeming Allied forces, but with his Nine-Tails Chakra Mode's ability, it allowed him to detect them as disguised Zetsu. He quickly defeated them and sent shadow clones to various other battlefields to lend assistance.
+
+Naruto kills dog
+Naruto fights Nagato.
+
+Naruto and B soon ran into the reincarnated Itachi Uchiha and Nagato. They greeted Naruto and briefly caught up on what had happened since their deaths, but were quickly forced to attack by their summoner, Kabuto Yakushi. Nagato advised Naruto and B on how to counter his jutsu while Itachi, between his own attacks, recalled the crow he planted in Naruto during their last meeting. Itachi activated the Kotoamatsukami of the crow's Mangekyō Sharingan to release himself from Kabuto's influence. Itachi joined Naruto and B in fighting Nagato, first by neutralising the Rinnegan Summoning and then saving them from being killed by Nagato. Nagato, his personality now suppressed, tried capturing them with Chibaku Tensei, which the three combined efforts to destroy. While Nagato was distracted by their attack, Itachi sealed him with Susanoo. His personality restored, Nagato used his last moments to apologise and put his faith in Naruto. Afterwards, Itachi destroyed the crow, its Kotoamatsukami too valuable to let fall into the wrong hands. He left to find Kabuto so that he could end the Impure World Reincarnation, but not before telling Naruto to let his friends support him and leaving Sasuke's reform to him.
+
+Mujun
+Naruto defeats the Third Raikage.
+
+A shadow clone arrived at the site of the Fourth Division's battle with various reincarnated Kage. Naruto was able to land a sneak attack on Mū, allowing the Third Tsuchikage to seal him before he could say anything. The Tsuchikage went to help Gaara fight the Second Mizukage, leaving Naruto to fight the Third Raikage along with the other members of the Fourth Division. Like the Fourth Raikage, the Third was very fast, easily dodging most attacks. The few attacks that did land had almost no effect, his body's natural defence was too high, and the Raikage's offences allowed him to break through every attempt to contain him. When Naruto noticed that the Raikage had a scar from his fight with the Eight-Tails years earlier, he contacted it via B to ask how the Raikage received the scar. Upon hearing the Eight-Tails' answer, Naruto surmises the scar was self-inflicted, confirming it as he manipulates the Third into piercing his own body. The Third is sealed and Naruto regroups with the Tsuchikage and Gaara, who already defeated the Second Mizukage.
+
+As Naruto and B continued onwards, Naruto's shadow clones started arriving at various locations. In the anime, shadow clones were able to: save the members of the Sasuke Recovery Team from the reincarnated Sound Four's Space–Time Technique Formula: Underworld Turnover;[149] update Tatewaki about the fates of the children he was responsible for during life, granting him peace and allowing him to return to the afterlife;[150] run in to Yota, a childhood friend, and giving Yota a chance to play with him again before releasing himself from the Impure World Reincarnation;[151][152][153] assist Omoi in saving the Thundercloud Unit.[154]
+
+Fourth Shinobi World War: Climax
+Main article: Fourth Shinobi World War: Climax
+Shadow clones arrived at all the remaining battlefields, securing Impure World Reincarnations, weeding out the Zetsu that had infiltrated the Alliance's ranks, and defeating any other remaining Zetsu. Victory seemed near when the Sensor Division detected a new threat near the Fourth Division: Mu, who split himself before his sealing, and the reincarnated Madara Uchiha. Shocked by this revelation, they all wondered who the masked man, Tobi, really was. Madara gave them little time to discuss it and attacked them immediately. He cut swaths through the Fourth Division's ranks and used his Rinnegan to avoid the clone's, the Tsuchikage's, and Gaara's counterattack. Wishing to eliminate them all at once, Madara dropped a meteorite on them.
+
+Kurama helps Naruto
+Naruto receives help from the Nine-Tails.
+
+While the survivors regroup, Madara tried to summon the Nine-Tails. Although it failed, the fox sensed the attempt and offered some chakra to help fight Madara, preferring Naruto over the Uchiha. The shadow clone used the Nine-Tails' chakra to counter Madara's Nativity of a World of Trees with Big Ball Spiralling Serial Zone Spheres, though the extended fighting left the clone exhausted afterwards. Madara moved in to capture it, but was parried by the arrival of Tsunade, the Fourth Raikage, and the Fifth Mizukage. The Five Kage vowed to deal with Madara themselves and asked that Naruto should instead focus on defeating Tobi. The clone dispersed just as the real Naruto converged on Tobi. Naruto and B clashed with Tobi's reincarnated jinchūriki, styled like a Six Paths of Pain. During the fighting, Naruto referenced another Madara and asked who Tobi really was. Realising his lie was exposed, Tobi refused to accept any particular identity, believing it to be irrelevant. Naruto was not satisfied with this answer and vowed to break Tobi's mask.
+
+Jinchūriki clashes
+Naruto and B clash with the reincarnated jinchūriki.
+
+B entered Tailed Beast Mode to clear the surrounding forest that was giving him and Naruto a disadvantage against the reincarnated jinchūriki. He then tried to seal the jinchūriki, but Tobi had them enter Version 2 forms to escape at the last second. The increased strength of the jinchūriki caused difficulties for Naruto and B. Tobi, taking advantage of the situation, nearly captured Naruto, but was blocked by the arrival of Kakashi and Guy. Their arrival balanced out the two sides, so Tobi had the Four-Tails and the Six-Tails enter Tailed Beast Modes as well. The Four-Tails captured Naruto in its mouth, allowing it to communicate with him. The Four-Tails, introducing itself with the name Son Gokū, was angered to be controlled by Tobi, but it doubted Naruto would be any better since humans had always sought to control it and its fellow tailed beasts. Naruto insisted he was different and Son Gokū, touched by his desire to help it, told him how to release it from Tobi's control. Naruto managed to break out of its mouth, locate the black receiver, and remove it.
+
+Kurama teams up
+Naruto and Kurama unite.
+
+Son Gokū thanked Naruto for his help, but explained that it couldn't actually be saved, as it was still bound to the Demonic Statue of the Outer Path. Before it was pulled back into the Demonic Statue, Son Gokū gave some of its chakra to Naruto and wished him luck. Tobi, having lost the use of one tailed beast, forced the others to enter Tailed Beast Modes so that the battle could be brought to an end. The Nine-Tails remarked that Naruto couldn't possibly win without its help. Naruto stated that he was not up for taking its chakra by force at the moment and that he would figure something out. However, Naruto's earlier determination to help Son Gokū moved the Nine-Tails, reminding it of the many selfless things Naruto had done during his life and the perseverance he always displayed. The Nine-Tails no longer wanted to oppose Naruto and instead offered to join him as a partner, asking only that Naruto call it by name: Kurama.
+
+Seishin Sekai
+Naruto meets the tailed beasts.
+
+Naruto entered his own Tailed Beast Mode and went to save Kakashi and Guy, deflecting the other five beasts' Tailed Beast Balls. The Kurama avatar fought the beasts in close combat, forcing them to combine their Tailed Beast Balls into one against it. Kurama countered theirs with a single one of its own Tailed Beast Balls and Naruto then used the avatar's tails to grab and remove the beasts' black receivers. From the contact, Naruto was able to interface with the other beasts, who introduced themselves and, like Son Gokū, gave him portions of their chakra. Tobi recalled the beasts back into the Demonic Statue and, though irritated, remained confident in his eventual victory as he faced off with Naruto, B, Kakashi, and Guy. By the time night fell, however, Tobi was still unable to defeat them. A light eventually descended on the reincarnated jinchūriki that B had kept restrained, returning them to the afterlife and signalling that Itachi had finally defeated Kabuto.
+
+Naruto destroys the mask of Tobi
+Naruto destroys Tobi's mask.
+
+With his options running out, Tobi deposited the Benihisago and the Kohaku no Jōhei (which contained portions of Kurama's chakra) into the Demonic Statue which, combined with a fragment of the Eight-Tails, Gyūki's, chakra he acquired previously, was enough to start the revival of the Ten-Tails. Naruto, B, Kakashi, and Guy started focusing on destroying it, but were constantly stopped by Tobi and his peculiar teleportation and intangibility abilities. From the fighting, however, Kakashi noticed that Tobi's abilities were seemingly linked to his own Kamui. To take advantage of this, Kakashi had one of Naruto's shadow clones attack Tobi and, just as the clone was about to be destroyed by one of Tobi's attacks, Kakashi used Kamui on it without Tobi noticing. Naruto then attacked with a Tailed Beast Ball, which Tobi escaped by retreating to Kamui's dimension. He found the clone waiting for him there and it destroyed his mask with a Rasengan.
+
+When they saw his face, Guy and Kakashi recognised Tobi as their childhood friend, Obito Uchiha, whom they'd long thought dead. Obito declined to explain his actions to them and instead attacked, which attracted Madara, who escaped the release of the Impure World Reincarnation, to their location. Seeing Madara, Naruto asked what happened to the Kage, to which the elder Uchiha replied that they were in bad condition when he left them. From that and the conversation he overheard between Madara and Obito, particularly their manipulation of Nagato, Naruto attacked in a rage. Madara reflected him and then tried to capture him and B so that the Ten-Tails could be revived in its complete form. Naruto split his attention, he and B fighting Madara's wood dragon with their Tailed Beast Modes and one of his shadow clones trying to help Kakashi get over the revelation that Obito was alive.
+
+Allied Forces Jutsu
+Naruto with the Allied Shinobi Forces.
+
+Obito tried to convince Naruto of the futility of resistance. Naruto insisted that protecting his comrades was always worthwhile, no matter how hopeless things may seem. His words brought Kakashi out of his slump, enabling him to start fighting Obito on his own, and energised Guy, who created an opening for Naruto and B to attack the Demonic Statue with a combined Tailed Beast Ball. The attack came too late, however, and the Ten-Tails was revived. Naruto, B, Kakashi, and Guy regrouped and coordinated an attack, but the Ten-Tails was too powerful and Madara and Obito, once they linked themselves to it, were able to deploy its powers effectively. Just before they could kill Naruto and the others, the combined remaining Allied Shinobi Forces arrived to help. Shikaku Nara, communicating to all of them from the Alliance's headquarters, staged an offensive to restrain the Ten-Tails. Although it failed, it was effective enough that Madara and Obito had the Ten-Tails destroy the distant headquarters, killing Shikaku and everyone else stationed there.
+
+The Allies made individual attacks against the Ten-Tails, but none had any effect. At the same time, the Ten-Tails started raining wooden skewers all over the battlefield, killing many. When one was about to hit Naruto, Hinata shielded him with her body and Neji shielded her with his own. Dying, Neji collapsed on Naruto's shoulder, asking him to be more careful in the future since many lives, Hinata's particularly, now depend on his. With his last breath, he thanked Naruto for calling him a genius all those years ago. Naruto was deeply distraught by Neji's death, which Obito tried to use as an example of the needless death that resistance caused and that could be solved in the new world he wanted to create. Hinata brought Naruto back to his senses by reminding him of all the people who had given their lives to protect him and whose memories he would be insulting if he had given up now. As Naruto thanked her, he took her hand and coated her with some of Kurama's chakra.
+
+Naruto powered the Alliance up
+Naruto gives chakra to the Allied Shinobi Forces.
+
+Naruto shared Kurama's chakra throughout the Allied Forces, increasing their strength and protecting them from harm. They all manoeuvred into a formation that Shikaku was able to communicate to them before he died and, taking the form of a bird in memory of Neji, successfully removed the Ten-Tails from Obito and Madara's control. Forced to fend for themselves, Obito sought out Naruto, criticising him for wasting his energy protecting others. Naruto replied that protecting them actually gave him strength, motivating everyone within earshot. They then sensed the Ten-Tails was about to attack, which Kakashi tried to stop with Kamui. Obito intercepted him and they teleported away, leaving the others to endure the Ten-Tails' Tenpenchii. Kurama's chakra protected everyone, but it faded in the aftermath; Naruto was left quite beaten up, requiring Sakura to heal him. When the Ten-Tails attacked with another Tailed Beast Ball, the Allies mustered what little defence they could. Before it could reach them, however, the Tailed Beast Ball was suddenly teleported away and Naruto's reincarnated father, Minato Namikaze, appeared at Naruto's side.
+
+Team 7 Reunited
+Team 7 reunites.
+
+The First, Second, and Third Hokage arrived soon afterward and, along with Minato, erected a barrier around the Ten-Tails to confine it. Sasuke arrived shortly too, at whose request the previous Hokage were reincarnated by Orochimaru and who now opposed Obito and Madara. Their fellow Rookie Nine had set aside their differences with Sasuke for the time being and joined forces in launching an attack against the Ten-Tails' cruft. On Sai's advice, Naruto, Sasuke, and Sakura all summoned their signature animals (Naruto calling on Gamakichi) in order to focus directly on the Ten-Tails itself. Naruto and Sasuke successfully damaged the Ten-Tails' arm with a combined Scorch Release: Halo Hurricane Jet Black Arrow Style Zero, but it merely removed the arm to prevent the flames of Sasuke's Amaterasu from spreading.
+
+Before they could attack again, Obito returned, landing on top of the Ten-Tails head and seemingly about to use the Samsara of Heavenly Life Technique to restore Madara to life. While everyone focused on stopping Obito, Naruto couldn't help but notice that the hand seals he was using were different from what Nagato used. Minato tried to cut Obito down, but discovered that it was too late as he sealed the Ten-Tails into his body, becoming its jinchūriki.
+
+Birth of the Ten-Tails' Jinchūriki
+Main article: Birth of the Ten-Tails' Jinchūriki
+Shuriken hits Obito
+Naruto and Sasuke attack Obito.
+
+Obito used his new power to destroy the barrier, forcing the Hokage to put the energy they were using toward the barrier into the fight instead. Because they had immortal bodies, they launched the first attack so that the others could learn what they could about Obito's new abilities, but they were quickly defeated. Naruto and Sasuke engaged him as well, but were nearly killed, saved only by Naruto using his chakra arms to link to Minato so he could teleport them to safety. Just as before, Naruto and Sasuke combined their attacks, having Minato and the Second Hokage coordinate teleports so that the attack would connect. Obito's Truth-Seeking Balls dissipated much of the attack and the damage that he did incur was quickly regenerated.
+
+Naruto attacks Obito anime
+Naruto attacks Obito after discovering his weakness.
+
+From the development and some of the previous exchanges, Minato concluded that Obito was able to neutralise ninjutsu. Gamakichi, wanting to make some final contribution to the fight before he was forced to return to Mount Myōboku, attacked with his Starch Syrup Gun. Minato took this opportunity to try and reason with Obito, reminding him of his former dream to become Hokage. Obito berated the title and those who had held it, as he had surpassed them. Naruto was insulted not only because that was a slight against his father, but also because he hadn't abandoned his dream of being Hokage like Obito had. The Second Hokage teleported him to Obito and he attacked with a Rasengan, which successfully damaged Obito; Naruto noticed that Gamakichi's attack wasn't neutralised and realised Obito was vulnerable to senjutsu.
+
+Minato and Naruto bump fists
+Kurama and its jinchūriki join forces.
+
+With a weakness discovered, Obito trapped the Alliance in a barrier and began charging multiple Tailed Beast Balls that he would use to wipe out everyone within its confines. Minato noted that he wouldn't be able to teleport them all away in time, so Naruto came up with a different approach: he linked his chakra with Minato and remotely restored the Alliance's chakra cloaks, networking everyone in with Minato's Flying Thunder God Technique, allowing him to teleport everyone out of the barrier. Minato did so and was afterwards very proud of his son, saying he wished they had more time to talk. Naruto replied that it was not necessary since he already met his mother and that she explained everything. Naruto and Minato each entered Tailed Beast Modes, with Naruto merging his with Sage Mode in order to imbue their shared Rasengan with senjutsu. The Second teleported them to Obito and they attacked, but he blocked it with his Truth-Seeking Balls.
+
+Obito vs Titans
+A senjutsu-enhanced Naruto and Sasuke attack Obito.
+
+To move ahead with his plans, Obito created a replica of the God Tree, the first step in performing the Infinite Tsukuyomi. The tree started absorbing chakra from those nearby until they die, a fate that Naruto nearly succumbed to until he was saved by the Third Hokage. Obito pointed to the growing number of casualties as further evidence that Naruto should stop resisting, an argument that Naruto was increasingly having trouble ignoring. Sasuke, unmoved by Obito's words, used Susanoo to hack through the tree and then mocked Naruto for giving up. Naruto was reminded of his desire to not lose Sasuke or anyone else for that matter and, reinvigorated, joined Sasuke in the offensive. Although their senjutsu-enhanced Tailed Beast Mode and Susanoo could compete with Obito, they were individually unable to defeat him. Obito continued trying to convince Naruto to stop, but he ignored him.
+
+Obito is taken down
+Naruto and Sasuke slash through Obito.
+
+Sasuke then coated his Susanoo around Naruto's Tailed Beast Mode, granting the Kurama-avatar a sword and armour. Sensing that it was the final exchange, Obito created a sword and shield of his own out of Truth-Seeking Balls. Naruto created a Rasengan in each of the Kurama-avatar's tails, which his friends from Konoha guide in a coordinated assault to Obito's shield, destroying it. As soon as Naruto and Sasuke sliced through Obito with their sword, the tailed beasts then began to emerge from the Uchiha's body, giving Naruto and the combined Allied Shinobi Forces the opportunity to pull them out. The tug-of-war for the tailed beasts linked Naruto's consciousness with Obito's. Naruto reminded Obito of his earlier claim that he was nobody and set out to prove to him that he was Obito Uchiha, specifically the Obito Uchiha that Kakashi used to know. Naruto pointed out their similarities, how both were orphans and that, because of that, they wanted to be Hokage. Obito agreed that they were similar, but that was the reason why he has been trying so hard to convince Naruto that he was right, and insisted that the world he wanted to create was a better one because his vision of the future was clear, whereas the future of the current world was ambiguous. Naruto argued that was the point and that uncertainty, when faced with comrades, was worthwhile, and offered Obito his hand so that they might see what happened together.
+
+Kurama extracted from Naruto
+Kurama is extracted from Naruto by Madara.
+
+The Allies successfully removed the tailed beasts from Obito and he fell to the ground, defeated. Minato and Kakashi insisted that Obito be left to them while Naruto and the rest of the Alliance should focus on Madara. They did so, joining forces with the First Hokage against him, but right before he could seal him, Madara put one final fail-safe into effect: he had Black Zetsu force Obito to revive him. Madara quickly neutralised the First, fended off Naruto, Sasuke, and Sai, and then went after the freed tailed beasts. Naruto entered Tailed Beast Mode and assisted them with fighting him off. They were initially successful, but when Madara reacquired one of his Rinnegan, he easily defeated them with Limbo: Border Jail, sealing them all back into the Demonic Statue, including B's Gyūki and Naruto's Kurama.
+
+Obito Saving Naruto
+Obito transfers his tailed beasts' chakra into Naruto.
+
+The removal of Kurama from his body caused Naruto to pass out and placed his life in immediate danger. His Uzumaki heritage prevented him from dying instantly, but he required constant medical attention from Sakura in order to keep him alive. On the advice of Kurama right before it was extracted, Gaara took Naruto to Minato so that Minato's portion of Kurama's chakra could be sealed into him, saving him. Kakashi sent Naruto and Sakura to Kamui's dimension so that she could continue performing life support without interruption. Obito soon arrived to help her, having overcome both Black Zetsu and Madara in order to acquire Minato's half of Kurama and give it to Naruto, as his form of penance.
+
+Naruto & Sasuke obtain Rikudo Power
+Naruto and Sasuke accept Hagoromo's power.
+
+While on the border of life and death, Naruto was met by the Sage of Six Paths, Hagoromo Ōtsutsuki. He explained his past conflicts with his mother, Kaguya Ōtsutsuki, and the conflicts that emerged between his sons, Asura and Indra. His sons' conflict had continued through the centuries, with their chakra reincarnated every generation in new individuals to fight anew; Naruto was the current reincarnation of Asura, while Sasuke was the reincarnation of Indra. Naruto was not greatly surprised, having sensed something like that when he met Sasuke during the Five Kage Summit. Because of Madara's aims for the world, Hagoromo asked that he and Sasuke join forces to stop him, a task he was only encouraged by from the tailed beasts' positive words concerning Naruto. He gave Naruto the Six Paths Yang Power, half his chakra and Six Paths Sage Mode to help him in this goal.
+
+Madara Attacked
+Naruto and Sasuke strike Madara.
+
+When Naruto woke up, he had Obito send him back to the real world. There, he stopped Madara from killing Might Guy and used Hagoromo's power to stabilise Guy's life force from using the Eight Gates Released Formation. Surprised by Naruto's sudden increase in power, Madara was hit by Naruto's Sage Art: Lava Release Rasenshuriken, which was fueled by Son Gokū's chakra and instantly cut down the giant tree Obito created earlier. When Sasuke arrived, Naruto entered Six Paths Sage Mode and they started overwhelming Madara. Realising his window was closing, Madara went after Kakashi and took his Mangekyō Sharingan, using it to follow Obito. Sakura appeared shortly afterward, sent by Obito so Madara wouldn't kill her. She could do nothing about Kakashi's eye, so Naruto used Hagoromo's power to restore the one he lost years ago.
+
+Clones vs Shadows
+Naruto's clones facing Madara's clones.
+
+Madara soon returned, now having both his Rinnegan and Black Zetsu in control of Obito's body. Naruto and Sasuke immediately resumed their attack, but Madara had an easier time with them. He rose into the sky, raining Chibaku Tensei on them to keep them busy while he projected the Infinite Tsukuyomi on the world. While Naruto destroyed the remaining satellite-like constructs, Sasuke shielded him, Sakura, and Kakashi with Susanoo from the Infinite Tsukuyomi's gaze. He let them out once the illusion was finished casting and they emerged to find themselves alone, with the rest of the world being wrapped into Madara's God: Nativity of a World of Trees. As Madara confronted them and started explaining how he had saved the world, he was stabbed in the back by Black Zetsu. Black Zetsu then transferred to Madara's body from Obito's and forced him to absorb the world's chakra, converting him into a woman that Naruto and Sasuke recognised as Kaguya Ōtsutsuki.
+
+Kaguya Ōtsutsuki Strikes
+Main article: Kaguya Ōtsutsuki Strikes
+Kaguya detected that Naruto and Sasuke as the reincarnations of Asura and Indra, and also that her son Hagoromo had given them the power to defeat her. Not wanting to further the damage the world that their fighting would cause, she shifted them all to one of her dimensions, placing them above a sea of lava. Sasuke summoned his hawk Garuda to save himself and Naruto, but ignored Naruto's pleas to save Sakura, Kakashi, and Obito too since only he and Naruto were vital to the fight. Kakashi was able to briefly stop their fall, but the heat burned the scroll he used to save them and it was only Naruto's sudden discovery that he was able to levitate that saved them from the lava. He left a shadow clone to hold onto them and engaged Kaguya, creating an opening for Sasuke to attack.
+
+Kaguya Freezes Boys
+Kaguya thwarts Naruto and Sasuke's sealing attempt.
+
+Sasuke's attack failed and Naruto must save him from the lava. With their attacks ineffective and the environment such a hazard, Naruto and Sasuke discussed what to do. Kaguya appeared behind them and paralysed them, binding them with Black Zetsu while she started absorbing their chakra. Black Zetsu took the opportunity to expand on the history earlier given by Hagoromo, painting Kaguya as the victim of her sons, Hagoromo and Hamura. Black Zetsu had for centuries been manipulating others toward the outcome of reviving her, and only then had it finally succeeded. It encouraged them to bask in the embrace of their oblivion, but Naruto refused, breaking himself and Sasuke free. Needing to take drastic action, Naruto used his "ultimate" jutsu: Sexy: Reverse Harem Technique. Kaguya was so distracted that she was nearly sealed, but she recomposed herself in time to shift dimensions again, freezing Naruto and Sasuke in place.
+
+Naruto Region Combo
+Naruto overwhelms Kaguya with shadow clones.
+
+Because Naruto and Sasuke were only a threat to her when together, Kaguya sent Sasuke to a different dimension while she focused on Naruto. While Kaguya manipulated the ice dimension against him, his shadow clone explained to Kakashi, Sakura, and the now-awake Obito that his and Sasuke's powers were both necessary to defeat her. Obito offered to use his Kamui to try and explore Kaguya's dimensions to find Sasuke. To give Obito an opening, Naruto used Naruto Region Combo to overwhelm Kaguya, forcing her to retreat to another dimension to get her bearings. When she did so, Obito infiltrated the dimension Kaguya went to with Sakura and the shadow clone. The shadow clone faced her so that she wouldn't notice them while they look for Sasuke. Kaguya returned to the ice dimension and resumed her fight with the army of Naruto's clones. He kept her preoccupied until Obito returned with Sasuke.
+
+Naruto Attacks Kaguya
+Naruto separates Black Zetsu from Kaguya.
+
+Increasingly frustrated, Kaguya shifted them to another dimension with powerful gravity to immobilise Naruto and Sasuke while she attacked with her All-Killing Ash Bones. Kakashi and Obito used themselves to shield the attack, with Obito then using Kamui to protect Kakashi, leaving Obito unable to defend himself. Naruto tried to heal the damage to his body, but even Hagoromo's power couldn't save him. While Sasuke fought Kaguya, Obito thanked Naruto for reminding him of who he was and made him promise to become Hokage for both their sakes. Naruto agreed and Obito's body crumbled. Black Zetsu ridiculed Obito for living an insignificant life and dying an insignificant death. Enraged, Naruto severed Kaguya's arm, in the sleeve of which Black Zetsu had been hiding, and then pinned it to the ground with his Truth-Seeking Balls.
+
+Kaguya's Defeat
+Team 7 defeats Kaguya.
+
+Naruto and his shadow clones attacked Kaguya with Sage Art: Super Tailed Beast Rasenshuriken. On impact, the tailed beasts' chakra within her began reacting and Kaguya started losing control of her form. She was able to reconfigure herself and prepared an Expansive Truth-Seeking Ball to destroy them. Kakashi interfered, using Susanoo (a last gift from Obito) to make an opening for Naruto and Sasuke. She tried to escape, but Sakura punched her to keep her in place, allowing Naruto and Sasuke to trigger Six Paths — Chibaku Tensei. The tailed beasts were removed from her, Madara was spat out, and she was entombed in her own dimension. Not wanting Black Zetsu to scheme for her release again, Naruto made a point to trap it with her but not before telling it that a spoiled brat like it has no right to compare itself with the men and women who truly shaped shinobi history.
+
+Minato leaving Naruto
+Minato wishes happy birthday to Naruto.
+
+Team 7 wondered how they would return to their world. Sensing their need, Hagoromo combined the efforts of the dead Kage to summon them, the tailed beasts, and Madara back. Hagoromo thanked them for saving the world, as did the tailed beasts for saving them. Naruto happily greeted to his original Kurama, asking if it missed him, to which the flustered fox denied. After Madara died from his ordeal, Naruto met with Minato who, as day broke, wished him a happy seventeenth birthday. As Hagoromo returned Minato's and the souls of the other dead Kage to the Pure Land, Minato voiced his pride in Naruto and promised to tell Kushina everything about him. The other Kage also gave words of parting, which Naruto tearfully accepted.
+
+With all threats gone, Hagoromo explained that the Infinite Tsukuyomi could be released if Naruto and Sasuke combine their chakra. Sasuke agreed to this, but first he wanted to kill the Kage and destroy the tailed beasts, believing both were inhibitive to world peace. When he was unwilling to back down from his threat, the tailed beasts moved in to stop Sasuke, but he captured each in their own Chibaku Tensei. Hagoromo recognised that as a continuation of Indra's feud with Asura, but lacked the time and power to do anything about it. Sakura tried to reason with Sasuke, but he knocked her out and left. Naruto followed after him, promising to Hagoromo that he would bring him around and finally end the centuries-long feud.
+
+Naruto vs
+Naruto and Sasuke begin their rematch at the Valley of the End.
+
+Naruto and Sasuke ended up at the Valley of the End, where they fought years ago. Sasuke stated his willingness to bear the world's burdens by himself and live independently of the past, neither of which Naruto believed were possible, or at least wise. He tells Sasuke it's impossible to do everything alone like he plans to, pointing to the missteps Itachi made and their own successful teamwork against Kaguya. Sasuke replies that he only wants to remake a better world, one where he can, like Itachi before, be solely responsible for the difficult decisions that must be made so that nobody else needs to; this is what he believes a true "Hokage" to be. Naruto insists he will be Hokage, not Sasuke, because Sasuke is still going against what Itachi wanted for him and they start fighting.
+
+Kurama vs Susanoo
+Naruto and Sasuke's attacks collide.
+
+After a brief exchange of blows reminiscent of their fight years ago, Naruto and Sasuke started trading punches with their Tailed Beast Mode and Susanoo respectively. Sasuke chastised Naruto for not attacking with an intent to kill, but Naruto, like last time, was unwilling to do so, not wishing for either of them to go without the other. Naruto then clashed his Tailed Beast Ball with Sasuke's Susanoo-supported Chidori, producing a large explosion that does noticeable but not debilitating damage to their respective avatars. Each therefore powered up the avatars, Sasuke by channelling the captured tailed beasts into his Susanoo and Naruto by merging his avatar with the avatars of two shadow clones. The two met attacks once again, creating a giant explosion that stripped away their avatars and left them with too little chakra to use practically. They instead resorted to taijutsu, kicking and punching each other into the night.
+
+Sasuke Vs Naruto
+Naruto and Sasuke's final clash.
+
+As the two battled near exhaustion, Kurama mustered enough chakra for Naruto to make one last attack, but Sasuke absorbed it. Having expected this, Naruto delivered a solid punch, finally irritating Sasuke over the endless repetition of their fight. Kurama gave the last of its chakra to Naruto, who used it to make a Rasengan to counter Sasuke's Chidori. Both woke up later to find that much of the Valley of the End had been destroyed, that they had each lost an arm, and that neither could move. Sasuke reflected that Naruto had been a constant obstacle to his goals, but that he was also the only person who never given up on him. Naruto's usual response that they were friends didn't convince Sasuke since it obviously went beyond, so Naruto elaborated that he experienced pain if he didn't have Sasuke. Sasuke was awed, knowing full well that Naruto had experienced various misfortunes in his life, smiled through all of them, yet would suffer without Sasuke.
+
+Naruto & Sasuke Wounded
+Naruto and Sasuke reconnect.
+
+When they woke up the next day, Sasuke admitted defeat for the first time in his life, as he came to accept that Naruto was just as vital to him as he was to Naruto. Kakashi and Sakura eventually tracked them down and Sakura healed them, though she couldn't do anything about their missing arms. Once they were able to walk, they returned to where the Allied Shinobi Forces were all trapped still, dispelled the Infinite Tsukuyomi according to Hagoromo's instructions, and Sasuke released the tailed beasts. With the war over, Naruto returns to the village, where he attends a mass funeral for the participants of the war. In the anime, while recovering from his injuries, Gaara and A approach Naruto and thank him for his effort during the war. Shikamaru later brings Naruto to the Academy to meet with Iruka and Kakashi, who is considering on promoting Naruto as a jōnin. However, because he never got to retake the Chūnin Exams, Naruto has to complete two years worth of studies, much to his dismay. However, Naruto is cheered up as Iruka offers to help him.[155]
+
+Hinata:
+----------------
+Hinata is a kunoichi of Konohagakure. Formerly the heiress of the Hyūga clan, she lost the position upon being deemed unsuited for the responsibilities of leading the clan. Nonetheless, Hinata persevered and from her observation of Naruto Uzumaki especially, Hinata found an example to follow. Through her membership with Team 8, she sought to become strong enough to change herself, if even a little at a time. 
+As a child, Hinata was soft-spoken and polite, always addressing people with proper honourifics. She is kind, always thinking of others more than for herself, caring for their feelings and well-being. She doesn't like being confrontational for any reason. This led to her being meek or timid to others, as her overwhelming kindness can render her unable to respond or act for fear of offending somebody.[14] Her father's constant push to alter this personality trait when she was younger only made it worse, eroding Hinata's self-confidence and making her even more bashful because she gained so little faith in herself and opinions.[3] Despite being disinherited, Hinata loves her family very much,
+Hinata's outlook sees a shift after her appointment to Team 8. Whereas her father and much of the Hyūga clan had decided she was a lost cause who would never amount to anything,[15] her team considers her a valuable member with her special strong points. Originally, she would over-rely on her teammates, looking to them in times of difficulty to save her from situations that make her uncomfortable. It is for her teammates - among other reasons - that Hinata starts seeking to change herself, as she wishes to help the team rather than burden it.[16]
+
+Hinata's dream
+Hinata dreams of being with Naruto.
+
+Hinata's primary motivation is Naruto Uzumaki, with whom she has been fascinated since meeting him. He initially gained her attention because of his kindness to her and outspoken nature, and then kept her attention because of similarities that Hinata perceived to herself: Naruto had a painful childhood without the love of parents, a fate worse than the mere difficulty she had with her own father, and he craves the attention and acknowledgement of anybody, just as Hinata wants to please her father.[17] But whereas Hinata lost faith in herself, Naruto always believed he can accomplish any given task if he tries hard enough. She admires him deeply for this courage and over time fell deeply in love with him, which manifests as increased shyness and speechlessness when around him, something that became apparent to everyone, apart from ironically Naruto himself. Hinata strives to prove herself to others, but mostly to gain the attention and worthiness of Naruto. She emulates him to this purpose, adopting his nindō of never giving up to improve herself. To that end, she stops running from confrontation, instead doing all that she can to face it, even in the face of failure to keep trying, and willing to risk her life for her loved ones and village.[18] By the end of Part I, her clan's faith in her is restored and strengthened.[19]
+
+Scary Hinata
+Hinata's intimidating demeanour.
+
+Throughout the years, Naruto remains her primary motivation; she willingly faced Pain to protect Naruto, despite knowing she has no chance of winning.[20] She even defends Naruto from himself when he's in doubt, repeating to him his refusal to never give up.[21]Appearance
+Hinata is a slender girl of fair-complexion who, as a Hyūga, her most distinguishing trait is the Byakugan, giving her featureless white eyes (lavender in the anime). She has dark blue hair that she keeps in a bob-cut of different lengths: in Part I, her hair is cut just above her forehead akin to a bowl-cut with chin-length strands framing her face; in Part II, her hair reaches her lower back and the framing strands reach shoulder-length; in The Last: Naruto the Movie, her hair extends beyond her hips and she would at times tie it into a ponytail. By the time Boruto entered the Academy, she cut it into a bob-style reaching her shoulders.[25] She is noted to be beautiful by Naruto[12] and Toneri Ōtsutsuki.
+
+Hinata in Part I.
+Hinata in Part I.
+1/3
+In Part I, Hinata usually wears a cream-coloured hooded-jacket with a fire symbol on the upper sleeves and fur around the cuffs and hem. She also wears navy blue pants and keeps her forehead protector loosely around her neck. In Part II, she dons a lavender and cream hooded-jacket with lavender cuffs over mesh armour. She also wears navy blue pants, black, low-heeled sandals, and changes the cloth of her forehead protector from blue to black. Hinata switches to the standard Konoha infantry flak jacket and assorted clothing during the Fourth Shinobi World War, though she does not appear to wear a forehead protector.
+Originally, Hinata's gentle personality hindered her performance, to which she was deemed too weak and unworthy for the role of heir.[26] After committing herself getting stronger in her training for Naruto, receiving consistent praise from her team and clan for her improving skills and strengthening character.[27][20][18] 
+
+Chakra Prowess and Control
+Twin Lions Crumbling Attack
+Hinata's Gentle Step: Twin Lion Fist using Hamura's chakra.
+
+From her special clan training, Hinata has advanced control of her chakra. In the anime, Hinata's additional training during Part I resulted in her ability to free herself from contraints[29] and manipulate nearby water sources, turning them into projectiles.[30] By Part II of the anime, Hinata's control has advanced enough to match a medical-nin's, for which reason she is assigned to help perform the Four-Corner Sealing Barrier.
+
+s a Hyūga, Hinata possesses the Byakugan, a dōjutsu that grants her penetrative vision in a near-360° around herself, with one blind spot at the back of the neck above the first thoracic vertebra.[31] With it, she is able to assist others frequently in tracking, scouting the area for their target(s); by focusing her vision in a single direction, Hinata can see across vast distances, able to see at least 1 kilometre during her first Chūnin Exam, and reaching as far away as 20 kilometres by the battle against Toneri. Hinata's Byakugan grants her attacks pinpoint accuracy, which she can share with others to also improve their own.[32] She can also use it in order to identify genjutsu, searching for the caster in the nearby area.[33] In the anime, Hinata can use infrared vision and magnify in to see tiny targets.[34] 
+
+Physical Prowess
+As is traditional in her clan, Hinata has been extensively trained in the Gentle Fist fighting style. In unison with her Byakugan, Hinata can attack accurately target an individuals' chakra pathway systems and the 361 tenketsu that run along it, constricting or cutting off their chakra flow from only minimal contact.[15] Although this enables Hinata to attack an opponent's internal organs, she can also use it in a supplementary function, such as by setting dislocated shoulders back in place.[36]
+
+Hakke Kūhekishō
+Hinata and Neji combining their Eight Trigrams Vacuum Palms.
+
+While Hinata hadn't yet mastered her clan's most advanced techniques in Part I, in the anime, she created the Protecting Eight Trigrams Sixty-Four Palms as an alternative, which effectively protects her and attacks anything within range with sharp streams of chakra emitted from her palms.[37] By Part II, she had grown accustomed to more of her clan's techniques. During Pain's Assault, Hinata could use the Gentle Step Twin Lion Fists, a technique that drains the target of their chakra where struck. During the Fourth Shinobi World War, Hinata could use the Eight Trigrams Vacuum Palm to attack targets outside her physical range or deflect incoming attacks,[38] which increases in power if used in conjunction with others.[39] She also mastered the Eight Trigrams Sixty-Four Palms in the war.[40] By the time she reaches adulthood, she became well-known for her mastery of the Gentle Fist.[41
+
+Ninjutsu
+While Hinata doesn't usually use ninjutsu, by the Fourth Shinobi World War, her nature transformations included Fire and Lightning Release.[4] In the anime, she also demonstrated proficiency in medical ninjutsu, able to use the Mystical Palm Technique to heal the wounded.[44]
+Prologue — Land of Waves
+Main article: Prologue — Land of Waves
+In the anime, while the graduates of her Academy class are being assigned to teams, Hinata hopes that she will be on the same team as Naruto Uzumaki. To her disappointment, she is instead added to Kurenai Yūhi's Team 8, along with Kiba Inuzuka and Shino Aburame. Kurenai reports this to Hinata's father, Hiashi Hyūga, but he is unconcerned and in fact abandons Hinata to Kurenai's care, feeling she is unworthy of the Hyūga clan.[15]
+
+Chūnin Exams
+Main article: Chūnin Exams
+Naruto and hinata at first exam
+Hinata lets Naruto copy her test.
+
+Despite how recently they graduated from the Academy, Kurenai enters Team 8 in the Chūnin Exams being held in Konoha; Hinata agrees to participate because she wants to change herself. For the exams' first stage, Hinata is seated next to Naruto as they take a written test. The objective in the first stage is to cheat off of other examinee's paper without getting caught, but Naruto doesn't realise this and agonises about potentially failing. Seeing this, Hinata offers to let him copy off of her paper. He suspects she's trying to trick him, but she assures him that she only wants to be helpful. Although he considers taking her up on her offer, Naruto ultimately declines, fearing that he'll get her disqualified if they're caught and claiming that, besides, he isn't the type to cheat.
+
+Although Naruto is given the opportunity to forfeit, he refuses to do so, and for his determination, he passes the first stage along with Hinata and their teams. For the second stage, participants enter the Forest of Death with the objective of obtaining a set of two scrolls, one of which they are given at the start. Team 8 manages to collect their second scroll right after the second stage has started, and so they head for the centre of the forest where they're supposed to turn in the scrolls. Along the way, Kiba's partner, Akamaru, senses the Three Sand Siblings' fight with Team Shigure. Team 8 watches the fight from the cover of some nearby bushes and is horrified when Gaara mercilessly kills all of Team Shigure. After they're certain Gaara won't kill them too, they proceed to the centre of the forest.
+
+After passing the second stage, the remaining participants take part in one-on-one preliminary matches. During Naruto's fight with Kiba, Hinata's loyalties are torn; she wants to cheer for Naruto, but fears that would be rude to Kiba. When Naruto wins the fight, Hinata gives both him and Kiba some of the Hyūga Clan Secret Ointment so that their wounds will heal faster. As he's being taken away to rest, Kiba pleads for Hinata to forfeit if she's matched against Gaara or her cousin, Neji Hyūga. She is indeed matched against the latter, a member of a Hyūga clan branch house who hates all members of the main house. Neji, like Kiba, tries to convince Hinata to forfeit, telling her that she's too meek and insecure to be a ninja. She begins to offer arguments in her defence, but Neji persists, claiming that she is fated to be a failure, a fact that he believes she's aware of due to her frightened reaction to what he says.
+
+Gentle fist
+Hinata fights Neji.
+
+Neji's words cause Hinata to cry, but also anger the watching Naruto, who insists that Hinata can change herself if she wants to and who encourages her to defeat Neji. Because Naruto has faith in her, Hinata refuses to forfeit and prepares to fight; Neji is surprised by the new confidence in her. Hinata and Neji exchange Gentle Fist-blows, but only Neji's are effective, which he reveals to be because he sealed her tenketsu at the start of their fight. Although her attacks are ineffective against him, Hinata continues fighting, in the process enduring mounting internal trauma from Neji's counterattacks. Neji repeatedly tells her to forfeit, but Hinata refuses, unwilling to back down both as a matter of principle and because Naruto continues to cheer for her.
+
+Shinobi Stop Neji
+Hinata is saved from Neji.
+
+Neji directly attacks Hinata's heart, leading all but Naruto to believe she's been defeated. When Hayate Gekkō is about to declare Neji the winner, Naruto stops him and motions to Hinata struggling to her feet. Neji tells her that her attempts to fight her destiny are only bringing her harm, but she rebuts that his own attempt to fight the destiny of the branch house brings him even more harm. Neji is enraged and attempts to kill her, but he is stopped by the observing jōnin. Hinata collapses, the damage to her organs being too severe, and before she loses consciousness she sees Naruto checking on her; she wonders if she managed to change at all. She's taken away by a team of medical-nin to be given emergency medical attention.
+
+After a month, on the day of the Chūnin Exams' final matches, Hinata has recovered somewhat. Although she's supposed to take it easy, she practices at the Third Training Ground. Naruto stops there on his way to finals and is glad to see she's better. Because he's scheduled to fight Neji, Naruto shares his concerns that he might not be strong enough to defeat him. Hinata says that she believes he is strong enough, and that even if he isn't physically strong he still has strength of perseverance: a willingness to keep trying despite apparent failure until he finally conquers his obstacle. She admires him for that. Naruto is put at ease, thanks her, and informs her that his impression of her as "weird" was wrong, as he actually likes her. Hinata is left speechless as he walks away.
+
+Hinata watches Naruto's fight against Neji with Kiba. Seeing Naruto receive so many of Neji's attacks upsets Hinata and causes her internal injuries to begin bleeding again. Kiba gets an Anbu (Kabuto Yakushi) to treat her. Although the Anbu heals her, she is rendered unconscious and thus is unable to watch Naruto's defeat of Neji.
+
+Konoha Crush
+Main article: Konoha Crush
+In the anime, when the invasion of Konoha begins, the still-unconscious Hinata is kidnapped by Kumo-nin. She is rescued by Neji, who has had a change of perspective as a result of his loss to Naruto. Several days after the invasion is successfully repelled, Hinata attends the Third Hokage's funeral.
+
+Sasuke Recovery Mission
+Main article: Sasuke Recovery Mission
+According to Kiba, Hinata visited Naruto while he was in the Konoha Hospital after his failed attempt to stop Sasuke Uchiha from defecting from Konoha. When she saw how badly hurt he was, she immediately fainted.
+
+Bikōchū Search Mission
+Main article: Bikōchū Search Mission
+Bikochumo Beetle
+Team 8 and Naruto searching for the bikōchū.
+
+In the anime, Team 8 (at Hinata's insistence) helps Naruto find a bikōchū, which he can use to locate Sasuke by scent. After a day of searching, Hinata goes off by herself and trains by a waterfall in order to create a new jutsu. Naruto sees her, though he doesn't realise it's Hinata; she becomes embarrassed when he later tells Kiba about the "beautiful girl" he saw. When they are attacked by members of the Kamizuru clan, Hinata uses her new Protecting Eight Trigrams Sixty-Four Palms to save her team. Although they ultimately fail in their plan to use the bikōchū to find Sasuke, their near-success earns praise from Hinata's father, Hiashi.
+
+Academy Student Lead Mission
+Main article: Academy Student Lead Mission
+In the anime, Hinata is put in charge of a team of Academy students (Nobori, Daichi, and Matsuri) to teach them survival skills. Very little of their exercise is seen, but Hinata does teach her students how to establish a campsite.
+
+Gosunkugi Capture Mission
+Main article: Gosunkugi Capture Mission
+In the anime, Naruto, Kiba, and Hinata are assigned to catch a thief, Gosunkugi. Gosunkugi is captured by a bounty hunter before they can catch him themselves, for which reason their mission is officially deemed a failure.
+
+Buried Gold Excavation Mission
+Main article: Buried Gold Excavation Mission
+In the anime, Naruto, Kiba, and Hinata are sent on another mission together in order to improve their teamwork, which their previous mission failures suggests they lack. While searching for a buried treasure, they are attacked by the Kedōin clan, who impersonate each of them so that they can infiltrate Konoha and destroy it from within. Although they escape from the Kedōin, Naruto and Kiba must stop them by themselves due to a leg injury Hinata sustained. She later returned to Konoha and mistakenly attacked Naruto, whom she believed to be an impostor.
+
+Peddlers Escort Mission
+Main article: Peddlers Escort Mission
+In the anime, Naruto, Hinata, and Chōji Akimichi are sent to the Land of Vegetables to escort some merchants. A princess, Haruna, is embedded with the merchants, leading to an attack by the Janin. Hinata is tasked with guarding Haruna, and in the course of doing that she fights and defeats Jiga.
+
+Lady Daimyō Search Mission
+Main article: Lady Daimyō Search Mission
+In the anime, Naruto, Kiba, and Hinata are sent to the Land of Honey to search for the missing Kayo. When they start to notice something strange about the castle they're search, Hinata uses her Byakugan to discover that the castle is alive.
+
+Sunagakure Support Mission
+Main article: Sunagakure Support Mission
+In the anime, Hinata and the Konoha 11 are sent to help the Three Sand Siblings defeat the Four Celestial Symbols Men. Shikamaru Nara, their team leader, assigns Neji, Hinata, and Shino to clear out the areas.
+
+After they get back to Konoha - in a scene that happens at the end of the Sasuke Recovery Mission in the manga - Hinata serves drinks to Neji and Hiashi while they train together. At Neji's encouragement, Hinata watches Naruto as he departs Konoha for several years of training, vowing to work just as hard as he plans to.
+
+Interlude
+In Naruto's Footsteps: The Friends' Paths
+Main article: In Naruto's Footsteps: The Friends' Paths
+In the anime, Konoha and Sunagakure hold a joint Chūnin Exam two years after Naruto's departure, which Team 8 once again enters. During the first exam, Hinata, Kiba, and Shino are seated in different rooms and are tasked with getting a combined score of exactly 100 points on their written test despite their separation.[45] Neji comes up with the idea for teams to communicate which questions to answer by producing vibrations on the walls. After the initial testing period is over, they are given a bonus question: each team must unanimously select one of their members to disqualify from the rest of the exams. Team 8 selects nobody, which is the correct answer and which qualifies them for the next phase.[46]
+
+Team Kurenai Chūnin Exams
+Team 8 awaiting to begin the second stage of the Chūnin Exams.
+
+Those who pass the first test must reach the Demon Desert within three days in order to participate in the second exam. Ultimately, Team 8 were among the first 30 teams to make it. The following night, as all the genin were ready to eat dinner, everyone grew nervous about the overly-sweaty Burami ruining the food, which caused the genin to quickly try to stop him, resulting in Neji using the Eight Trigrams Palms Revolving Heaven and accidentally destroying the food. As tension grew between everyone over the recent event, an all-out brawl began. Eventually everyone lost their desire to fight when Fū arrived with her optimistic ways. The following day, as the second exam began Team 8 were given the same objective as they had in the exam several years ago: obtain a scroll from another team.[47]
+
+Flag Current 1
+Hinata faces off against Kazami.
+
+Following a simple plan by Kiba, Team 8 began talking loudly for all to hear, waiting for another team with a Heaven scroll to come after them. Ultimately, they encounter Team Kazami, with Hinata facing off against Kazami. Deciding to make the first move Hinata begins attacking Kazami. Realising Hinata's goal was to attack his Chakra Pathway System Kazami creates various sharp air currents which she counters using the Protecting Eight Trigrams Sixty-Four Palms. During the ensuing fight the other team is able to steal their scroll. Despite Team Kazami's attempts to prevent Team 8 from pursuing them, Shino is able to track them using his kikaichū.[48] During their search, Team 8 is ambushed by Team Kazami, though they are able to escape thanks to Shino's insect clone. They regroup and then reengage battle against Team Kazami, with Kiba ultimately defeating them. With their own scroll back and with Team Kazami's scroll now in their possession, Team 8 heads to the centre of the desert to turn in the scrolls.[49]
+
+Team 8 eventually gets lost in a sandstorm along the way.[50] They are rescued by one of the exam's proctors, who brings them to where all of the other examinees are being assembled. They are informed that the Chūnin Exams have been cancelled; reports on the participants' performances will be sent back to their villages, leaving their promotion up to their superiors. When they get back to Konoha, the Fifth Hokage promotes Hinata, Kiba, and Shino to chūnin.[51]
+
+Part II
+Tenchi Bridge Reconnaissance Mission
+Main article: Tenchi Bridge Reconnaissance Mission
+Two-and-a-half years after Naruto left Konoha to train, Hinata heads to a meeting with Kiba and Shino. As she approaches them, she sees them talking to Naruto. She screams in surprise and hides behind a fence while she tries to build up the courage to greet him. Having heard her scream, Naruto investigates the source and, finding Hinata, says hello to her, inadvertently making her collapse from shock. Naruto invites Team 8 to help him on a mission to find Sasuke, but they can't since they've already got another assignment.
+
+Akatsuki Suppression Mission
+Main article: Akatsuki Suppression Mission
+In the anime, Hinata attends Asuma Sarutobi's funeral.
+
+Three-Tails' Appearance
+Main article: Three-Tails' Appearance
+Hinatavsguren
+Hinata fights Guren.
+
+In the anime, Kakashi Hatake recruits Team 8's members to help him investigate one of Orochimaru's recently-discovered bases. During their investigation, they are attacked by some of Orochimaru's subordinates, Team Guren. When Kiba struggles against Nurari, Hinata switches with him, using her Byakugan to navigate through the smoke Nurari employs. The team's leader, Guren, soon traps Team 8 in her Jade Crystal Labyrinth Technique. Although the labyrinth's reflective surface makes it difficult for her to focus with her Byakugan, Hinata is able to locate Guren and defeat one of her Jade Crystal Clones, but is then encased in a crystal prison, where she remains until found by Team 7.
+
+When they come across the Three-Tails, Hinata is assigned to a team tasked with sealing it. They are interrupted by Team Guren before they can complete the Four-Corner Sealing Barrier, prompting Konoha to recall them and send Anbu to seal the Three-Tails in their place.
+
+Itachi Pursuit Mission
+Main article: Itachi Pursuit Mission
+Eight Man Squad
+The Eight Man Squad formed to pursue Itachi and Sasuke.
+
+Teams 7 and 8 are combined into an Eight Man Squad with the mission of locating Sasuke or Itachi Uchiha. When they split up to search, Naruto, because he's a target of Akatsuki, is given a protective escort in the form of Hinata, Yamato, and Bull. Their group is soon confronted by Kabuto Yakushi, who offers them intel on Akatsuki and its members. Noticing something strange about Kabuto, Hinata examines him with her Byakugan and discovers that a third of his body has been taken over by Orochimaru's remains. Kabuto escapes and they later regroup with the rest of the team. Kiba is able to find Sasuke's trail, which they begin following.
+
+Fated Battle Between Brothers
+Main article: Fated Battle Between Brothers
+As they near Sasuke's location, they are intercepted by Tobi of Akatsuki. They make repeated attempts to kill or capture him, but every attack passes through him without sign of damage. Suspecting a genjutsu is being used, Hinata searches the area with her Byakugan to locate a caster, but can find nobody. She focuses on Tobi's chakra signature to try and understand how his ability works, but is mystified when it simply vanishes. Tobi leaves them when he receives news that Itachi has died while fighting Sasuke. Hinata uses her Byakugan to locate where their fight took place and they rush to reach Sasuke before Tobi does, but they are too late and cannot rediscover his trail.
+
+Six-Tails Unleashed
+Main article: Six-Tails Unleashed
+In the anime, Katsuyu meets them as they return to Konoha to give them a new mission: helping the Tsuchigumo clan protect its forbidden technique. Kakashi sends the rest of Team 7 to complete the mission while he returns to the village with Team 8.
+
+Pain's Assault
+Main article: Pain's Assault
+Hinata protecting Naruto
+Hinata protects Naruto.
+
+When Pain's Assault on Konoha begins, Hinata joins her teammates in defending the village. Pain later destroys the village, but Hinata is saved from harm by Katsuyu. Hinata's bodyguard, Kō Hyūga, is not as fortunate, but he refuses Hinata's attempts to find him medical attention. Hinata watches as Naruto fights Pain alone, initially obeying Katsuyu's and Kō's instructions not to interfere. After Naruto is captured by Pain's Deva Path, however, Hinata does not hesitate to come to his defence, forcing the Deva Path away from him. Naruto pleads for her to run away, telling her that she can't defeat Pain. Despite knowing this already, she tells Naruto that she will fight Pain because, after years of watching him and improving herself by following his example, Hinata loves Naruto and will do what she can to protect him.
+
+Hinata starts attacking the Deva Path with her Gentle Step Twin Lion Fists. In the anime, she succeeds in removing some of the black receivers that restrains Naruto and even hitting the Deva Path, but the outcome remains the same: the Deva Path quickly defeats her with Shinra Tensei. The Deva Path then stabs her with another black receiver, leading Naruto to believe Hinata has been killed and thus causing him to enter a version 2 form. Hinata, however, is still alive, and when Team Guy finds her, Neji gets her immediate medical attention. Sakura Haruno heals Hinata's injuries, allowing her to tearfully join in the village's celebration when Naruto returns after defeating Pain.
+
+Five Kage Summit
+Main article: Five Kage Summit
+Konoha 11 Decision
+The Konoha shinobi discussing Sasuke.
+
+News reaches Konoha of Sasuke's recent activity with Akatsuki, specifically his attack against Kumogakure-ninja. Hinata and the rest of the Konoha 11 (while Naruto was absent) decide that Sasuke can no longer be allowed to implicate Konoha in his criminal deeds and they resolve to personally kill him. When Naruto returns to Konoha after learning of this and having his own confrontation with Sasuke, he requests that they leave dealing with Sasuke to him.
+
+Power
+Main article: Power
+In the anime, Hinata is part of a team of reinforcements sent to Tonika Village to help Team 7 in the fight against Kabuto Yakushi. Hinata attempts to stop the Nine-Tailed Naruto Clone from taking chakra from Naruto, but she fails and is saved by Neji.
+
+Paradise Life on a Boat
+Main article: Paradise Life on a Boat
+Hyuga Clan Meeting
+Hinata attends the Hyūga clan meeting to discuss upcoming war.
+
+In the anime, Hinata was present at the Hyūga clan meeting convened by her father, Hiashi. After hearing Hiashi declaration that Neji was to lead the clan's forces during the Fourth Shinobi World War, she was quite shocked. After the meeting she overheard Kō contest with her father about his decision, reminding him of how much Hinata had grown and that she was from the main house. Hiashi, however, told him that it wasn't because he lacked faith in Hinata but because she still lacked enough self-confidence to lead the shinobi during war.[52]
+
+Later, Hinata met with Kurenai and was told that several members of the Konoha 11 have encountered Naruto while he traveled to the Land of Lightning. When Hinata was summoned to a meeting with the Fifth Hokage, she was hopeful that she would also get sent on such a mission. After much searching for where exactly the Hokage was, Hinata was disappointed to learn that the Hokage only wanted to discuss Neji's selection to lead the Hyūga during the approaching Fourth Shinobi World War. She was later invited to Yakiniku Q to have dinner with other girls in her age group. The dinner's conversation turned to Naruto, during which Hinata realised that she doesn't need to go on a mission with Naruto to be able to help him.
+
+Fourth Shinobi World War: Confrontation
+Main article: Fourth Shinobi World War: Confrontation
+Hinata and Neji
+Hinata and Neji protecting each other.
+
+When the Fourth Shinobi World War begins, Hinata is placed alongside Neji in the Second Division. Their entire division is sent to intercept a large segment of the White Zetsu Army, which Neji and Hinata join forces in attacking after Kitsuchi unearths the Zetsu army. Although the Zetsus suffer heavy casualties, their numbers are too great and the fight becomes one of attrition. After a day of fighting, Neji collapses from exhaustion, at which point Hinata takes responsibility for monitoring the Second Division's perimeter with her Byakugan. Shino encourages her not to over-exert herself, but she assures him that she doesn't mind since she's fighting to keep Naruto safe.
+
+In the anime, Hinata, Kiba, and Shino investigate a possible breach of the Allied Shinobi Forces' perimeter. They discover several White Zetsus within Allied territory, and in the fight to destroy them Hinata is knocked unconscious. One Zetsu impersonates her and successfully pretends to be her for a time using its knowledge of her feelings for Naruto, but Kiba and Shino eventually discover it and, after defeating it, rescue Hinata.[53] On the second day of the war, Hinata helps members of the Second Division escape the area of Neji's fight with the reincarnated Kidōmaru. She later finds Neji unconscious with Kiba and Akamaru. Hinata examines their bodies with her Byakugan and discovers that their chakra flow has completely stopped. She reports this to Inoichi Yamanaka, who is able to use the information to help Naruto save them. Hinata tearfully hugs Neji when he wakes up.[54]
+
+Naruto Protects Hinata
+Naruto saves Hinata from disguised White Zetsu.
+
+With all levels of the Allied Shinobi Forces infiltrated by disguised White Zetsus, Hinata and the others are placed on high alert due to periodic surprise attacks by what they thought were their allies. When Naruto reaches the Second Division's location he starts identifying and defeating the disguised Zetsus, including three that attempt to attack Hinata. Although Neji is suspicious that Naruto may also be a White Zetsu, Hinata insists it's the real Naruto, which she can tell by looking in his eyes. Hinata apologises to Naruto for the suspicion he's receiving and regrets that he is still needing to save her when she's the one trying to fight for him. Naruto reassures her that she's strong enough to look after herself; he's merely returning the favour for all the times in the past she's helped him. She silently thanks him as he leaves.
+
+Fourth Shinobi World War: Climax
+Main article: Fourth Shinobi World War: Climax
+Hinata Shielding Naruto
+Hinata preparing to sacrifice her life to shield Naruto.
+
+Hinata and the rest of the Allied Shinobi Forces are sent to assist Naruto in his battle with the Ten-Tails. Recognising how crucial Naruto is to the war's victory, Hinata, Neji, and Hiashi join forces to block attacks directed at him. Neji and Hiashi quickly become preoccupied protecting other Allies from the Ten-Tails too, leaving only Hinata to defend Naruto. The Ten-Tails fires several volleys of wood projectiles at him, which Hinata uses her body to defend him from. Neji in turn uses his body to defend her and is mortally wounded because of it. Watching Hinata crying for him as he dies, Neji observes that Hinata was willing to die for Naruto, which he uses as evidence that Naruto is responsible for more lives than his own. He then dies from his injuries.
+
+Naruto gives Hinata power
+Naruto shares Kurama's chakra with Hinata.
+
+Naruto is disheartened by the deaths of Neji and others in the Alliance. When he starts to show signs of giving up, Hinata brings him back senses by reminding him of his vow to not let any of his friends die. Although Neji may be dead, he will live on so long as others continue the fight that he gave his life for. Therefore, Naruto must stay true to the creed he has been using for so long and that she has long since adopted for herself: to not give up. Naruto's resolve is renewed and he thanks her for standing by his side. He then takes her hand and transfers some chakra to her, giving her a version 1-like shroud that protects her and augments her attacks against the Ten-Tails.
+
+As Naruto leads the Alliance's attacks against the Ten-Tails, his arm becomes dislocated. Hinata sets it back in place, allowing him to remove the Ten-Tails from the control of Madara and Obito Uchiha. The extended fighting eventually starts to tire Naruto out, so Hinata rallies a defence around him while Sakura Haruno heals him. She later joins Team 8's attack on the Ten-Tails' clones: she starts performing the Eight Trigrams Sixty-Four Palms on a Ten-Tails mini-clone, but stumbles midway and fears she may not be able to complete it. By thinking of Neji and Naruto, she finds the resolve to follow through to its end and defeats the clone. She then prepares to use her Gentle Step Twin Lion Fists.
+
+Birth of the Ten-Tails' Jinchūriki
+Main article: Birth of the Ten-Tails' Jinchūriki
+Konoha 11 attacking Obito
+The Konoha chūnin attack Obito with Naruto's Rasengan.
+
+When the Ten-Tails suddenly disappears from the battlefield, Sakura asks what Hinata saw with her Byakugan. Hinata explains that she saw the Ten-Tails being absorbed into Obito, meaning he has become its jinchūriki. Because of the abilities this grants Obito, Hinata and most of the rest of the Alliance stand no chance against him and must leave the fighting to others such as Naruto and Sasuke. But Hinata remains alert for opportunities to contribute and pitches in when they emerge, first by joining the rest of the Konoha 11 in hitting Obito with one of Naruto's Rasengan, and then by assisting the rest of the Alliance with pulling the tailed beasts' chakra from Obito's body.
+
+Hinata Infinite Tsukuyomi
+Hinata caught in the Infinite Tsukuyomi.
+
+With Obito defeated, Naruto goes off to fight Madara, leaving the Allied Shinobi Forces to fight a final Zetsu. As they struggle against the Zetsu, Kiba senses Naruto's return to their battlefield and Hinata seeks him out with her Byakugan. She becomes horrified as she notices that his heartbeat is slowing and runs to him to provide assistance, but she collapses from exhaustion midway and can only plead Neji to help Naruto. When Madara cast the Infinite Tsukuyomi upon the world, Hinata alongside most people are immobilised by the genjutsu and restrained by the Ten-Tails' roots.
+
+Kaguya Ōtsutsuki Strikes
+Main article: Kaguya Ōtsutsuki Strikes
+Hinata Crying
+Hinata and Naruto grieving at the mass funeral in Konoha.
+
+While trapped, Hinata dreams of sitting on a park bench with Naruto while they are watched in secret by Neji and Hanabi. Naruto and Sasuke eventually release the Infinite Tsukuyomi, freeing Hinata and the rest of the world and thus ending the Fourth Shinobi World War. They all return to Konoha to bury the dead from the war, with Team Kurenai and Naruto paying their respects at the mass funeral.
