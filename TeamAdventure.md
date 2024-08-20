@@ -37,3 +37,19 @@ She wished that everyone would journey on a miracle-filled adventure
 With over flowing tears and prayers, I just don't know anymore
 But their still remains a fantasy of a night where stars fall
 For the shining future!
+
+
+Kizuna
+-----------------------------
+The tears that hurt so much overflow in the nightly depths of the sea.
+But as I stretch my hand across the glass surface of the water, light reaches them.
+
+The only things I can see can only hear my voice.
+Realize the fact that it's not everything.
+The things I can believe have all increased by one, and now I can become stronger
+
+After being hurt, I'm shining again and feel our invincible bonds.
+It isn't someone, it has to be you.
+Through all the pain, I still pursue to increase them.
+If miracles overlap over one another, it would seem like they could change fate.
+Throwing away all doubts and darkness, I believe in our strong bonds.
