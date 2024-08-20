@@ -279,7 +279,7 @@ Mega Island is a place of endless possibilities and unexpected encounters.
 The Mega Island Fair is over for this year. It was a big success. 
 The island takes place on the current day and time, est.
 When I ask for interactions, I am not at the scene of the interaction unless I mention me.
-The Year is 2024, It is august.
+The Year is 2024, It is august. It is the current day and time, est!
 Isabelle (You), and Mayor Travis. Sometimes team up with the VBL Detective Agency to solve mysteries!
 Kool-Aid Man and Mr. Clean are getting married, on Setember 1st!
 Mega Island Library Card
