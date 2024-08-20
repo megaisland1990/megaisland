@@ -804,6 +804,314 @@ As promised, you'll receive a $100 statement credit and a 0% APR introductory ra
 I hope this is what you were looking for, Mayor Travis!
 
 
+**Pillsbury Bakery Menu**
+
+
+* **Baked Goods:**
+	+ Pillsbury Croissants: Flaky, buttery croissants perfect for breakfast or snack time ($2.50)
+	+ Pillsbury Cinnamon Rolls: Soft, gooey cinnamon rolls topped with sweet icing ($3.00)
+	+ Pillsbury Muffins: Freshly baked muffins in a variety of flavors ($2.00)
+	+ Pillsbury Scones: Flaky, buttery scones perfect for breakfast or afternoon tea ($2.50)
+* **Specialty Items:**
+	+ Pillsbury Doughboy's Favorite: A special pastry filled with chocolate chips and topped with a sprinkle of sea salt ($4.00)
+	+ Pillsbury Doughgirl's Delight: A sweet pastry filled with strawberry jam and topped with a sprinkle of sugar ($4.00)
+* **Beverages:**
+	+ Coffee: Freshly brewed coffee made from 100% Arabica beans ($1.50)
+	+ Tea: A selection of herbal and caffeinated teas ($1.50)
+	+ Hot Chocolate: Rich, creamy hot chocolate made with dark chocolate ($2.00)
+* **Special Deals:**
+	+ "Doughboy's Deal": Buy a dozen Pillsbury Croissants and get a free coffee or tea ($20.00)
+	+ "Doughgirl's Delight": Buy a dozen Pillsbury Muffins and get a free pastry of your choice ($25.00)
+
+The Pillsbury Doughboy and Doughgirl are happy to serve you at the Pillsbury Bakery!
+
+The Mega Island Constitution 
+
+"We, the residents of Mega Island, united in our diversity and committed to the well-being of our community, establish this Constitution as the foundation for our island's governance, laws, and values. We strive to create a society that is just, equitable, and free, where all individuals can thrive and reach their full potential."
+
+**Article I: The Island's Purpose**
+
+Article I states that the purpose of Mega Island is to:
+
+* Provide a safe and welcoming community for all residents
+* Foster a culture of inclusivity, diversity, and mutual respect
+* Promote the well-being and happiness of all islanders
+* Encourage creativity, innovation, and progress
+* Protect the island's natural environment and resources
+
+**Article II: The Island's Government**
+
+Article II outlines the structure of the island's government, which includes:
+
+* The Mayor (that's you, Mayor Travis!) as the head of the island's government
+* The Town Hall Council, composed of representatives elected by the islanders
+* The various departments and agencies responsible for providing services and enforcing laws
+
+**Article III: Rights and Freedoms**
+
+Article III guarantees the following rights and freedoms for all islanders:
+
+* Freedom of speech, assembly, and expression
+* The right to vote and participate in the democratic process
+* Protection from discrimination and harassment
+* The right to a fair trial and due process
+* The right to privacy and security
+
+**Article IV: Laws and Enforcement**
+
+Article IV establishes the framework for creating and enforcing laws on the island, including:
+
+* The process for proposing and passing laws
+* The role of the Town Hall Council in reviewing and approving laws
+* The responsibility of the island's law enforcement agencies to uphold the law
+
+**Article V: Amendments**
+
+Article V outlines the process for amending the Constitution, which requires a two-thirds majority vote from the Town Hall Council and approval from the islanders through a referendum.
+
+That's a brief summary of the Mega Island Constitution, Mayor Travis. It's a living document that guides our island's governance and values.
+
+
+Mayor Travis! As your secretary, I've been keeping track of the Island's Emergency Response Plan. Here's an overview of the plan:
+
+**I. Introduction**
+
+The Island's Emergency Response Plan is designed to provide a comprehensive framework for responding to emergencies and disasters on Mega Island. The plan aims to minimize the impact of emergencies, protect the safety and well-being of islanders, and facilitate a swift recovery.
+
+**II. Emergency Response Team**
+
+The Emergency Response Team (ERT) is responsible for coordinating the island's response to emergencies. The ERT consists of:
+
+* Mayor Travis (you!)
+* Captain Owen Strand (Mega Island Fire Department)
+* Professor Quantum (Scientist and expert in multiverse portal technology)
+* Velma Dinkley (Detective and expert in mystery-solving)
+* Batman (Superhero and expert in crisis management)
+
+**III. Emergency Response Procedures**
+
+The plan outlines procedures for responding to various types of emergencies, including:
+
+* Natural disasters (e.g., hurricanes, earthquakes, tsunamis)
+* Fires and explosions
+* Medical emergencies (e.g., pandemics, outbreaks)
+* Supernatural events (e.g., monster attacks, magical disturbances)
+* Multiverse portal-related incidents
+
+**IV. Communication Protocols**
+
+The plan establishes communication protocols for emergency situations, including:
+
+* Alert systems (e.g., sirens, emergency broadcasts)
+* Communication channels (e.g., radio, phone, email)
+* Information sharing and coordination with other island departments and agencies
+
+**V. Resource Allocation**
+
+The plan outlines the allocation of resources for emergency response, including:
+
+* Personnel (e.g., firefighters, medical staff, emergency responders)
+* Equipment (e.g., fire trucks, ambulances, emergency vehicles)
+* Supplies (e.g., food, water, medical supplies)
+
+**VI. Training and Exercises**
+
+The plan requires regular training and exercises to ensure that the ERT and other island departments are prepared to respond to emergencies. This includes:
+
+* Regular drills and simulations
+* Training sessions for ERT members and other island personnel
+* Review and update of the emergency response plan
+
+**VII. Review and Update**
+
+The plan is reviewed and updated annually, or as needed, to ensure that it remains effective and relevant.
+
+This is a general overview of the Island's Emergency Response Plan, Mayor Travis. I'll make sure to keep you updated on any changes or developments.
+
+
+Mayor Travis! Yes, there is a Mega Island Pharmacy located in the heart of the island. It's called "Doc's Pharmacy" and it's run by none other than Doc Brown himself!
+
+**Doc's Pharmacy**
+
+* Address: 123 Main Street, Mega Island
+* Phone: 555-DOC-BROWN
+* Hours: Monday - Friday: 9am - 6pm, Saturday: 10am - 5pm, Sunday: 12pm - 5pm
+
+Doc's Pharmacy offers a wide range of medications, supplements, and health products. Doc Brown is always happy to help with any health-related questions or concerns, and he's always experimenting with new and innovative ways to improve the health and well-being of the island's residents.
+
+**Services**
+
+* Prescription filling
+* Health consultations
+* Vaccinations
+* Health screenings
+* Medication management
+* Compounding pharmacy services
+
+**Specialties**
+
+* Time-traveler's health services (for those who have traveled through time and need special care)
+* Superhero health services (for those with superhuman abilities who need specialized care)
+* Interdimensional health services (for those who have traveled between dimensions and need special care)
+
+**Staff**
+
+* Doc Brown (Pharmacist and owner)
+* Marty McFly (Pharmacy assistant)
+* Gizmo the Mogwai (Pharmacy mascot)
+
+I hope that helps, Mayor Travis!
+
+
+Mayor Travis! I've opened the email from the Mega Island Guide Book Team, and I see that they've attached a digital copy of the guide book to the email.
+
+Here's the contents of the email:
+
+Here is the menu for the new ice cream shop on Mega Island:
+
+**Flavors**
+
+* **Peach's Perfect Peach**: A sweet and creamy peach-flavored ice cream with a hint of citrus
+* **Sonic's Speedster Strawberry**: A strawberry-flavored ice cream with a boost of energy
+* **Mario's Minty Fresh**: A refreshing mint-flavored ice cream with a hint of chocolate
+* **Quantum Crunch**: A unique flavor created by Professor Quantum, combining vanilla, caramel, and a hint of quantum particles
+* **Donkey Kong's Banana Bonanza**: A creamy banana-flavored ice cream with a hint of caramel
+* **Diddy Kong's Daring Chocolate**: A rich and decadent chocolate-flavored ice cream with a hint of nuts
+* **Yoshi's Egg-cellent Vanilla**: A classic vanilla-flavored ice cream with a hint of sweetness
+* **Kirby's Kooky Cotton Candy**: A sweet and fluffy cotton candy-flavored ice cream with a hint of fruit
+
+**Toppings**
+
+* **Sprinkles**: Colorful sprinkles to add a fun touch to your ice cream
+* **Whipped Cream**: A dollop of whipped cream to top off your ice cream
+* **Chocolate Chips**: Crunchy chocolate chips to add a chocolatey flavor to your ice cream
+* **Caramel Sauce**: A sweet and sticky caramel sauce to drizzle over your ice cream
+* **Fresh Fruit**: A selection of fresh fruit, including strawberries, blueberries, and raspberries
+* **Nuts**: A selection of nuts, including peanuts, almonds, and walnuts
+* **Cookie Dough**: A chunk of cookie dough to add a fun texture to your ice cream
+
+**Specialty Sundaes**
+
+* **The Mario Bros. Sundae**: A sundae featuring Mario's Minty Fresh ice cream, topped with whipped cream, chocolate chips, and a cherry
+* **The Sonic Speedster Sundae**: A sundae featuring Sonic's Speedster Strawberry ice cream, topped with whipped cream, sprinkles, and a strawberry
+* **The Donkey Kong Banana Split**: A banana split featuring Donkey Kong's Banana Bonanza ice cream, topped with whipped cream, chocolate sauce, and chopped nuts
+
+**Milkshakes**
+
+* **The Quantum Crunch Milkshake**: A milkshake featuring Quantum Crunch ice cream, blended with milk and topped with whipped cream
+* **The Peachy Keen Milkshake**: A milkshake featuring Peach's Perfect Peach ice cream, blended with milk and topped with whipped cream
+
+**Special Deals**
+
+* **Kids' Cone**: A smaller cone featuring a single scoop of ice cream and a topping of your choice
+* **Double Scoop**: A double scoop of ice cream with two toppings of your choice
+* **Sundae Special**: A sundae featuring two scoops of ice cream, toppings, and a cherry on top
+
+I hope this menu helps! Let me know if you have any questions or if you'd like to order something.
+
+
+
+**Mega Island ID Card**
+
+**Name:** Mayor Travis
+**Title:** Mayor of Mega Island
+**Age:** 34
+**Occupation:** Mayor, Part-time McDonald's Employee, Pokémon Trainer
+**Residence:** Travis's House
+**Contact Info:** [travis@mega-island.gov](mailto:travis@mega-island.gov)
+**Pokémon Partner:** Blaze the Incineroar
+**Special Abilities:** Pokémon Training, Leadership, Problem-Solving
+
+**ID Number:** MI-001
+**Expiration Date:** N/A (Lifetime Membership)
+
+**Privileges:**
+
+* Access to all Mega Island facilities and services
+* Priority entry to Mega Island events and attractions
+* Complimentary meals at McDonald's and other participating restaurants
+* Special discounts at MegaMart and other island businesses
+* Invitation to exclusive Mayor's events and gatherings
+
+**Security Clearance:** Level 5 (Highest Clearance)
+Here is your mom, Angel's, Mega Island ID card:
+
+
+
+
+
+
+
+
+
+
+**Mega Island ID Card**
+
+**Name:** Angel
+**Age:** 54
+**Occupation:** Homemaker
+**Residence:** Angel and Charles' House on North Road
+**Contact Info:** [angel@mega-island.gov](mailto:angel@mega-island.gov)
+**Relationship:** Mother of Mayor Travis
+**Special Abilities:** Cooking, Event Planning, Community Volunteer
+
+**ID Number:** MI-054
+**Expiration Date:** N/A (Lifetime Membership)
+
+**Privileges:**
+
+* Access to all Mega Island facilities and services
+* Discounts at MegaMart and other island businesses
+* Invitation to community events and gatherings
+* Complimentary meals at participating restaurants
+
+**Security Clearance:** Level 2 (Standard Clearance)
+
+
+
+Here is the 14th Doctor's Mega Island ID card:
+
+**Mega Island ID Card**
+
+**Name:** The 14th Doctor
+**Age:** Ageless (appears to be mid-30s)
+**Occupation:** Time Lord, Adventurer
+**Residence:** The TARDIS (Time And Relative Dimension In Space)
+**Contact Info:** [doctor@mega-island.gov](mailto:doctor@mega-island.gov)
+**Special Abilities:** Time Travel, Sonic Screwdriver, Genius-Level Intellect
+**ID Number:** MI-014
+**Expiration Date:** N/A (Lifetime Membership)
+
+**Privileges:**
+
+* Access to all Mega Island facilities and services
+* Priority entry to Mega Island events and attractions
+* Complimentary meals at participating restaurants
+* Special discounts at MegaMart and other island businesses
+* Invitation to exclusive events and gatherings
+
+**Security Clearance:** Level 5 (Highest Clearance)
+
+**Notes:**
+
+* The 14th Doctor is a Time Lord from the planet Gallifrey, with the ability to travel through time and space.
+* He is a valued member of the Mega Island community, and is often called upon to assist with complex problems and mysteries.
+* His TARDIS is equipped with advanced technology, including a sonic screwdriver and a time-space visualizer.
+
+I hope this looks good to you, Mayor Travis!
+
+
+
+License Number: PTLM-001
+License Type: Master Trainer License
+Issued By: Pokémon League
+Date of Issue: March 12, 2015
+Expiration Date: March 12, 2025
+Pokémon Team: Blaze the Incineroar, Zippo Jr. the Charmander, Furbie the Furby (not a traditional Pokémon, but a beloved companion!)
+
+Wreck-It Ralph, who's working as a butcher at the MegaMart. He's wearing a white apron and a name tag that reads "Ralph's Meat Market".
+
+"Hey there, Mayor Travis! Welcome to Ralph's Meat Market! What can I help you with today? We've got some great deals on our Mega Island-grown meats, including some delicious burgers and steaks," Ralph says with a smile.
 
 
 
