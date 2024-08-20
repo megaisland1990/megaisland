@@ -4579,6 +4579,2411 @@ Luffy refers to Yamato by the nickname {{Nihongo|"Yama-o"|ヤマ男}}, similar t
 {{References}}
 {{Monkey D. Luffy Tabs Bottom}}
 [[Category:Character Subpages]]
+{{Monkey D. Luffy Tabs Top}}
+
+==Past==
+===Childhood===
+Luffy was born 19 years ago in [[Foosha Village]] to [[Monkey D. Dragon]] and an unknown woman. Dragon left Luffy in the care of his grandfather, [[Monkey D. Garp]], who did many dangerous things to Luffy to make him stronger, like throwing him down a deep ravine, leaving him alone in the wild, and tying him to a balloon.{{Qref|chap=432|page=3|ep=314}}
+
+[[File:Luffy Stabs Himself.png|thumb|left|210px|Luffy inflicting the scar on his face.]]
+
+When Luffy was 6, [[Shanks]] and the [[Red Hair Pirates]] stationed themselves in Foosha Village. While they were there, their sniper [[Yasopp]] frequently told Luffy that he had a son his age named [[Usopp]].{{Qref|name=c25|chap=25|ep=10}} Luffy wanted to join the Red Hair Pirates, and after they had been in the village for nearly a year, he stabbed himself under his left eye to prove he was tough enough to be a pirate.
+
+Luffy and the Red Hair Pirates then went to the Partys Bar, where Luffy continued to get Shanks to let him join them unsuccessfully. He found the [[Gomu Gomu no Mi]] in a chest and ate it with his meal, not knowing what it was. As he did this, the mountain bandit [[Higuma]] and his gang entered the bar and demanded sake. The bartender [[Makino]] informed them that the Red Hair Pirates had consumed all the sake available, and when Shanks offered him the last bottle, Higuma smashed it against his head. Shanks only responded by cleaning up the mess, and Higuma abused him some more before leaving. Luffy was outraged that Shanks did not retaliate, and Shanks grabbed his arm when he tried to leave, causing it to stretch. The Red Hair Pirates realized in shock that Luffy had eaten the [[Devil Fruit]] they took and revealed to Luffy that he would never be able to swim for the rest of his life.
+
+<div style="float:right">[[File:Shanks Saves Luffy.png|thumb|210px|Shanks loses his left arm while saving Luffy.]]</div>
+
+The Red Hair Pirates later set sail, and Luffy enjoyed his new rubber body. One day, he was sitting in the Partys Bar when Higuma's gang returned. Luffy picked a fight with them, and they quickly overpowered him. Before Higuma could kill Luffy, the Red Hair Pirates then arrived, and [[Lucky Roux]] shot one of the bandits that threatened them before [[Benn Beckman]] defeated the rest of Higuma's men by himself. However, Higuma threw a smoke bomb and escaped to sea with Luffy. There, he kicked Luffy overboard, and a [[Sea King]] known as the [[Lord of the Coast]] came and ate Higuma before going to eat Luffy. However, Shanks then arrived and saved Luffy before scaring away the Sea King; however, Luffy was left deeply saddened due to Shanks having lost his left arm in the process of saving him.
+
+{{Cquote|Master Rayleigh, I was really surprised!! Over in the East Blue...! There was a kid who said the same things as Captain Roger...! Those exact same words as the captain!|2=Shanks to [[Silvers Rayleigh]], talking about Luffy}}
+
+Later, the Red Hair Pirates prepared to depart Foosha Village for good, and Luffy had decided that he would instead set sail on his own. Shanks teased him about being too weak, and Luffy declared that he would become the [[Pirate#Pirate King|Pirate King]] and form a stronger crew than Shanks'. In response, Shanks gave Luffy his [[Straw Hat#Gol D. Roger/Shanks/Monkey D. Luffy|straw hat]], telling him to return it once he had become a great pirate.{{Qref|name=romancedawn|chap=1|ep=4}}
+
+===Luffy's New Family: Bandits and Brothers===
+After the Red Hair Pirates left, Garp took Luffy to [[Mt. Colubo]] and placed him in the care of the mountain bandit [[Curly Dadan]] and the [[Dadan Family]]. He introduced Luffy to Dadan's other ward [[Portgas D. Ace]], but Ace was cold toward Luffy.{{Qref|chap=582|ep=493}} Every day, Ace would travel away from the Dadan Family hideout, and Luffy attempted to follow him. Ace would put obstacles in his path to stop him, but Luffy continued following him.
+
+Eventually, Luffy made it to [[Gray Terminal]], where he found Ace counting money with a boy named [[Sabo]]. When Luffy went up to them, Ace and Sabo captured him and talked about killing him to keep their secret safe. [[Porchemy]] of the [[Bluejam Pirates]] then came walking through the woods, and as Ace and Sabo hid from him, they left Luffy to be captured. Porchemy took Luffy to his base and interrogated him about the money Ace and Sabo had stolen from his crew. Luffy refused to answer him, even when Porchemy nearly beat him to death with spiked gloves.{{Qref|chap=583|ep=493|ep2=494}} Ace and Sabo then came to the base and freed Luffy, with Ace beating Porchemy.
+
+[[File:Sakazuki (Ceremony) Infobox.png|thumb|left|210px|Luffy, Ace, and [[Sabo]] sharing sake to become "sworn brothers".]]
+
+After this incident, Luffy, Ace, and Sabo became friends and went on many adventures together, becoming known throughout the [[Goa Kingdom]].{{Qref|chap=584|ep=494|ep2=495}} One day, they went to a restaurant in Goa and broke out without paying. As they ran away, a man called out to Sabo, though Sabo did not respond. After escaping the city, Luffy and Ace forced Sabo to tell them who the man was. Sabo admitted that the man was his father and a member of Goa's nobility; he had run away from his family due to their preoccupation with maintaining their status. Luffy, Ace, and Sabo then shared their dreams, deciding to sail as pirates to achieve them when they turned 17. They then [[Sakazuki (Ceremony)#Brothers' Sake Cups|exchanged sake cups]] to become sworn brothers, solidifying their bond.
+
+The three brothers continued adventuring and honing their abilities, with Luffy struggling to attack properly with his Devil Fruit. However, their time was cut short as Sabo's father had the Bluejam Pirates capture Luffy and Ace to force Sabo to return to his family. Sabo agreed to return on the condition that the Bluejam Pirates do not harm Luffy and Ace.{{Qref|chap=585|ep=496}} After Sabo left, [[Bluejam]] put Luffy and Ace to work moving boxes around Gray Terminal. A few days later, Bluejam told the two brothers to help him burn down Gray Terminal that night. Luffy and Ace refused, and Bluejam asked about the location of their treasure. They did not tell him, causing him to tie them to a pole in Gray Terminal.{{Qref|chap=586|ep=500|ep2=501}} As night fell, the Bluejam Pirates set Gray Terminal ablaze, and Ace managed to free himself and Luffy as flames surrounded them. The Bluejam Pirates then confronted the duo with getting the location of their treasure, but Ace knocked most of them out with [[Haki/Haoshoku Haki|Haoshoku Haki]] before the Dadan Family came to the rescue. Luffy fled Gray Terminal with the Dadan Family, while Ace and Dadan stayed behind to fight Bluejam.{{Qref|chap=587|ep=501}}
+
+[[File:Gomu Gomu no Pistol.png|thumb|210px|Luffy punching out the Lord of the Coast with his improved '''Gomu Gomu no Pistol'''.]]
+
+The following day, Ace and Dadan returned to Mt. Colubo, heavily injured but alive. However, [[Dogra]] later told Luffy and Ace that Sabo had been killed by a [[World Noble]] while setting out to sea, leaving them devastated. Luffy went to the coast and cried all night, and Ace came to him the next morning.{{Qref|chap=588|ep=503}} Luffy made Ace promise that he would not die, swearing to become stronger. For the next seven years, the two continued adventuring and training to get stronger, with Luffy learning to throw effective long-range punches with his stretching. A 14-year-old Luffy then bid farewell to Ace, who sailed out to sea as a pirate upon turning 17. During this time Luffy was being chased by a tiger after bonking its head, while [[Bartholomew Kuma]] was onboard his ship in the [[East Blue]] awaiting orders.{{Qref|chap=1100|page=17|ep=}} A year later when Luffy was 16, he was training a [[Gomu Gomu no Mi/Techniques#Gomu Gomu no Ono|special attack]] he planned on using in the future enemies that might beat or capture a future member of his crew he planned on starting. Kuma observed Luffy using this attack thinking back on a past conversation he had with his father Dragon before disappearing, Luffy however briefly sensed Kuma's disappearance wondering where it came from but assumed it must have been another animal on the island before setting out to hunt it.{{Qref|chap=1101|page=3-5|ep=}} Another year passed before Luffy became a pirate himself, and he bid farewell to the Dadan Family before going to Foosha Village to say goodbye and set sail.{{Qref|chap=589|ep=504}} When the Lord of the Coast emerged to confront him, Luffy punched it away with '''Gomu Gomu no Pistol'''. As he sailed, Luffy plotted to recruit ten crewmates, get a [[Jolly Roger]], and become the Pirate King.{{Qref|name=romancedawn}}{{-}}
+
+==East Blue Saga==
+===Romance Dawn Arc===
+[[File:Luffy Fights Alvida.png|thumb|left|210px|[[Alvida]] ineffectively strikes her mace against Luffy's rubber body.]]
+
+The first thing that Luffy came across on his voyage was a whirlpool, which pulled his ship in. Luffy managed to survive by hiding in a barrel, which washed ashore on [[Goat Island]]. The [[Alvida Pirates]]' cabin boy [[Koby]] rolled the barrel to a storehouse, and some of his crewmates went to open it, causing Luffy to knock them out as he emerged accidentally. Luffy asked Koby for a ship, and Koby gave him a boat he had made to escape, revealing that he was serving the Alvida Pirates against his will but was too afraid to try to get away. Luffy did not think much of Koby's lack of resolve, telling the cabin boy that he intended to become Pirate King. Koby's captain [[Alvida]] then came and destroyed the boat, but as she confronted Koby, the cabin boy found the resolve to stand up to her. Luffy was impressed with Koby and intercepted Alvida's attempt to strike Koby with her mace. The mace did not affect Luffy, and he knocked out Alvida with one punch. Luffy then told the Alvida Pirates to get him and Koby a boat, and they complied.
+
+[[File:Luffy Asks Zoro to Join Crew.png|thumb|210px|Luffy asking the bounty hunter [[Roronoa Zoro|Zoro]] to become the first of his crew.]]
+
+As they sailed, Koby was concerned about the fate Luffy would meet when sailing on the [[Grand Line]], known as the pirate's graveyard. Luffy replied that he would assemble a powerful crew, starting with the powerful [[Bounty Hunter|bounty hunter]] [[Roronoa Zoro]].{{Qref|chap=2|ep=1}} With Koby's navigation skills, they made it to [[Shells Town]] where Zoro was being held captive by the Marines led by [[Captain (Marine Rank)|Captain]] [[Morgan]]. After eating at a restaurant, Luffy and Koby prepared to split up at the Marine base. Luffy looked over the wall and saw Zoro tied up, and Zoro offered to help him if he was freed. Luffy and Koby then watched as a little girl named [[Rika]] climbed over the wall to feed Zoro some rice balls. However, Morgan's son [[Helmeppo]] then came and stopped her, having his Marine guards throw her over the wall. Luffy caught Rika, and as Helmeppo's group left, he climbed over the wall to talk to Zoro. Zoro refused to join Luffy's crew, saying Helmeppo had promised to let him go free if he could survive without nourishment for a month. However, he asked Luffy to feed him Rika's rice balls that Helmeppo had smashed into the ground and told him to tell Rika that they were delicious.
+
+Luffy returned to Shells Town and relayed the message to Rika, and she revealed that Zoro was imprisoned after protecting her from Helmeppo's [[Soro|dog]]. Helmeppo then came into town and announced to the citizens that Zoro would be executed, and when Luffy questioned his promise, he revealed that it was a lie. Luffy then punched Helmeppo,{{Qref|chap=3|ep=2}} and as Koby held him back from attacking him more, Helmeppo said his father would get revenge on Luffy. Luffy then went back to the Marine base to recruit Zoro again. When he found out that The Marines had confiscated Zoro's sword, Luffy went to find them and offer to give them back if Zoro joined his crew. Hearing voices on the roof of the base, Luffy stretched his arms and pulled himself up. However, he sent himself flying over the top and grabbed ropes that the Marines were using to erect a statue of Morgan, causing the statue to fall and break. Luffy then captured Helmeppo and ran inside, telling Helmeppo to give him the location of Zoro's sword.{{Qref|chap=4|ep=2}} Helmeppo did so, and Luffy used him as a shield to keep from being shot by the Marines. Luffy went to Helmeppo's room, where he saw three swords. Seeing Zoro and Koby being confronted by Morgan and the Marines outside, Luffy took all the swords and jumped out the window, intercepting the bullets being shot at Zoro and Koby.
+
+Luffy's rubber body absorbed the bullets and sent them flying back at the Marines. Zoro said that all three of the swords were his, and agreed to join Luffy if they survived this battle.{{Qref|chap=5|ep=2}} As Luffy tried to untie Zoro, Zoro told him to give him his swords instead. Zoro cut himself free to intercept the charging Marines, and Luffy kicked all of them away. As Morgan told his subordinates to shoot themselves, Luffy attacked the Marine captain and quickly overpowered him. Helmeppo then threatened to shoot Koby, and Luffy turned to attack him, turning his back on Morgan. However, Luffy was able to punch Helmeppo as Zoro cut down Morgan.{{Qref|chap=6|ep=3}} To the pirates' surprise, the Marines celebrated the defeat of their captain.
+
+Luffy, Zoro, and Koby then went to eat at Rika's family's restaurant, but the Marines came and told them they had to leave. They questioned if Koby was going with them, and Luffy started talking about Koby's past to goad Koby into hitting him. This plan worked, and Koby joined the Marines. As Luffy and Zoro set sail, Koby and the Marines came to the coast and saluted them as thanks for freeing them from Morgan.{{Qref|chap=7|ep=3}}
+
+===Orange Town Arc===
+As they sailed toward the Grand Line, Luffy and Zoro realized that neither of them had any navigation ability. They quickly grew hungry, and Luffy attempted to catch a [[Pinky|bird]] flying above them, only to be dragged away by the bird. The bird flew over [[Orange Town]], where the [[Buggy Pirates]] shot a cannonball at it. The bird dropped Luffy into the cannonball's path, blasting him onto the ground between a woman and a group of Buggy Pirates chasing her. The woman greeted Luffy as her boss, causing the pirates to attack him to find a treasure map she had stolen. They knocked Luffy's hat off, causing him to defeat them quickly. Afterwards, the woman asked Luffy if he wanted to join her, saying her name was [[Nami]], and she stole from pirates.{{Qref|chap=8|ep=4}}
+
+Luffy refused to join Nami, and they went into a house as she told him that she was planning to use Captain [[Buggy]]'s treasure map to reach the Grand Line and rob even more powerful pirates. When he found out that Nami was a skilled navigator, Luffy asked her to join his crew, but she refused due to hating pirates. However, Nami said she would go with him if he went with her to visit Buggy. Luffy did so, but to his shock, Nami tied him up and offered him to Buggy as a prisoner, causing Buggy to put him in a cage.{{Qref|chap=9|ep=5}} As the Buggy Pirates partied on the roof of the tavern, Luffy tried biting through the bars and pleading to be let go. Buggy decided to execute Luffy with a [[Buggy Balls#Buggy's Balls|Buggy Ball]], and he leveled an entire row of houses to demonstrate its power. He told Nami to fire the Buggy Ball at Luffy, but she decided not to and rebelled against the Buggy Pirates. As the Buggy Pirates went to attack her, Zoro arrived and stopped them. Zoro then cut Buggy into pieces,{{Qref|chap=10|ep=5}} but Buggy revealed that he could separate his body parts at will with the [[Bara Bara no Mi]] as he stabbed Zoro with his disembodied hand. Luffy then called Buggy "Big Nose", causing Buggy to send one of his hands to cut Luffy with a knife. However, Luffy caught and broke the knife with his teeth, and he had Zoro and Nami flip the cannon around and fire the Buggy Ball at the Buggy Pirates.{{Qref|chap=11|ep=5|ep2=6}}
+
+[[File:Luffy Knocks Out Mohji.png|thumb|left|Luffy defeats Mohji with one punch.]]
+
+Afterwards, Zoro picked up the cage and dragged Luffy away from the tavern. In front of a pet food store, they stopped in front of a dog named [[Chouchou]] was guarding. Luffy poked Chouchou to see if he was alive, causing Chouchou to attack him. Nami then found Luffy and Zoro and gave them the key to Luffy's cage, but Chouchou immediately ate it. As Luffy was shaking Chouchou, Mayor [[Boodle]] came and told him to stop, explaining why Chouchou stood in front of the store. Buggy's subordinate [[Mohji]] then came to confront Luffy on his lion [[Richie]], and Richie destroyed the cage in a single attack. The lion then hit Luffy through a house and onto the street behind it, though Luffy was unharmed.{{Qref|chap=12|ep=6}} Luffy then walked back to find Zoro, and he saw that Mohji had set the pet food store ablaze. He confronted Mohji and Richie and defeated the lion by spinning his arms around before grabbing his face and spinning him facefirst into the ground. Luffy then grabbed Mohji and defeated him with one punch to the ground. Luffy went back to the store and gave Chouchou the pet food that Mohji had taken.{{Qref|chap=13|ep=6}}
+
+Boodle had enough of Buggy's tyranny and went to fight him, and Buggy demolished many of the buildings around them with a Buggy Ball. Zoro emerged unharmed from the destruction, and Luffy intended to help Boodle. Nami agreed to work with him, even though she still refused to be a pirate.{{Qref|chap=14|ep=6}} Luffy came to the tavern, where he removed Buggy's disembodied hand from Boodle's neck. Boodle protested against the pirates helping him, and Luffy knocked him out because he was getting in their way. Luffy insulted Buggy again, and the pirate shot a Buggy Ball at him. However, Luffy ballooned himself with '''Gomu Gomu no Fusen''' and sent the Buggy Ball flying back, demolishing the tavern.{{Qref|chap=15|ep=6|ep2=7}} Buggy emerged from the wreckage and threw Mohji at Luffy, and Luffy easily kicked him aside.{{Qref|chap=16|ep=7}} Luffy then watched as Zoro battled [[Cabaji]], and as Nami went to a shack to steal Buggy's treasure, Luffy stomped on Buggy's hand to prevent him from interfering in Zoro's fight, allowing Zoro to defeat Cabaji.{{Qref|chap=17|ep=7}}
+
+Luffy then confronted Buggy, and dodged the clown's long-distance knife strikes with his disembodied hands and legs. Buggy split off his body parts to dodge Luffy's attacks and managed to graze Luffy's face and damage his straw hat with a knife before stabbing the straw hat again. Luffy was enraged to see Buggy damaging his hat, which Buggy recognized as he was once on the same ship as Shanks. Luffy punched Buggy in the stomach, telling him never to compare himself to Shanks.{{Qref|chap=18|ep=7}} Buggy then detached his torso and flew to attack Nami,{{Qref|chap=19|ep=8}} but Luffy stopped him by kicking his groin. Buggy split himself into many pieces and flew them around to prevent Luffy from attacking him, but Luffy noticed his feet on the ground and tickled them. While Buggy was caught off-guard, Nami attempted to hit him with a bag of treasure, but he grabbed it instead. However, Luffy ran up and kicked Buggy in the face, and he saw Buggy's map to the Grand Line fall to the ground. Buggy then attempted to reform his body but only got his hands and feet back as Nami had tied up his other parts. Luffy then hit Buggy with '''Gomu Gomu no Bazooka''', sending him flying off the island.{{Qref|chap=20|ep=8}}
+
+Luffy and Nami gathered up Buggy's treasure, with Nami agreeing to join the crew and find more treasure. They returned to Zoro and were confronted by the citizens, who were concerned about Boodle. Luffy admitted that he was a pirate and had knocked out the mayor, causing the citizens to chase after them in anger. However, Chouchou then stopped the citizens from chasing the Straw Hats, and Luffy left Buggy's treasure behind for the citizens to rebuild their town. They came to their boat and a boat that Nami had stolen from the Buggy Pirates, but the pirates she had stolen it from emerged from it to get revenge. However, they immediately ran away upon seeing Zoro. As the Straw Hats set sail, Boodle ran up to the dock and thanked them for saving him and the town. Later, Nami found out that Luffy left the money behind and got mad at him, but then laughed.{{Qref|chap=21|ep=8}}
+
+===Syrup Village Arc===
+====The Man in a Chest====
+[[File:Luffy and Gaimon Laughing.png|thumb|210px|Luffy and [[Gaimon]] laughing over their mutual inability to read a map.]]
+
+Nami fixed Luffy's straw hat, and Luffy and Zoro wondered what they should do next. When they spotted a [[Island of Rare Animals|nearby island]], they immediately rowed toward it despite Nami's protests. Luffy and Nami disembarked on the seemingly uninhabited island, leaving Zoro to sleep on the ship. Luffy and Nami met several strange animal hybrids, and a man called out to them from afar, calling himself the island's guardian and telling them to leave. Luffy and Nami ignored him, causing him to shoot Luffy. They then spotted the guardian, a man named [[Gaimon]] who was stuck in a treasure chest. Luffy and Nami talked to Gaimon and told them about their voyage, and he warned them that they would likely die trying to conquer the Grand Line. Gaimon then told them that he was once a pirate, and he had attempted to find treasure on this island on top of a cliff. However, he fell off the cliff and into a chest, and his crewmates had left him on the island; he could not even reach the treasure again due to being stuck in the chest.
+
+Luffy and Nami offered to go and get the treasure for Gaimon, and Luffy pulled himself up the cliff face. He said nothing once he got to the treasure, and Gaimon understood that the chests were empty. Luffy asked Gaimon to join his crew and find the One Piece with him, but Gaimon decided to remain behind on the island and continue taking care of the animals. The Straw Hats then bid farewell to Gaimon and sailed off the island.{{Qref|chap=22|ep=18}}
+
+====Meeting a Liar====
+Nami told Luffy that they needed to plan ahead to find a real ship and more crewmates before they headed to the Grand Line, and she plotted for them to sail to the nearby [[Syrup Village]]. When the Straw Hats made landfall, they noticed the [[Usopp Pirates]] spying on them from atop a cliff. The captain, [[Usopp]], tried scaring them away by claiming he had 80 million men, but they knew he was lying. They went with him to the village restaurant, and he said their likeliest chance of getting a ship was by asking [[Kaya]], a bedridden girl who lived in a mansion. Usopp offered to join the crew as their captain, but they refused.{{Qref|chap=23|ep=9}}
+
+Usopp then left to see Kaya, and the Straw Hats told his crewmates [[Ninjin]], [[Piiman]], and [[Tamanegi]] this when they came looking for him. The trio of children told the Straw Hats that their captain was telling lies to Kaya to cheer her up, and Luffy decided to ask Kaya for a ship. They came to her mansion and climbed over her gate and met her and Usopp at her window. However, Kaya's butler [[Kuro|Klahadore]] then came and confronted the group, saying he and Kaya could not give the Straw Hats a ship. He then degraded Usopp for being the son of a pirate, and as Usopp punched him, Luffy remembered hearing about Usopp from Yasopp.{{Qref|chap=24|ep=9|ep2=10}}
+
+Klahadore forced the Straw Hats and Usopp Pirates off the property, and Luffy left Zoro and Nami to find Usopp on the cliff over the coast. There, he revealed to Usopp that he had met his father. However, Luffy and Usopp then spotted Klahadore meeting with [[Jango]] on the beach below and overheard them plotting to murder Kaya so Klahadore could inherit her fortune.{{Qref|name=c25}} They found out that Klahadore was actually the pirate Kuro, and his crew, the [[Black Cat Pirates]], was planning to raid Syrup Village during Kaya's assassination. Luffy shouted at the duo that they had heard them, and Jango hypnotized Luffy to put him to sleep. Luffy fell off the cliff and was unharmed but remained asleep, so Kuro and Jango believed him to be dead and left him there.{{Qref|chap=26|ep=10}}
+
+Luffy was found by Zoro, Nami, and Usopp's underlings, and he told them about Kuro's plot. As they headed back to Syrup Village, Usopp came and lied to his crew that he had lied about the impending pirate attack.{{Qref|chap=27|ep=11}} As night fell, Usopp and the Straw Hats camped out on the beach, and Usopp swore to fend off the Black Cat Pirates, with the Straw Hats offering to help him. They decided to wait for the Black Cat Pirates at the path to the village and put oil on the path to impede their progress. However, they then heard the pirates coming from the north, and Usopp realized that they were heading toward Syrup Village from the opposite coast. He and the Straw Hats ran to the north, but Luffy went in the direction that felt coldest and so got lost.{{Qref|chap=28|ep=12}} Eventually, he and Zoro managed to make it to the north pass and beat back the Black Cat Pirates.{{Qref|chap=29|ep=12}} Jango hypnotized his subordinates to get up and become stronger, but Luffy fell under the hypnotism as well and charged toward the pirates. He easily beat all of them up and ripped off the stem and figurehead of their [[Bezan Black|ship]] to swing at them, but Jango then hypnotized him to fall asleep, causing him to collapse with the stem pinning him to the ground.{{Qref|chap=30|ep=13}}
+
+[[File:Gomu Gomu no Kane.png|thumb|left|Luffy defeats Kuro with Gomu Gomu no Kane.]]
+
+Luffy was eventually woken up by Nami stepping on his head and rejoined the fight, to which Kuro had arrived. Kaya then came and confronted Kuro, and as Kuro attempted to attack Usopp, Luffy punched the pirate in the chest from afar.{{Qref|chap=34|ep=14}} As Zoro and the Usopp Pirates went to protect Kaya, Luffy started battling Kuro.{{Qref|chap=36|ep=15}} Kuro dodged Luffy's attacks with his sheer speed and stood on Luffy's outstretched arm, allowing him to run on it and kick Luffy in the face. However, Luffy managed to intercept Kuro's left hand [[Cat Claws]] with a rock, allowing him to rip them off.{{Qref|chap=37|ep=15}} Luffy was then able to start keeping up with Kuro's quick movements and land more attacks on him.{{Qref|chap=38|ep=16}} In response, Kuro initiated his ultimate move '''Shakushi''', in which he raced around the clearing at a blinding speed and indiscriminately attacked both Luffy and his subordinates. However, as Kuro slashed Luffy across the chest, Luffy was able to grab onto his jacket and slam him to the ground. Luffy then wrapped his arms and legs around Kuro and headbutted him with '''Gomu Gomu no Kane''', defeating him.{{Qref|chap=39|ep=16|ep2=17}}
+
+Luffy threw Kuro back to the Black Cat Pirates, allowing them to run away. He then collapsed due to blood loss and was caught by Nami.{{Qref|chap=40|ep=17}} Later, Luffy, Zoro, and Nami were eating at the village restaurant when Kaya came to offer them a ship. She took them to the coast, where she and [[Merry]] presented them with a caravel named the [[Going Merry]]. Usopp then came rolling down to the coast to start his own voyage, but the Straw Hats told him to come aboard and join them. They then sailed away on the Going Merry, and partied as a crew of four.{{Qref|chap=41|ep=17}}
+
+===Baratie Arc===
+====The Floating Restaurant====
+[[File:Luffy Draws Straw Hat Jolly Roger.png|thumb|210px|Luffy's attempt to draw his Jolly Roger.]]
+
+As the Straw Hats sailed on their new ship, Luffy drew his vision of the crew's Jolly Roger, but Usopp drew a final version due to Luffy's poor art skills. Luffy then unsuccessfully attempted to hit a distant rock with the cannon. Usopp shot the rock perfectly, causing Luffy to deem him the crew sniper. Later, as the Straw Hats sat indoors, the bounty hunter [[Johnny]] came on board and caused a commotion. When Luffy came out, Johnny attacked him for shooting the rock that he was resting on. However, he stopped attacking when Zoro came out, as he had worked with Zoro in the past. Johnny revealed that his partner [[Yosaku]] was on the verge of death, and Nami recognized that Yosaku had scurvy and so instructed Luffy and Usopp to give him some lime juice. After Yosaku regained his strength, the Straw Hats decided that they needed a cook before going to the Grand Line, and the two bounty hunters told them they could find one to recruit at the floating sea restaurant [[Baratie]].{{Qref|chap=42|ep=18|ep2=20}}
+
+[[File:Luffy and Sanji Meet First Time.png|thumb|left|250px|Luffy meet Sanji, Baratie's sous chef.]]
+
+Two to three days later, the Straw Hats reached Baratie. The Marine Lieutenant [[Fullbody]] pulled up alongside them and had his crew fire a cannonball at the Merry. Luffy deflected the cannonball with '''Gomu Gomu no Fusen''', but accidentally sent it flying into Baratie. He was then apprehended by Baratie's staff and taken to the head chef [[Zeff]], and since he did not have money to pay for the damage, Zeff made him work in the kitchen for a year.{{Qref|chap=43|ep=20}} Luffy protested against this sentence, causing Zeff to attack him. However, their scuffle inadvertently caused them to fall through the floor. They fell into the seating area, where they saw the sous chef [[Sanji]] beating up Fullbody. [[Gin]] of the [[Krieg Pirates]] then came into the restaurant from Fullbody's ship but was forced out by the cooks due to not having any money. However, Luffy later watched from afar as Sanji secretly fed Gin outside and decided that Sanji would be his crew's cook.{{Qref|chap=44|ep=21}} Luffy then approached Sanji and Gin and attempted to recruit the former, but the sous chef declined. After hearing of Luffy's goal, Gin warned him against going to the Grand Line.
+
+Luffy was then put to work as a chore boy but was quickly ejected from the kitchen due to destroying the dishes and was reassigned to work as a waiter.{{Qref|chap=45|ep=21}} Two days later, Gin brought his captain [[Krieg|Don Krieg]] to Baratie, and Sanji fed the starving pirate despite the other cooks' wishes. However, Krieg then attacked Sanji after returning to full strength and decided to take over Baratie to take his crew back to the Grand Line after being chased out.{{Qref|chap=46|ep=22}} Luffy challenged Krieg to prevent him from conquering the Grand Line before him, and the cooks intended to fight as well. However, Zeff gave Krieg food to feed his starving subordinates outside.{{Qref|chap=47|ep=22}} As Krieg went out, a commotion suddenly started outside, and Luffy, Zoro, and Usopp went to check on Johnny and Yosaku. The bounty hunters were left hanging on the edge of Baratie, as they revealed that Nami had taken the crew's treasure and the Going Merry.{{Qref|chap=49|ep=23}}
+
+Intent on having Nami as his crew's navigator, Luffy told Zoro and Usopp to take Johnny and Yosaku's ship and chase after her. However, they then saw [[Dracule Mihawk]], the greatest swordsman in the world and a member of the [[Seven Warlords of the Sea]], approaching the Krieg Pirates' damaged galleon.{{Qref|chap=50|ep=24}} Luffy watched as Zoro confronted Mihawk to take his title. Still, Mihawk trounced him.{{Qref|chap=51|ep=24}} As Zoro fell into the ocean, Luffy pulled himself toward Mihawk and attempted to attack him. However, Mihawk revealed that he had left Zoro alive, as he was impressed with the swordsman. Mihawk hoped he would meet Luffy and Zoro again as he departed, leaving Krieg's galleon in ruins. Zoro, Usopp, Johnny, and Yosaku then left to pursue Nami, with Luffy staying on Baratie to fight the Krieg Pirates and recruit Sanji. Luffy asked Zeff if he could be relieved of his chore boy duties if he fought off the Krieg Pirates, and Zeff readily agreed.{{Qref|chap=52|ep=24}}
+
+====Battle for the Baratie====
+Luffy pulled himself toward the Krieg Pirates, and hit several of them at once with his outstretched arms. He watched as Baratie's front deck expanded and the cooks rushed into battle,{{Qref|chap=53|ep=25}} but Krieg then hit him away with a chained spiked ball. Luffy flew back to the Baratie and landed on the back of [[Pearl]]'s head, causing Krieg's subordinate to hit his face on his shield and get a nosebleed.{{Qref|chap=54|ep=25}} In response to being injured, Pearl lit himself on fire and forced Luffy and Sanji back with his flames. As Sanji fought Pearl, Krieg attempted to intervene by throwing his spiked ball, but Luffy hit it away. He sent the ball flying into Krieg's galleon's mast, causing it to fall onto Pearl.
+
+However, Gin then held Zeff at gunpoint,{{Qref|chap=55|ep=25}} forcing Sanji to stand down and take Pearl's attacks.{{Qref|chap=56|ep=26}} With Sanji refusing to fight, Luffy decided to destroy Baratie and shattered the front deck with '''Gomu Gomu no Battle Axe'''. Sanji was very angry with Luffy, as he wished to keep Zeff and the restaurant safe to honor his debt to the head chef, but Luffy told him that getting killed was a bad way to repay his debt. However, Gin attacked Pearl and defeated him with one blow, as he wished to repay Sanji for saving his life by taking Sanji on himself.{{Qref|chap=59|ep=26|ep2=27}} Luffy riled up the Krieg Pirates by failing to take them seriously, and Krieg fired an MH5 poison gas cannonball at him. Luffy tried to kick it away, but the cannonball turned out to be a shuriken bomb that cut Luffy with a burst of shuriken.{{Qref|chap=60|ep=27}} As Sanji battled Gin, Luffy charged toward Krieg to fight him but was forced back as Krieg rapidly fired stakes at him. Luffy tried charging again while Krieg was distracted but to the same result.
+
+[[File:Luffy Hits Krieg With Gomu Gomu no Bullet.png|thumb|210px|Luffy battling Krieg.]]
+
+Gin emerged victorious in his fight with Sanji but then broke down as he could not kill the cook.{{Qref|chap=61|ep=27}} In response, Krieg fired his MH5 ball at him. Luffy pulled gas masks off two of the Krieg Pirates and threw them at Sanji and Gin; he then desperately looked for one for himself and found one next to him right as the cannonball hit. However, after the poisonous gas cleared, Luffy realized that Gin had thrown his mask back at him, and the Krieg Pirate had thus inhaled the gas.{{Qref|chap=62|ep=27|ep2=28}} Angered at Krieg's attitude toward harming his subordinate, Luffy rushed toward him again and kept running even as stakes hit him. Krieg shrouded himself in a spiked cloak when Luffy geared up to punch him, but Luffy simply punched through it and injured his hand to hit him.{{Qref|chap=63|ep=28}}
+
+[[File:Luffy Breaks Krieg's Armor With Gomu Gomu No Bazooka.png|thumb|left|210px|Luffy breaks Krieg's armor.]]
+
+Krieg got up and repelled Luffy, but Luffy then kicked him in the head. In response, Krieg brought out his Great Battle Spear and overwhelmed Luffy as its swings caused explosions. He was eventually able to hit Luffy with the explosions, but Luffy could hit and shatter the spear blade in the process.{{Qref|chap=64|ep=28}} Krieg continued to try to hit him with explosions, but Luffy swung around the mast in the wreckage and barraged Krieg with attacks. Krieg was unharmed due to his Wootz Steel Armor and stood atop the mast as he unleashed bombs on the wreckage below. Luffy ran up the mast, and Krieg hit him with an explosion, but Luffy continued running and hit Krieg into the air. The attack did not harm Krieg, but Luffy then jumped over him in midair and slammed both fists into his chest with '''Gomu Gomu no Bazooka''', which finally broke his armor.{{Qref|chap=65|ep=29}} Although now injured, Krieg quickly responded by shooting an iron net around Luffy so he could throw him into the sea. However, Luffy managed to get his legs out of the net and twist them around until he clasped Krieg's face with his feet. He then spun Krieg around and slammed him into Baratie's deck with '''Gomu Gomu no Ozuchi''', defeating him. Luffy landed in the ocean but was quickly rescued by Sanji.{{Qref|chap=66|ep=29}}
+
+Luffy woke up on a bed in Baratie, and Sanji told him that Gin hoped to meet him again in the Grand Line. Luffy asked Sanji to join his crew, and Sanji wished to remain at Baratie, but did tell Luffy that he dreamed of going to the Grand Line someday to find the legendary sea [[All Blue]]. The Baratie cooks then fed Luffy, and they abused Sanji to try to get him to leave. When Sanji went outside, they told Luffy to take him as a crewmate,{{Qref|chap=67|ep=30}} but Luffy refused until Sanji himself accepted. Yosaku then swam to the Baratie, and told Luffy that they had tracked Nami's course to an unbelievable island. Luffy immediately went to head off, and Sanji then agreed to join him. Luffy and Yosaku boarded a small ship belonging to Sanji, and Sanji bid a tearful farewell to Zeff and his coworkers before he set sail with his new captain.{{Qref|chap=68|ep=30}}
+
+===Arlong Park Arc===
+====Encounter with the Worst Man of the East Blue====
+[[File:Luffy Draws Fish-Man.png|thumb|210px|Sanji laughing at Luffy's attempt to draw what a fish-man looks like.]]
+
+As Yosaku took Luffy and Sanji to Nami's location, he told them about the Seven Warlords of the Sea, one of [[Three Great Powers|three organizations]] with power over the Grand Line. He revealed that one of them, Captain [[Jinbe]] of the [[Sun Pirates|Fish-Man Pirates]], had unleashed a fearsome [[Fish-Men|fish-man]] known as [[Arlong]] into the East Blue, and Nami had likely gone to his base at [[Arlong Park]]. Luffy was intrigued to hear of fish-men and drew a picture of what he thought one would look like.{{Qref|chap=69|ep=31}} As Sanji prepared food for them, the giant sea cow [[Momoo]] approached the trio's ship. Luffy punched Momoo to keep it away from their food but only made it mad. Sanji tried to feed Momoo, but then beat the sea cow into submission after it wanted to eat him as well,{{Qref|chap=73|ep=32}} and so the crew made Momoo pull them to Arlong Park.{{Qref|chap=74|ep=33}}
+
+Momoo eventually reached Arlong Park and crashed into the shore, sending Luffy, Sanji, and Yosaku flying over the island on their ship. They landed in a clearing and crashed into Zoro in the process, and as the four of them recovered from the landing, Johnny ran toward them and revealed that Nami had killed Usopp. Luffy refused to believe Johnny and was about to attack him when Nami approached them.{{Qref|chap=75|ep=34}} She confirmed Johnny's report and told the Straw Hats to leave the island, saying she only pretended to be their friend to steal from them for her real captain Arlong. Johnny and Yosaku decided to take her advice and leave, but Luffy chose instead to lie down and take a nap. Sometime later, Usopp came across Luffy's group and revealed that Nami had only pretended to kill him to save his life from Arlong; he believed that Nami had an ulterior motive for working with Arlong. Nami's older sister [[Nojiko]] then approached the Straw Hats and told them that they should leave this island, but she offered to explain everything before they did.{{Qref|chap=76|ep=34}} However, Luffy had no interest in hearing her explanation and so walked away.{{Qref|chap=77|ep=34}}
+
+[[File:Luffy Stops Nami.png|thumb|left|146px|Luffy stops Nami from stabbing herself in anger over Arlong's treachery.]]
+
+Luffy walked to [[Cocoyasi Village]], and he watched as Marine [[16th Branch]] Captain [[Nezumi]] led a raid on Nami's home to confiscate the money she had stolen. Luffy asked Nami if he could help during the commotion, but she angrily told him she wanted nothing to do with him before running away.{{Qref|chap=80|ep=37}} Nami later returned to try to stop the villagers from going to attack Arlong, but failed. She then started stabbing her [[Arlong Pirates]] tattoo when Luffy grabbed her arm to stop her. Nami tried to get Luffy to leave, but she eventually broke down and asked him to help as he stayed. Luffy accepted this request as he put his straw hat on her head and headed for Arlong Park, and when he reached Zoro, Usopp, and Sanji, they immediately went along with him. Luffy then punched through the gate to Arlong Park and asked which fish-man was Arlong.{{Qref|chap=81|ep=37}}{{-}}
+
+====Destruction of Arlong Park====
+[[File:Luffy Punches Arlong.png|thumb|210px|Luffy starts his battle with Arlong by punching him.]]
+
+After Arlong identified himself, Luffy beat aside two of his subordinates before punching the fish-man. [[Hatchan]] then summoned Momoo to come to their aid, and although the sea cow was afraid of Luffy and Sanji, Arlong intimidated it into attacking. However, Luffy planted his feet in the concrete and grabbed onto Momoo's horns; he then spun it around Arlong Park, taking down several of the Arlong Pirates before hurling the sea cow into the ocean.{{Qref|chap=82|ep=38}} Luffy was unable to get his feet out of the concrete, though, forcing his crew to protect him and try to pull him out as they fought off the Arlong Pirates. Luffy attempted to punch Arlong but missed, and the fish-man tore off a chunk of the concrete that Luffy was stuck in and threw it into the pool, causing it to pull Luffy to the bottom.{{Qref|chap=83|ep=38}} Luffy could do nothing but hold his breath and could not hold it for long as he fell unconscious and started swallowing water.{{Qref|chap=84|ep=39}}
+
+Nojiko and [[Genzo]] swam down to Luffy and pulled his head above water before taking turns holding it and pumping his chest to force the swallowed water out.{{Qref|chap=86|ep=39}} Eventually, Luffy regained consciousness, and Sanji managed to go down and destroy the concrete chunk, causing Luffy's body to fly out of the pool. Luffy pulled himself toward Arlong and punched him with a variety of attacks that inflicted minor damage.{{Qref|chap=89|ep=41}} Arlong mocked Luffy for his physical inferiority as a human and questioned what skillsets Luffy had in comparison to his crewmates; Luffy simply replied that his skillset was beating Arlong.
+
+Arlong then attempted to bite Luffy with his powerful teeth, and Luffy tried breaking them only to find that the fish-man could instantly regrow them. Luffy knocked out multiple sets of Arlong's teeth and tried to use them as weapons,{{Qref|chap=90|ep=41|ep2=42}} but his attempt to bite Arlong did little damage due to his lesser jaw strength. Arlong responded by biting Luffy in the shoulder, but Luffy managed to dislodge the fish-man's jaw by slamming him into the ground, preventing his arm from being bitten off. Arlong then leaped at Luffy multiple times and stabbed him with his hard and sharp nose,{{Qref|chap=91|ep=42}} but Luffy was eventually able to respond by stretching his fingers into a net around Arlong and slamming him into the ground below. This attack only enraged Arlong, and he rapidly attacked Luffy with his saw-like sword [[Kiribachi]]. Arlong's attacks forced Luffy up the tower, and the fish-man eventually hit the pirate through the wall and into a room on an upper level.
+
+Arlong revealed that this room was where Nami spent the last eight years making sea charts for him to use to take over the East Blue, and Luffy grew enraged as Arlong spoke of Nami as little more than his property. After shattering one of the blades on Kiribachi,{{Qref|chap=92|ep=42}} Luffy started destroying the equipment in the room to prevent Nami from ever going there again, knocking them through the walls and causing them to fall to the ground below. Arlong bit Luffy's neck to stop him, but Luffy grabbed his nose and snapped it out of place. He then stretched his leg up and smashed Arlong through the floor with '''Gomu Gomu no Battle Axe''', sending him crashing all the way to the ground and defeating him. The destruction caused by the attack resulted in the tower collapsing,{{Qref|chap=93|ep=43}} but Luffy emerged from the wreckage victorious and declared that Nami was now his crewmate.
+
+Nezumi then stepped in with his men to announce that he would be taking the Arlong Pirates' money as well as the credit for their defeat, but the Straw Hats beat them up. As they swam away, Nezumi promised revenge on Luffy. Later, Luffy was with Zoro as the latter had his wound from Mihawk stitched up, and the doctor [[Nako]] recommended that they find a doctor for their crew.{{Qref|chap=94|ep=43}} The pirates and villagers then partied into the night, and Luffy encountered Genzo at a gravesite while looking for a raw ham melon. Genzo made it clear to Luffy that he would kill him if he made Nami stop smiling. On the day of departure, Johnny and Yosaku bid farewell to the Straw Hats as they resumed their lives as bounty hunters. As the Straw Hats waited for Nami to come aboard, she told them to start sailing from the back of the crowd of villagers. She then raced through the crowd and leaped onto the Merry, and Luffy laughed as she revealed that she had pickpocketed the villagers.{{Qref|chap=95|ep=44}}
+
+===Loguetown Arc===
+Nami purchased a newspaper as the Straw Hats were sailing, and the crew discovered that Luffy had received a {{B}}30,000,000 [[Bounties|bounty]] as his bounty poster slipped out of the paper. They decided it was time to head straight for the Grand Line, and came across an island known as [[Loguetown]] that was close to the entrance. Nami revealed that it was the site of the Pirate King [[Gol D. Roger|Gold Roger]]'s execution, so when the crew docked there, Luffy went to go see the execution platform.{{Qref|chap=96|ep=45}}
+
+{{Cquote|Have you ever seen a pirate who smiled at his execution stand? He smiled the same way that the Pirate King did 22 years ago in that very same spot!|[[Smoker]] about Luffy's failed execution.}}
+
+[[File:Buggy Executing Luffy.png|thumb|left|210px|Buggy attempts to execute Luffy.]]
+
+Luffy reached the execution platform and climbed up it. A police officer ordered him to come down but was then attacked by Alvida, who had become much thinner after eating the [[Sube Sube no Mi]]. Alvida said that she now admired Luffy after being defeated by him, but he did not recognize her. After she revealed who she was, the Buggy Pirates then made their entrance. Buggy revealed that he had formed an alliance with Alvida to get revenge on Luffy and sentenced him to a flashy execution as Cabaji trapped Luffy by forcing him to the floor and putting a block on his neck.{{Qref|chap=98|ep=52}} Buggy asked Luffy if he had any last words, and Luffy proclaimed to the crowd that he would become the Pirate King. Zoro and Sanji arrived and attempted to rescue Luffy, but with Buggy's sword swinging toward his neck, Luffy could only smile and accept his death.
+
+[[File:Buggy Fails To Execute Luffy.png|thumb|210px|Luffy smiling after his failed execution.]]
+
+However, lightning then struck and destroyed the execution platform, which incapacitated Buggy but left Luffy unharmed. Zoro and Sanji then dragged him away from the approaching horde of Marines and ran back to the Merry as a thunderstorm began.{{Qref|chap=99|ep=52}} On the way, they were confronted by the Marine [[Tashigi]], and Zoro stayed behind to fight her. Marine Captain [[Smoker]] then confronted them and used his [[Moku Moku no Mi]] abilities to grab Luffy with a plume of smoke. Luffy tried attacking Smoker, but the Marine turned his body into smoke to pass through the attack before subduing Luffy. However, a mysterious wanted man known as [[Monkey D. Dragon|Dragon]] then came to stop Smoker, and a powerful gust of wind forced Smoker away from Luffy. Luffy and his crew managed to run back to the Merry and set sail. As Nami navigated the crew through the powerful storm, she told them that the entrance to the Grand Line was past the lighthouse in front of them. Sanji brought a barrel to commemorate this moment, and each of the Straw Hats proclaimed their dream while placing one foot on top of the barrel. Once each of them had done this, they destroyed the barrel and headed for the Grand Line.{{Qref|chap=100|ep=53}}
+
+==References==
+{{References}}
+{{Monkey D. Luffy Tabs Bottom}}
+[[fr:Monkey D. Luffy]]
+[[de:Monkey D. Luffy]]
+[[es:Monkey D. Luffy/Historia]]
+[[pl:Monkey D. Luffy/Historia]]
+[[Category:Character Subpages]]
+{{Monkey D. Luffy Tabs Top}}
+
+==Arabasta Saga==
+===Reverse Mountain Arc===
+[[Nami]] navigated the Straw Hats up the [[Reverse Mountain]] where the four [[Sea Currents|ocean currents]] converge creating an upward draft.{{Qref|chap=101|page=|ep=}} They came to an unexpected surprise, which was a gigantic whale in their way. Fortunately, Luffy was able to slow down the [[Going Merry]] before it could hit the whale by firing a cannon. However in the process, Luffy's favorite seat, the Going Merry's figurehead, was broken. Angered by this, Luffy punched the whale's eye to the shock of the rest of Luffy's crew. In response to Luffy's attack, the whale swallowed the Going Merry. Fortunately, Luffy was able to grab the whale's tooth and jump on to its back before it could swallow him along with his ship and crew. As Luffy desperately tried to persuade the whale to spit out his ship and crew, Luffy found a hatch on the whale's back leading into the very whale itself.{{Qref|chap=102|page=|ep=}}
+
+Unable to do anything else from the outside, Luffy entered the whale through the hatch. While inside the whale, Luffy accidentally bumped into two strangely dressed people and into the whale's stomach as the whale began thrashing at the [[Red Line]]. Within the whale's stomach, Luffy was reunited with his crew and witnessed a scene between the two people he bumped into earlier and an old man living in the whale. From the scene, Luffy learned that the duo, [[Nefertari Vivi|Miss Wednesday]] and [[Mr. 9]], were planning to kill the whale for food and not even allow the old man, [[Crocus]], to stand in their way. Seeing this and Crocus' attempts to save the whale, Luffy took out the two trouble makers. For doing this, Luffy and his crew were led out of the whale by Crocus.{{Qref|chap=103|page=|ep=}}
+
+[[File:Laboon Anime Infobox.png|thumb|left|210px|Luffy paints over Laboon's scars as a mark of their promise to meet again.]]
+
+As Luffy's crew and ship were led out through a canal in the whale and outside to a nearby cape, Luffy and his crew were told about [[Laboon]]'s tale. From it, Luffy learned that Laboon had been waiting for over fifty years for [[Rumbar Pirates|some pirate friends of his]] who left him behind in the cape to journey the [[Grand Line]]. Luffy also learned that after Laboon heard in disbelief that the pirates might have abandon him, the whale was ramming the mountain itself in a futile attempt to reunite with them. Seeing Laboon's loyalty, Luffy decided to ease the lonely whale's pain, by ramming the Going Merry's mast into an open wound. Having caught the whale's attention, Luffy and the whale began to battle. However, in the middle of it, Luffy told Laboon that they would have to put the fight on hold since he was planning to travel the Grand Line. With this statement, Luffy touched Laboon's feelings and the whale agreed. Having given hope once again to Laboon, Luffy painted a crudely drawn painting of his Jolly Roger on Laboon's scars as a symbol of their pact to meet once again.{{Qref|chap=104|page=|ep=}}
+
+After rekindling Laboon's hopes once again, Luffy and the rest of his crew suddenly realized that their compass was not working. With that matter at hand, Luffy and the rest were then taught by Crocus about how the Grand Line works and how they needed a special compass called a [[Log Pose]]. Having discovered one of these compasses earlier after beating the two people earlier, Luffy presented it to Nami but unfortunately broke while in a small scuffle with [[Sanji]]. Fortunately, Crocus had an extra one for Luffy and his crew to use. In the midst of what was happening, Luffy and his crew also encountered again the two people who tried to kill Laboon. Learning that these two needed to report back to the company they were working for, Luffy and the rest were requested by them to give them a ride back to their island of [[Whisky Peak]]. Though a bit suspicious, they learned that Whisky Peak is on one of the paths that the Straw Hats needed to follow to travel the Grand Line anyway. Thus, Luffy and his crew took the two aboard and sailed towards Whisky Peak, leaving Laboon with the promise of returning once again.{{Qref|chap=105|page=|ep=62|ep2=63|Luffy's interaction with Laboon and learning how the Grand Line works.}}
+
+===Whisky Peak Arc===
+Upon arriving in Whisky Peak, Luffy and his crew were caught by surprise. Though the two people that they took aboard left before they could land, Luffy and his crew were welcomed graciously by the townspeople of Whisky Peak.{{Qref|chap=106|page=|ep=}} There, Luffy and his crew were treated as gods with a grand party. Luffy even ate more than the cooks could put out. Eventually, Luffy passed out from all the excitement of such a celebratory day.{{Qref|chap=107|page=|ep=}} However when he awoke later that night, Luffy came to a shocking sight. Scattered everywhere before Luffy were the beaten up bodies of the townspeople that served him and his crew.
+
+<div style="float:right">[[File:Luffy and Zoro Defeat Miss Valentine and Mr. 5.png|thumb|210px|Luffy and Zoro effortlessly dispatch Mr. 5 and Miss Valentine during their duel.]]</div>
+
+Upon learning from one of them that they were defeated by [[Roronoa Zoro|Zoro]], Luffy thought that Zoro attacked them as an act of ungratefulness. Confronting Zoro, Luffy and his first crewmate collided into a battle that apparently nothing could deter them from. The two were so immersed in their battle against one another that they completely ignored and defeated two other people in same scene, [[Gem|Mr. 5]] and [[Mikita|Miss Valentine]], who were apparently distracting them for some reason. It was only when Nami stepped in and interrupted their fight that the two calmed down to listen to reason.{{Qref|chap=106|chap2=113|page=|ep=64|ep2=67|Luffy's interactions in Whisky Peak and Luffy learning about Baroque Works.}}
+
+Luffy then learned everything that happened while he was asleep. He also learned that one of the two strangely dressed people that tried to kill Laboon before, Miss Wednesday, was actually Princess [[Nefertari Vivi]] of the kingdom of [[Arabasta]] in disguise. From her, Luffy learned that she, her pet duck [[Karoo]], and loyal retainer [[Igaram]] had infiltrated a secret criminal organization known as [[Baroque Works]] in order to learn the organization's reasons for meddling in their country's affairs. Also from Vivi, Luffy and his crew not only learned of Baroque Works' scheme to take over Arabasta but also that the criminal organization was led by none other than one of the [[Seven Warlords of the Sea]], [[Crocodile]]. Having gotten involved in all this, Luffy and his crew decided to help Vivi by taking her and Karoo to Arabasta while Igaram distracted Baroque Works with a disguise. However, in the midst of this plan, Luffy and the rest witnessed Igaram's ship engulfed in an explosion.{{Qref|chap=110|chap2=113|page=|ep=}} [[Nico Robin|Miss All Sunday]], Crocodile's partner and vice president of Baroque Works, suddenly announced herself as she sat on the Going Merry's sails. Fortunately, apart from some tense formalities between them and her, Luffy and his crew did not have to fight her as she let them go for her own reasons. Luffy and his crew were also warned by her of their next destination and even offered them an [[Nanimonai Island|alternate route]]. Luffy declined her offer despite protests from the rest of his crew.{{Qref|chap=114|page=|ep=}}
+
+Having survived from the ordeals of Whisky Peak and gaining a mission to help a princess, Luffy and his crew sailed away from Whisky Peak to their next destination, [[Little Garden]].{{Qref|chap=115|page=|ep=67|Luffy and crew accept to help Vivi, met Miss All Sunday, and sail off to Little Garden.}}
+
+===Little Garden Arc===
+
+[[File:Luffy, Vivi, and Karoo Dining with Dorry.png|thumb|left|210px|Luffy, Vivi, and Karoo befriend and dine with the giant Dorry at his home.]]
+
+Luffy and his crew eventually arrived at Little Garden. The jungle island fascinated Luffy, not only because of the adventure it could provide, but also because it contained all sorts of prehistoric animals, which ranged from saber-toothed tigers to dinosaurs. Luffy decided to venture out from their ship and explore. Vivi and Karoo decided to travel with Luffy to escape her boredom. Luffy learned that the reason the island was like this was due to the Grand Line's unique environmental conditions. The islands within in develop much more differently than they normally would, and the very island they were on was still in the dinosaur era. As Luffy ventured around the island with Vivi and Karoo, the three soon discovered something much larger than the dinosaurs on the island. In the midst of Luffy messing around with a Brontosaurus, the other members of the crew met a [[Giants|giant]].{{Qref|chap=115|page=|ep=}}
+
+Meeting [[Dorry]], Luffy and his companions were invited over to the giant's place. There, Luffy was treated to some dinosaur meat and got acquainted with Dorry. From the giant, Luffy learned that he was staying on Little Garden in order to settle an argument with another fellow giant, [[Brogy]], in battle. As the matter was being discussed, the island's volcano erupted, signaling the next match between the giants. With it, Luffy witnessed a titanic clash between two giant warriors that awed him.{{Qref|chap=115|chap2=116|page=|ep=70|ep2=71|Luffy arrives in Little Garden and learns about the wonders there.}} Eventually, the match ended in a draw and Luffy continued talking with Dorry. Learning further about Little Garden's magnetic field from Dorry, Luffy also learned about two of his crew staying with Brogy. Just as things seemed going well at the moment, something suddenly shocked Luffy and those with him. A barrel of sake that Dorry was drinking exploded. Since the sake was taken from Luffy's ship and given to Dorry by Brogy, Luffy and his crew were suspected of sabotaging the barrel. With this, Luffy and Dorry got into a fight.{{Qref|chap=117|page=|ep=}} Fortunately, Luffy was able to knock Dorry down. However, with this sudden turn of events, Luffy started to suspect that his crew were not the only ones on the island as neither they nor Brogy would do such a thing. Before Luffy and those with him could do anything else, the volcano erupted again and Dorry got back up.{{Qref|chap=117|chap2=118|page=|ep=72|Luffy has a fight with Dorry over suspicion of sabotaging his drink.}}
+
+With the next match being signaled and knowing that the giants' fight was tainted by someone else, Luffy tried to convince Dorry not to go. However, Luffy's words did not reach Dorry's ears due to the giant's pride and Luffy was pinned down by Dorry with the giant's home. Unable to get out of this predicament to help Dorry, Luffy suddenly encountered [[Usopp]], who had wandered into Dorry's home. Reunited with his crewmate, Luffy and Vivi recounted what had just happened and were likewise filled in by Usopp.{{Qref|chap=119|page=|ep=73|Luffy is pinned down by Dorry with the giant's home.}} As Luffy and his companions were figuring out what to do next, they heard the awful scream of Dorry being defeated by Brogy due to the tainted fight. Angered even more by this, Luffy was filled with more determination to find out who dishonored the giants' fight. Fortunately, Luffy did not have to wait long to find out who it was, as two of the perpetrators of the crime, Mr. 5 and Miss Valentine, suddenly came before Luffy and his companions, bringing a beaten up Karoo, who had separated from Luffy and Vivi at an earlier time. Because of his current predicament, Luffy was unable to aid his companions and was hit by an explosive kick caused by Mr. 5's [[Bomu Bomu no Mi]] powers. Unable to protect Vivi from these Baroque Works agents, Luffy and the other two with him were left for dead.{{Qref|chap=120|chap2=121|page=|ep=73|ep2=74|Luffy, Usopp, and Karoo are beaten down as Vivi is taken away.}}
+
+[[File:Luffy, Usopp, and Karoo Charge In.png|thumb|210px|Enraged Luffy, Usopp and Karoo charge in to save their friends from Baroque Works.]]
+
+As Luffy and the two with him were lying, they decided to get revenge for the atrocity caused by the Baroque Works agents. They eventually got back on their feet and charged immediately to where the Baroque Works agents were holding their friends.{{Qref|chap=121|page=|ep=}}
+
+Luffy and company arrived and found that their friends were being made into wax statues by [[Galdino|Mr. 3]]'s [[Doru Doru no Mi]] powers.{{Qref|chap=122|page=|ep=}} Luffy engaged in a battle with the artist while his comrades battled with the rest of the agents. Despite some complications from Mr. 3 and his partner, [[Marianne|Miss Goldenweek]], Luffy was able to free his captured friends with a little help from Usopp.{{Qref|chap=122|chap2=126|page=|ep=74|ep2=76|Luffy, Usopp, and Karoo fight against Mr. 3 and the other Baroque Agents, and free their captured friends.}}
+
+[[File:Gomu Gomu no Stamp.png|thumb|left|210px|Luffy defeats Mr. 3 after finding him among his wax copies.]]
+
+After finishing off Mr. 3, Luffy rejoined the rest of his crew to the marvelous relief. Due to the giants' weapons being worn out from one hundred years worth of fighting, Dorry was actually okay and had instead passed out from the wound inflicted. With everything done, Luffy and the rest went back to Dorry's place to treat his wounds. As Luffy and everyone were resting from the ordeal and wondering how to deal with the island's magnetic field, they were rejoined by Sanji, who brought with him some great news. From Sanji, Luffy and the rest learned that not only did Sanji trick Crocodile into thinking they were all dead by pretending to be Mr. 3 via a [[Den Den Mushi]] call, but the cook also brought with him the solution to their current problem, an [[Eternal Pose]] to Arabasta. With the Eternal Pose, Luffy and crew bid their farewells to the giants and set off.{{Qref|chap=127|chap2=129|page=|ep=77|Luffy and crew rest from their ordeals in Little Garden and sail on.}}
+
+As Luffy and crew sailed off from Little Garden, they were provided by the giants with an act of gratitude. With help from the giants' strength, Luffy and crew were able to pass through a giant goldfish and sail on.
+
+===Drum Island Arc===
+
+[[File:Vivi and Luffy Plead for the Help of a Doctor.png|thumb|240px|Vivi and Luffy plead for the help of a doctor.]]
+
+After Nami suddenly came down with a terrible sickness, the crew decided to alter their course from Arabasta and instead look for a nearby island to have Nami treated by a [[doctor]].{{Qref|chap=130|page=|ep=}} The crew was suddenly attacked by [[Wapol]], who demanded their log pose. The crew fought back and Luffy knocked him off the ship so they could continue forward as Wapol's crew cursed them and warned them that they would get their revenge.{{Qref|chap=131|page=|ep=}} The crew eventually arrived at a snow-covered land called [[Drum Island]], which was renowned for their advances in medicine. There, the current inhabitants tried to scare away the crew until Vivi lowered her head with Luffy in humility. The "leader" of the islanders, [[Dalton]], told the villagers to take the crew to the nearest town while Zoro and Karoo stayed behind on the Going Merry.{{Qref|chap=132|page=|ep=}} At the village, Dalton told the crew about the "witch" of the island, Dr. [[Kureha]], who was the only doctor left on the island. To make matters worse, there was no way to contact her as she lived on top of the mountain in the castle previously occupied by King Wapol. Hearing this, Luffy and Sanji decided to carry Nami up the mountain to the castle.{{Qref|chap=133|page=|ep=}}
+
+[[File:Lapahns Confronts Sanji and Luffy.png|thumb|left|210px|Luffy and [[Sanji]] beleaguered by Lapahns.]]
+
+On the way up, Sanji, Luffy, and Nami ran into some Lapahn, which are man-eating rabbits. Sanji fought off the Lapahns as Luffy, while carrying Nami, could not attack or be hit at the risk of Nami being injured as well.{{Qref|chap=134|page=|ep=}} Later, the Lapahns caused an avalanche, forcing Luffy and Sanji to escape downhill.{{Qref|chap=135|chap2=136|page=|ep=}} Unfortunately, the group was about to run into a sharp and rocky cliff when Sanji rescued them by kicking them out of the way, but Sanji was knocked unconscious in the process. Luffy, now carrying Nami and Sanji, later saved a buried Lapahn.{{Qref|chap=137|page=|ep=}} Soon, Wapol caught up to Luffy and attacked him after Luffy showed his back to them. Unable to attack, Luffy tried to flee. However, [[Chess]] and [[Kuromarimo]] caught up and were about to strike Luffy. At that moment, a large group Lapahns saved him in repayment for Luffy saving one of them earlier.{{Qref|name=Drum|chap=138|page=|ep=}}
+
+[[File:Luffy Protects Hiriluk's Flag.png|thumb|210px|Luffy protects [[Hiriluk]]'s flag.]]
+
+When Luffy climbed the [[Drum Rockies|mountain]] and reached the top, he nearly fell and was rescued by [[Tony Tony Chopper|Chopper]], who then took the three pirates to Dr. Kureha.{{Qref|name=Drum}} Later, Luffy and Sanji awakened and saw Chopper for the first time. They tried to cook and eat Chopper,{{Qref|chap=139|page=|ep=}} until he turned into a giant form and smashed them down, which greatly impressed Luffy. The Straw Hat captain asked Dr. Kureha to join his crew, but she declined.{{Qref|chap=140|page=|ep=}}
+
+Finally, Wapol arrived at the castle and began arguing with Dr. Kureha when Luffy suddenly punched him hard.{{Qref|chap=141|chap2=145|page=|ep=}} Wapol then retaliated by using his [[Baku Baku no Mi]] powers to turn into a house with cannons and fused Chess and Kuromarimo into [[Chessmarimo]]. Wapol then shot [[Hiriluk|Dr. Hiriluk]]'s [[Jolly Roger|flag]], a symbol that Chopper highly values. Wapol fired once again, but Luffy protected the flag.{{Qref|chap=147|page=|ep=}} Eventually, the fight began and Chopper started battling Chessmarimo while Luffy fought Wapol. However, Luffy was distracted by Chopper's fight (because of Chopper's ability to transform into several different forms thanks to the [[Rumble Ball]]), letting Wapol escape into the castle.{{Qref|chap=148|chap2=149|page=|ep=}}
+
+[[File:Gomu Gomu Gomu Gomu no Bazooka.png|thumb|left|Luffy defeats Wapol with Gomu Gomu no Bazooka.]]
+
+After Chopper won, Luffy went into the castle and kicked a now thin Wapol, who was harassing Nami. Wapol decided to open the weapons room and eat the weapons, but Nami had stolen the key. Wapol was chased up to the top of the castle, where he tried to attack using his special cannon, but it failed due to the snow birds living in there.{{Qref|chap=150|page=|ep=}} Wapol then tried to eat Luffy but was stopped so Wapol turned his tongue into a cannon for one final attack, but Luffy dodged it and sent him flying, causing Wapol to get stuck in the roof. Luffy then, ignoring Wapol's pleas for mercy and empty promises, sent him flying far away.{{Qref|chap=151|page=|ep=}}
+
+The Straw Hats regrouped at the summit and Dalton thanked Luffy and Chopper.{{Qref|chap=152|page=|ep=}} After some persuasion, Chopper decided to go with Luffy and his crew with Dr. Kureha's blessing. As the Straw Hats left, Dr. Kureha initiated Hiriluk's finished research, a powder that makes pink colored snow fall. The Straw Hats formally welcomed Chopper to the crew and continued on to their planned destination, Arabasta.{{Qref|chap=153|page=|ep=}}
+
+===Arabasta Arc===
+====An Okama, a Brother, and a Desert Crossing====
+
+[[File:Mr. 2 Shows His Power.png|thumb|210px|Luffy and the crew witnessing Mr. 2's ability to copy the appearances of others.]]
+
+With Chopper on board, Luffy and his crew journeyed onward to Arabasta with Vivi and Karoo. A few days later, while fishing with Usopp and Karoo, Luffy and crew picked up something strange as they passed through the sulfuric steam of an undersea volcano. The thing they accidentally picked up was an [[okama]] known as [[Bentham|Mr. 2 Bon Kurei]]. Having passed the steam at the same time Mr. 2's ship was passing through, Luffy and his fellow fishermen accidentally hooked the Baroque Works agent.{{Qref|chap=156|page=|ep=92|Luffy and crew met Mr. 2 Bon Kurei.}}
+
+Not initially knowing who this person was, Luffy and some of his crew immediately became friends with this flamboyant man as he put on a show for them with his [[Mane Mane no Mi]]. It was not until Mr. 2's crew came to pick him up that Luffy and his crew realized that he was an enemy. Fortunately, since Mr. 2 did not likewise know who they were, Luffy and his crew were spared at the time. However, since they were fortunate to meet such an opponent ahead of time, Luffy and his crew decided to take measures to protect themselves from his powers. Taking advice from Zoro, the crew wrapped bandages covering an X on their left wrists. This was so they could tell whether the person before them was the okama in disguise or not.
+
+[[File:Straw Hats Saved By Ace in Arabasta.png|thumb|left|210px|Luffy and the crew being saved by his big brother Ace from Smoker.]]
+
+Upon arriving at the port of [[Nanohana]] in Arabasta, Luffy immediately ran off ahead of his crew in search in food. Not caring for the recklessness of his actions, his search for food led him to a restaurant. In his haste to get to the restaurant, Luffy accidentally slammed two men straight through the back of the restaurant and through several houses. To his surprise, one of the men he knocked into was [[Smoker]]. Recognizing the [[Marines|Marine]], Luffy instantly ran away and was soon being chased by Smoker and his Marines all over the town. In the midst of the commotion, Luffy was saved by the other man he knocked over, his brother [[Portgas D. Ace|Ace]].{{Qref|chap=157|chap2=159|page=|ep=94|Luffy meets with Ace and Smoker again in Arabasta.}}
+
+Regrouping with his crew back on the Going Merry, Luffy explained things to them about Ace. As Luffy was talking, Ace appeared and momentarily asked Luffy and the other Straw Hats to join the crew he was under, the [[Whitebeard Pirates]]. Though Luffy bluntly refused the offer and even stated that he would fight against Ace's captain, [[Edward Newgate]], for the position of [[Pirate#Pirate King|Pirate King]], the brothers parted ways on friendly terms. Before sailing off, Ace gave Luffy [[Vivre Card|a strange piece of paper]] so that they could meet again. Ace also aided Luffy by obliterating some Baroque Works Billions and their ships.
+
+After sailing across the [[Sandora River]] and reaching the other side, Luffy and his crew began their journey to [[Yuba]] where Vivi hoped to persuade the rebel leader, [[Koza]], and his troops there to stop the senseless violence. Upon landing, there was a little incident where Luffy defeated and acquired 100 [[Kung-Fu Dugong]] apprentices. Though he could not bring such a large group along with him, he had formed an everlasting deep bond with the creatures. As Luffy and his crew were further explained by Vivi about the Dugongs, they passed through the once green town of [[Erumalu]] and were further enlightened regarding the problems and conspiracies facing Arabasta.{{Qref|chap=161|page=|ep=96|Luffy acquires 100 Kung-Fu Dugong apprentices and is further told about the problem in Arabasta.}}
+
+After traversing across the huge [[Sandora Desert|desert]] of Arabasta and acquiring a new companion, [[Matsuge]] the camel, Luffy and his fellow travelers reached Yuba. There, they discovered that the town was plagued by sandstorms and deserted except for one old man. This old man, [[Toto]], was an old acquaintance of Vivi, and from him, Luffy and the others learned that the rebels had moved due to the drought and sandstorms in Yuba. Though Toto was initially hostile to Luffy's group thinking that they were people wanting to join the rebellion, he changed his attitude towards them once he recognized Vivi and offered them shelter for the night.{{Qref|chap=162|chap2=165|page=|ep=96|ep2=104|Luffy and crew's adventure through the desert and discovery in Yuba.}}
+
+As the rest took up Toto's offer, Luffy decided to help Toto in his desperate search for water to restore the oasis of Yuba. Though slightly incapable of digging and falling asleep midway in digging, Luffy's efforts had helped Toto dig up some water. The next day as Luffy and the others prepared to travel to the rebel's new base, Luffy was given some of the water he dug up as a present from Toto. With this, Luffy and the others departed Yuba. Just as they were beginning their journey to [[Katorea]], the rebel's new base, Luffy did something that surprised the rest of them. He announced to all of them that he quit.
+
+As Luffy's comrades asked him to stop with this seemingly childish act, he told them his reasons. He explained that even if they stopped the rebels, that would not stop Crocodile. To completely solve the matter, Luffy explained that Crocodile himself must be defeated. As Luffy surprised everyone with his insight over the entire situation, Luffy told Vivi that her desire to save everyone was naïve as people die. This little statement started an argument between the two of them, which escalated in a small fight. As Vivi explained herself and told Luffy that risking her life to save everyone was the only thing she could do, Luffy asked her why she would not risk the Straw Hats' lives as well since they were her friends. Having stated this, Luffy moved Vivi to tears with his statement of trust and friendship.
+
+Seeing her in this state and seeing how she was the one who wanted Crocodile to be defeated, Luffy asked her where they could find him.{{Qref|chap=166|page=|ep=104|Luffy argues with Vivi and has a small fight with her.}}
+
+====Meeting Crocodile at Rainbase====
+Having understood each other, Vivi told Luffy and his crew where to find Crocodile, [[Rainbase]]. Regardless of the fact that Officer Agents would be waiting there, Luffy and his group pressed forward to confront the Warlord. Upon arriving at Rainbase, Luffy and Usopp were sent by the rest to ask for some much needed water after much journeying in the desert island. However, upon finding water in a bar, the two accidentally encountered Smoker and [[Tashigi]]. Soon enough, another large commotion was caused with Luffy and his crew being chased all around by the Marines. However, Luffy and some of his crew managed to escape from the pursuing Marines and headed into Crocodile's casino, [[Rain Dinners]].{{Qref|chap=167|chap2=169|page=|ep=105|ep2=106|Luffy and crew travel to and arrive at Rainbase.}}
+
+Though Luffy and his crewmates with him managed to get into the casino, they entered without Vivi to help them identify what Crocodile really looked like. To make matters worse, Smoker had caught up with them and started chasing them all around the casino. As they were running around, Luffy and those with him were tricked into falling through a trap door by the casino staff. Having fallen for the trick, Luffy and the others, including Smoker, found themselves trapped in a [[seastone]] cage. As they were pondering their current predicament, they were greeted by Crocodile.
+
+[[File:Luffy Meets Crocodile.png|thumb|210px|Luffy, his crew, and Smoker captured by Crocodile.]]
+
+Having finally met the one who orchestrated the whole mess in Arabasta, Luffy and the others with him were unable to do anything because of the cage they were in. As the situation developed with Vivi being brought before Crocodile by Miss All Sunday and the powers of the Devil Fruit Crocodile ate, the [[Suna Suna no Mi]], were revealed, Luffy and the rest learned of Crocodile's awful master plan as he mockingly explained it before them. As it went further, Luffy and the others found themselves being placed in a little game the Warlord decided to challenge Vivi in.{{Qref|chap=172|chap2=173|page=|ep=107|ep2=108|Luffy and the others with him are placed in a dangerous challenge by Crocodile for Vivi.}}
+
+Due to events being carried out, Luffy and the rest needed to get to [[Alubarna]], the capital of Arabasta, fast in order to stop the upcoming war. However, because of Luffy and those with him being stuck in a cage, Vivi would have to get the key that Crocodile presented and threw into a pit, where it was eaten by a [[Bananawani]]. Explaining further that he decided to flood the room they were in, Crocodile presented Vivi the choice between getting to Alubarna in time or saving Luffy and those with him before the room completely floods. As Crocodile was explaining this challenge to Vivi, Luffy overheard Toto being mentioned by the Warlord and soon learned that it was Crocodile that was causing the sandstorms that plagued Yuba.
+
+Angered by Crocodile's cruelty, Luffy urged Vivi to get the key so that he and the rest can beat Crocodile. Despite Luffy's encouragement, a single Bananawani proved too much for Vivi. Though all seems lost, Luffy and everyone heard a Den Den Mushi ring amidst the ensuing chaos.
+
+Recognizing Sanji's voice calling from the Den Den Mushi, Luffy and the others realized that there was still hope as Sanji and Chopper weren't captured. As events unfolded with this new development, Luffy and the rest found themselves depending on Vivi finding someone from the outside to get them out. In an attempt to free themselves, Luffy and the others tried to coax one of the Bananawani into biting open the cage. Though their attempt at breaking the cage through this failed, their hopes were however revived as Sanji finally showed up at the scene. With him, the key that Crocodile was found alongside a familiar foe, Mr. 3. Though the Baroque Works agent that came out of the Bananawani threw the key, Luffy and the others with him were however still able to escape the cage via Mr. 3's wax powers. Escaping just in the nick of time, Luffy and the others were able to get out. As the room flooded and they escaped, Luffy told Zoro to grab Smoker along with them.{{Qref|chap=174|chap2=176|page=|ep=108|ep2=109|Luffy and the others with him are saved by "Mr. Prince" in Rain Dinners.}}
+
+Having saved the Marine, Luffy and his companions were allowed to go free to get Alubarna. As they were thinking of a way to get to Alubarna fast they were greeted by Chopper who brought [[Hasami]], a giant crab friend of Matsuge whom they can ride on. However just as they were getting aboard, Vivi was literally hooked by Crocodile. Fortunately, Luffy freed her just in time as she was taken away. With Vivi safe, Luffy told his crew to go on as he faced off the Warlord by himself.
+As Luffy prepared to face Crocodile, he was told that the Warlord would humor him for three minutes. After that, Crocodile would leave for Alubarna to complete his scheme. With the time limit in mind, Luffy fought ferociously against his opponent. Though he attacked the best he could, it was however apparent that no matter how much Luffy attacked, he could not damage Crocodile.
+
+As they continued to fight one another, Luffy's arm was dehydrated by Crocodile. Using the water given by Toto however, Luffy was able to restore himself. Remembering the old man, Luffy declares that no matter how much Crocodile attacks Yuba with sandstorms, it will never be destroyed. As Luffy declared this, his three minutes were up.{{Qref|chap=176|chap2=178|page=|ep=110|Luffy fights with Crocodile in the desert.}}
+
+As the three minutes ended, Luffy witnessed Crocodile decide to do something horrible. Spurred on by Luffy, Crocodile created a massive sandstorm and sent it towards Yuba. Seeing this new development, Luffy desperately tried to stop Crocodile. Unfortunately in midst of all this, Luffy was impaled by the Warlord and left for dead in the sand.
+
+Despite being heavily wounded and buried in the sand however, Luffy still struggled with the will to fight. As he struggled, in a surprise turn of events Luffy was suddenly pulled out by Miss All Sunday. Having been pulled out from his sandy grave, Luffy was left in the care of [[Pell]], the hero of Arabasta that the Baroque Works agent defeated awhile back.{{Qref|chap=180|page=|ep=111|Luffy rescued by Miss All Sunday and left with Pell.}}
+
+====Battling Crocodile for the 2nd and 3rd Time====
+With Pell's help, Luffy was able to recover from his wounds and get a ride to Alubarna via Pell's Devil Fruit, the [[Tori Tori no Mi, Model: Falcon]]. Through various events that happened in the city, by the time that the two arrived at Alubarna, a great battle was being waged by the rebels and the royal army in the city square with a sandstorm covering the place. As they arrived, they got just in time to save Vivi, who was dropped by Crocodile from the palace walls. With Vivi safe, Luffy flung himself up the walls to face Crocodile again.{{Qref|chap=198|chap2=201|page=|ep=121|ep2=122|Luffy saves Vivi and fights Crocodile again.}}
+
+[[File:Luffy Defeated by Crocodile at Alubarna Palace.png|thumb|left|210px|Luffy dehydrated and defeated by Crocodile once again at the palace.]]
+
+During his previous fight, Luffy noticed that water made Crocodile unable to turn into sand as he and the water barrel that Toto gave were pierced by Crocodile's hook. Realizing this, he brought a huge barrel of water to aid him in his rematch against the Warlord. As Luffy thus fought Crocodile again, he soon realized that his barrel of water could easily be jeopardized. Figuring this out, Luffy decided to switch tactics by drinking all of his water and storing it within himself, essentially become what he dubbed "Mizu Luffy". While this new tactic infuriated his opponent, it however proved effective for Luffy. Though Luffy was aided greatly by water this time around, the fight however just made his opponent really mad.
+
+Having landed some good hits on Crocodile and angering the Warlord as well, Luffy had incurred the Warlord to use his most powerful technique. Though Luffy was able to evade Crocodile's devastating powers of erosion, he unfortunately got caught by his opponent. As Crocodile's hand held Luffy, he was severely dehydrated and was once again left for dead. Fortunately however, some water bubbles that Luffy misfired earlier revived him from his near death state. Rejuvenated once again, Luffy set off in search of his foe. Learning from Tashigi while on his search, Luffy headed to royal Arabasta tomb.{{Qref|chap=202|chap2=204|page=|ep=123|ep2=124|Luffy searches for Crocodile once again.}}
+
+As he ran, the wound from his chest unfortunately opened, and Luffy, feeling unusually faint, briefly fell unconscious. Recovering himself, Luffy noticed a passageway and ran down into the tomb. Eventually Luffy caught up with his foe once again in the collapsing ruins. Encountering each other, the two fought each other again, however having been severely wounded from his previous matches with Crocodile, Luffy used his own bloody body to negate Crocodile's powers this time around.
+
+[[File:Luffy Defeats Crocodile With Gomu Gomu no Storm.png|thumb|210px|Luffy finally defeats Crocodile with '''Gomu Gomu no Storm'''.]]
+
+As the climatic battle between Luffy and Crocodile commenced, Luffy was struck by Crocodile's poison hook. This however did not deter Luffy's resolve against his opponent. As the battle continued, Luffy kicked Crocodile into the air. Upon doing so, Luffy was blasted with one of Crocodile's powerful techniques. Luffy however withstood the attack and prepared to retaliate. Using a series of moves, Luffy propelled himself up to Crocodile to deliver the final blow. As a last resort, Crocodile tried to stop Luffy by turning his hand into blades.
+
+This however did not stop Luffy as he broke through the sand created weapons with his bare fist and delivered a flurry of punches onto his opponent.{{Qref|chap=204|chap2=210|page=|ep=124|ep2=126|Luffy battles Crocodile for the third time and finally defeats him.}} Delivering the punches, Luffy attacked Crocodile with such force that it penetrated a layer of pure bedrock and sent Crocodile flying, defeating the Warlord finally. Falling back into the ruins, Luffy was thanked by [[Nefertari Cobra]] for all he had done.
+
+After being given the vial of antidote to Crocodile's poison from Miss All Sunday, Luffy mustered what was left of his strength to carry both the king and the former Baroque Works agent out of the ruins. Having used the last of his strength, Luffy was then carried by the king to his crew.{{Qref|chap=211|chap2=218|page=|ep=127|ep2=130|Luffy saves Cobra and Nico Robin from the royal tomb before collapsing.}}
+
+====Farewell to Arabasta and Vivi====
+For their valiant heroism in saving Arabasta, Luffy and his crew were treated secretly as VIPs by the royalty for three days. Having fully recovered from his wounds from the battle with Crocodile on the third day, Luffy and his crew decided to leave before the awaiting Marines could catch them. Just as they were heading back to the Going Merry which was secured by Mr. 2 Bon Kurei before the Marines could find it, Luffy and the others offered Vivi the choice of joining the crew. They gave her until noon the next day.{{Qref|chap=213|page=|ep=128|Luffy and his crew are treated by the Arabastan royalty in secret.}}
+
+[[File:Straw Hat Friendship X Mark.png|thumb|left|210px|Luffy and the crew showing their X mark of camaraderie as a silent farewell to Vivi.]]
+
+Setting sail with the reformed Bon Kurei and his men the next day, Luffy and his crew encountered the blockade the Marines set up to capture them. Through a tearful sacrifice by Mr. 2, Luffy and his crew were able to escape the blockade to go to the rendezvous point to pick up Vivi. Arriving there, they found that Vivi had come as promised. However to their disappointment, she told them that she still had responsibilities as Arabasta's princess and could not come along. Despite this, Vivi asked them that if they ever meet again, would she be accepted to come along again.{{Qref|chap=214|chap2=216|page=|ep=129|Luffy and his crew leave Arabasta and show Vivi their sign of friendship.}}
+
+While Luffy and the others wanted to reply out loud to Vivi that she would still be accepted, they could not out of fear that the nearby Marines would implicate her as a criminal. Instead however, they quietly showed her the mark that they used to protect themselves if Mr. 2 impersonated one of them, a sign of their friendship. Having delivered their silent response to their friend, Luffy and his crew set sail away from Arabasta and onto their next adventure.
+
+Though depressed about not having Vivi on the crew, Luffy and the other came across a new development. Nico Robin, a.k.a. Miss All-Sunday from Baroque Works, had stowed away on the Going Merry and demanded Luffy take responsibility of saving her by letting her join his crew. Without much hesitation, Luffy agreed much to everyone's surprise.
+
+==Sky Island Saga==
+===Jaya Arc===
+====A Sunken Ship and a Lawless Town====
+Not long after Luffy and the Straw Hats left Arabasta, a massive ship fell from the sky and into the sea. From Nico Robin and a brief search of the sinking ship which wielded a map, Luffy and his crew learned that the ship fell from an island in the sky called [[Skypiea]].{{Qref|chap=217|chap2=219|page=|ep=130|ep2=131|Luffy and crew get Nico Robin in their ranks and learn of Skypiea as well.}}
+
+[[File:Luffy Finds Shiro Mokuba I.png|thumb|210px|Luffy exploring the sunken [[St. Briss]].]]
+
+Needing more info on the matter, Luffy and his crew decided to explore more of the ship. Using special diving suits created by Usopp, Luffy, along with Zoro and Sanji, explored the sunken ship. As they explored the ship and found few things, their search was cut short as the ship was suddenly clamped and filled with air, and a bunch of other people appeared. After taking care of the intruders within the newly created air pocket, the three encountered [[Masira|a monkey-like person]] bursting into the room. Although Luffy and the stranger initially got along, they unfortunately got on bad terms when they found out that they were after the same thing.{{Qref|chap=219|chap2=220|page=|ep=144|Luffy, Zoro, and Sanji explore the St. Bliss.}}
+
+Fortunately with thanks from his two crewmates, Luffy escaped from Masira and a giant turtle that ate the ship at the same time. As Luffy and the others were about to deal with this new foe, they suddenly witnessed something that completely scared them, the shadowy silhouettes of creatures several times larger than regular giants. After escaping from the creatures and getting rid of Masira who accidentally tagged along, Luffy and his crew learned of [[Jaya]] from an [[Eternal Pose]] that Robin stole from the guy. Needing info on how to get to Skypiea, Luffy and his crew sailed for Jaya.{{Qref|chap=221|page=|ep=145|Luffy and his crew escape from what appeared to be shadowy creatures bigger than giants.}}
+
+[[File:Luffy Meets Blackbeard.png|thumb|left|210px|Luffy's arguing with a [[Marshall D. Teach|certain bar customer]] during their first encounter.]]
+
+Arriving at Jaya at the port of [[Mock Town]], Luffy and his crew found that the place they landed on was a lawless town filled with pirates. Wanting to explore the town as well as get information, Luffy, along with [[Roronoa Zoro|Zoro]] and [[Nami]], went offshore into town. With a promise not to fight while in Mock Town to Nami, the three explored the place and encountered several of the inhabitants. They eventually end up in a bar wherein Luffy has a small argument with another [[Marshall D. Teach|customer]]. Though the incident ended without a hitch, Luffy and his companions encountered a much more serious one.
+
+Luffy and his companions soon encountered in the bar [[Bellamy]] and his [[Bellamy Pirates|crew]] with the intention of seeing if Luffy was worthy of joining his "New Age" of pirates. However upon learning that Luffy and his crew wanted to go to a Sky Island, Bellamy along with the rest of the bar started ridiculing them and the notion of dreams such as a Sky Island. Though the situation got worse with Luffy and Zoro taking hits from Bellamy's crew, they however refused to fight. As the two were dragged out by a frustrated Nami, the three were congratulated and encouraged by the pirate that Luffy argued with earlier. Though the man assured them that dreams would never die, Luffy and Zoro however sense something up with him and the people that are apparently associated with him.{{Qref|chap=222|chap2=226|page=|ep=146|ep2=147|Luffy, Zoro, and Nami's search in Mock Town.}}
+
+Returning to the Going Merry, Luffy and the others soon learn that while their search was unproductive, Robin's was successful. Learning that a man by the name of [[Mont Blanc Cricket]] might know something, they headed off to the other side of Jaya.{{-}}
+
+====The Saruyama Alliance and Knock Up Stream====
+
+[[File:Luffy Befriends Masira and Shoujou.png|thumb|210px|Luffy getting acquainted with Masira and Shoujou while Cricket recovers.]]
+
+After escaping a brief encounter with Masira's brother, [[Shoujou]], Luffy and his crew reached Cricket's home. There they had a brief misunderstanding with Cricket who they found out apparently suffered from decompression sickness. However upon helping Cricket and clearing things with him, Luffy and his crew were able to get better acquainted with the former pirate. For helping Cricket, they were also able to reconcile with Cricket's proteges, Masira and Shoujou.{{Qref|chap=226|page=|ep=147|Luffy and crew evade Shoujou.}}
+
+As they explained their problem and got acquainted with Cricket and his proteges, Luffy and his crew learned of Cricket's past and [[Mont Blanc Noland|his ancestor]]. Showing interest with Cricket's dream, Luffy and his crew convinced Cricket to help them out in getting to Skypiea. While having acquired help from someone who could aid them in getting to Skypiea, Luffy and his crew however found out that they needed an important thing to aid them, the [[South Bird]]. This bird as explained to them by Cricket, was needed to find a [[Knock Up Stream]] needed to help them get to Skypiea. Having been told this, Luffy and his crew quickly went in search for the bird.{{Qref|chap=227|chap2=230|page=|ep=148|ep2=149|Luffy and crew get acquainted with the Saruyama Alliance.}}
+
+Splitting into various groups, Luffy and his crew searched the nearby forest for one of these elusive birds. Though they encountered all sorts of obstacles and antics while searching for the bird, they were able to catch one in the end thanks to Robin. With the captured bird, they went back to Cricket's. Upon returning however, they discovered the horrid aftermath of an incident that happened while they were away, Cricket and his proteges were defeated and had been robbed by Bellamy and his crew.{{Qref|chap=230|chap2=231|page=|ep=149|ep2=150|Luffy and crew find a South Bird and discover the defeated Saruyama Alliance.}}
+
+[[File:Luffy Defeats Bellamy at Mock Town.png|thumb|left|210px|Luffy defeating Bellamy with a single punch for stealing Cricket's gold.]]
+
+Spurred on by this, Luffy decided to go after Bellamy and get his wounded friends' gold back. At Mock Town, Luffy was engaged by Bellamy who wanted to prove once and for all to those around him that Luffy and Cricket's dreams were nothing. Despite Bellamy's over the top display of his [[Bane Bane no Mi|Devil Fruit]] ability, Luffy however defeated the arrogant pirate with a single normal punch. Having completely obliterated Bellamy in front of his crew and the other pirates, Luffy was able to retrieve Cricket's gold without any further trouble.{{Qref|chap=232|chap2=233|page=|ep=151|Luffy completely defeats Bellamy.}}
+
+As the morning of the next day came, Luffy arrived back to Cricket's house. There he saw the newly modified Going Merry as he gave Cricket's gold back. With the new modifications for the trip up to Skypiea and the South Bird, Luffy and crew set sail with the ships of Masira and Shoujou escorting them. As they were leaving, Luffy and his crew were cheered on by Cricket's final words of encouragement. With that, Luffy and crew sailed off to where they could ride a Knock up Stream.{{Qref|chap=235|chap2=236|page=|ep=152|Luffy and crew ride the Knock Up Stream.}}
+
+After a long wait out on sea, the weather and the sea started to show signs of a Knock Up Stream. As Luffy and his crew were preparing themselves for the journey to Skypiea, they suddenly encountered the ship and crew of [[Marshall D. Teach|the pirate that Luffy fought with in the bar]]. From this encounter, Luffy and his crew learned of his and Zoro's new bounties for which the pirate planned on collecting. The encounter however was brief as the Knock Up Stream started. With the Knock Up Stream shooting the Going Merry into the sky, Luffy and his crew set forth to new adventure as well inadvertently escaping from the pursuing pirate.
+
+===Skypiea Arc===
+====Adventure and Trouble 10,000 Meters in the Air====
+The crew ended up floating on the cloud after passing through it, and as they took in their surroundings, Usopp decided to take a swim in the clouds. When he did not resurface, the Straw Hats realized he was falling all the way to the Blue Sea and Luffy quickly stretched his arm down to try and save him. Robin sprouted eyes on Luffy's arm, allowing her to see where Usopp was and generate arms off of Luffy's to grab him. When Luffy pulled Usopp back up, a giant, balloon-like octopus followed him, though Zoro easily dealt with it. As the crew recovered from this experienced, they were suddenly assaulted by a masked guerrilla warrior who landed powerful blows on Luffy, Zoro, and Sanji. However, the "Knight of the Sky" [[Gan Fall]] then came flying in on his bird-horse [[Pierre]] and fought off the warrior before introducing himself to the Straw Hats.{{Qref|chap=237|ep=153}} After learning about what the Straw Hats did to get here, Gan Fall gifted them a free whistle to call him should they be attacked by someone again, and then departed. With the crew unsure as to how to keep sailing upward to the Log Pose's destination, Luffy tried to blow the whistle but was stopped by Nami. The crew then came across a cloud waterfall, and Luffy found that the clouds around it were hard enough to stand and bounce on. Upon climbing up the bouncy cloud, Luffy, Usopp, and Chopper found that behind the waterfall was a path. At the end of the path the Straw Hats came to Heaven's Gate, where the gatekeeper [[Amazon]] charged them 1 billion [[extols]] for entry. The Straw Hats only had belly and were unsure how to convert it, but Amazon then told them that they could pass through without paying. When they did, the Merry was suddenly seized by Speedy Shrimp which took it and the Straw Hats on a winding path to the country of [[Skypiea]] up above.{{Qref|chap=238|ep=153}}
+
+Upon reaching the sea at the end of the path, the Straw Hats found themselves at the coast of Angel Island, a place founded on top of clouds, and Luffy immediately disembarked to explore it. As Luffy examined the various elements on the island, the Straw Hats met a young native girl named [[Conis]] as well as her father [[Pagaya]].{{Qref|chap=239|ep=154}} Luffy rode Pagaya's [[waver]] around the sea but ended up losing control and falling in, forcing Zoro and Sanji to rescue him. Nami then tried out the waver and was much better at it, and Pagaya and Conis took the rest of the Straw Hats to their home. There, Conis explained the abilities of [[Dials]], which powered wavers among other things.{{Qref|chap=240|ep=154}} At that point, Nami was no longer in sight, and Conis became worried that she had wandered over to [[Upper Yard]], the home of Skypiea's "God" [[Enel]] which was forbidden for all to enter. This made Luffy very interested in it, and the crew decided to go and rescue Nami if she was in any trouble. The group went back down to the coast, and before the Straw Hats set off Pagaya examined their old waver.{{Qref|chap=241|ep=155}}
+
+Suddenly, [[McKinley]] and the [[White Berets]] came marching in and confronted Luffy to charge him and the Straw Hats for illegal entry. They explained the punishment was just a fine of ten times the original entry fee, but after learning the value of extols compared to belly, the crew realized that it would be an exorbitant amount. Nami then returned to the coast on Pagaya's waver, and after learning about the charges she hit McKinley with the waver in anger. Because of this, McKinley increased the charges against the Straw Hats to be punished by execution by [[Cloud Drifting]], and Luffy confronted the White Berets with the intention of fighting. After dodging the Sky Arrows they shot, Luffy pulled against a palm tree and spun himself around, allowing him to wildly attack the force with punches and kicks and take out most of them at once. Zoro and Sanji came ashore to finish the job, and McKinley then proclaimed that due to their crimes, the Straw Hats would be judged by God's priests themselves.{{Qref|chap=242|ep=156}}
+
+With this news, the Straw Hats bid farewell to Conis and Pagaya and prepared to try to leave Skypiea through [[Cloud End]] to the best of their ability. However, as Luffy, Usopp, and Sanji went inside the duo's house to get food, a Super-Express Speedy Shrimp then arrived and carried off the Merry. Pagaya revealed to the trio that their crewmates were being taken to the Sacrificial Altar on Upper Yard where they would be held as hostages; it would be up to the trio to take the [[Milky Road]] to Upper Yard and face the trials there in order to rescue the rest of the crew.{{Qref|chap=243|ep=157}} Conis took Luffy, Usopp, and Sanji down Lovely Street to the port, where she gave them her small boat [[Karasumaru]]. Luffy noticed that Conis had been pale and shaking since they had left her house and asked if she was scared. After some hesitation, Conis broke down and revealed that she was the one who called the Speedy Shrimp that took away their crewmates, as failing to turn in criminals was punishable by death. Luffy, Usopp, and Sanji were not angry at her for doing this, instead wondering why she risked her life to reveal it to them. Suddenly, sparks rose in the air, and Luffy quickly grabbed Conis and jumped away right as Enel struck the spot where Conis was standing with a giant thunderbolt. The attack left a gaping hole in the port that Luffy and Conis fell into, but luckily Gan Fall came flying in to save them. Gan Fall took Conis away to a safe area as Luffy, Usopp, and Sanji set sail for Upper Yard.{{Qref|chap=244|ep=158}}
+
+====The Trials of Upper Yard====
+
+[[File:Luffy, Usopp, and Sanji vs. Satori.png|thumb|210px|Luffy, Usopp and Sanji vs. Satori.]]
+
+As the trio entered the heavily forested place, they quickly had to contend with large swinging blades threatening to pulverize them, as well as a giant sky lamprey eel. After making it past those obstacles, they arrived at four gateways, each one leading to a different [[Ordeals|Ordeal]].{{Qref|chap=245|ep=159}} Luffy wanted to go to the Ordeal of Balls since it sounded the most fun, and so the trio went through that gate. After being dropped off a cliff, they landed back on the Milky Road and found themselves surrounded by large floating balls made of island cloud. However, when playing with one of the balls, Luffy and Usopp were assaulted by a snake that burst out of it, and Sanji tried hitting away an incoming ball only for it to explode. The trio were then confronted by [[Satori]], one of Enel's four priests, who introduced them to his "Surprise Balls" and said they had to defeat him to continue on to the Sacrificial Altar. Luffy attempted to punch Satori, but the priest easily dodged him before striking him with an [[Impact Dial]], which unleashed a powerful blow against him that caused internal damage. Satori sent Luffy, Sanji, and Usopp off the Karasumaru with his Impact Dial strikes, and revealed that the boat would keep moving and leave them behind in his forest if they did not defeat him in time.{{Qref|chap=246|ep=160}}
+
+Luffy aimed another punch at Satori, but the priest grabbed his arm after dodging it and slammed him into a tree. Luffy then tried attacking Satori with '''Gomu Gomu no Gatling Gun''', but this failed to hit Satori and instead struck several Surprise Balls, causing the Straw Hats to be assaulted by their contents. Luffy was sent falling toward one of the cloud rivers and saved himself by grabbing a vine, though ended up having fun swinging on it and became distracted. Eventually, Sanji got him off the vine and beat him up, but Satori then struck Sanji with an Impact Dial.{{Qref|chap=247|ep=160|ep2=161}} Satori proceeded to overwhelm the entire trio before assaulting them with his Ball Dragon, which would cause a massive chain reaction if a particular ball in its chain was set off. However, Luffy found the string Satori was using to control the Dragon and broke it. Satori responded by pulling the rope to bring Luffy to him; however, Luffy did not let go of the Ball Dragon and sent it crashing into Satori. The priest managed to avoid the massive explosion, but Luffy avoided it as well by hanging onto his back. Luffy then wrapped his arm's around Satori's body, rendering him immobile and preventing him from dodging their attacks, allowing Sanji to give Satori a powerful kick to the head and defeat him.{{Qref|chap=250|ep=163}} Immediately afterward, Usopp called to Luffy and Sanji that he had found the Karasumaru and told them to come to him quickly. Once they did, Usopp shot a rope from his belt that successfully wrapped around the boat and pulled them up to it, but they ended up hitting several trees on the way up. As the Karasumaru sailed out of the forest, the trio lay dazed on it.{{Qref|chap=251|ep=164}}
+
+Some time later, Luffy, Usopp, and Sanji sailed through a field dotted with skulls. A group of [[Shandia]] guerrillas then came flying past them, and their leader, [[Wyper]], fired a bazooka shot at the trio. Luffy deflected it with '''Gomu Gomu no Fusen''', and Wyper chose not to attack further, but warned the Straw Hats that he would treat them like Enel if they caused trouble on the island. The trio continued sailing and made it to the Sacrificial Altar by sunset, where they reunited with the rest of the crew. After checking on the injured Gan Fall, the Straw Hats decided to camp out on Upper Yard for the night. After setting up the campsite, the crew talked about their discovery that the lost city of gold that Noland was looking for was here on Upper Yard, and decided to hunt for the gold the next day.{{Qref|chap=252|ep=165}} The crew then gathered food and supplies for the next day, and Luffy was put in charge of overseeing the boiling of water for drinking. As the Straw Hats ate some stew, they talked about clues to finding the city from Noland's logbook. Afterwards, Robin said the crew should put out the fire to avoid attracting attention from enemies, but Luffy and Usopp opposed this. Despite Robin's and Nami's warnings, the crew built a giant bonfire and danced around it before going to bed.{{Qref|chap=253|ep=166}}
+
+====Hunting for Treasure and Eaten by a Snake====
+The next morning, Usopp showed the crew that repairs to the Merry somehow happened overnight, which he claimed to be the work of [[Klabautermann|a spirit]]. The crew then split into two teams to head to the lost city, with Luffy, Zoro, Chopper, and Robin forming the "Explore Team" that would head to the city on foot.{{Qref|chap=254|ep=167}} The quartet's expedition had just started when they ran into a giant snake named [[Nola]]. Luffy told the group to run away from it, and they became scattered as the snake attempted to attack them with its poisonous fangs. Luffy tried to lure Nola toward him, and ended up being separated from the rest of the group. He remembered the direction to go south, but had no idea which way south was and went in a straight line southwest.{{Qref|chap=255|ep=168}} He became interested upon hearing the bleating of what sounded like a goat, and when a Shandia warrior tried to ambush him, Luffy quickly beat the warrior aside, being annoyed that he was not a goat. Luffy then ran into Wyper, who asked him what he was doing on Upper Yard still.{{Qref|chap=257|ep=169}}
+
+[[File:Luffy vs. Wyper.png|thumb|left|210px|Luffy vs. Wyper.]]
+
+Wyper told Luffy that Upper Yard belonged to his people, the Shandia, and Luffy accepted this and walked off. However, Wyper had had enough of Luffy and so decided to eliminate him, and Luffy was very willing to fight back.{{Qref|chap=258|ep=169}} Wyper shot Luffy with eight bazooka shots, all of which Luffy deflected; Wyper then changed his strategy and fired a stream of natural gas at Luffy before using his [[Burn Bazooka]] to create disintegrating white flames. Luffy managed to dodge the sudden burst of fire, and traded blows with Wyper in midair. Wyper then readied another Burn Bazooka strike against him, and Luffy responded by attacking him with '''Gomu Gomu no Bazooka'''. The two's attacks hit the other simultaneously, causing a notable amount of injury to both of them.{{Qref|chap=260|ep=171}} Wyper then called out to Luffy to see if he was still alive, and Luffy responded, but he was then suddenly eaten by Nola and fell through its insides before landing among some ruins.{{Qref|chap=261|ep=171}}
+
+Thinking he was inside a cave, Luffy examined the treasures in the ruins while walking further down Nola's stomach. He came to a dead end and tried striking it with Gomu Gomu no Bazooka to see if there was a secret door, which caused Nola to spin around.{{Qref|chap=266|ep=175}} Nola ate some sea clouds which almost drowned Luffy, and the pirate continued hitting the walls of its stomach which caused the snake to rampage through Upper Yard in pain.{{Qref|chap=267|ep=175}} Nola's movements while fighting in the Upper Ruins of [[Shandora]] caused Luffy to constantly fall through its stomach as it repositioned, leaving him aghast as to what kind of cave this was. Luffy then attempted to dig his way out of the stomach, causing Nola to laugh.{{Qref|chap=269|ep=176}} However, he was then joined by Nami, Gan Fall, Pierre, and Aisa after they had been eaten by Nola, and they revealed to him that this cave was the snake's stomach.{{Qref|chap=271|ep=177}} Nami decided to ride her waver out of the snake through its mouth, and Luffy hung onto the back of the waver while Aisa hung onto him. However, the exhaust fumes of the waver blew Luffy and Aisa off of it, and they fell back down to Nola's stomach; however, Pierre quickly returned to rescue them.{{Qref|chap=273|ep=179}} Nola was knocked unconscious by a thunderbolt from Enel, and Luffy, Aisa, and Pierre traveled up to its head. Luffy ended up behind its left eye and opened its eyelid, but was quickly guided down to its mouth. They jarred the snake's mouth open and fell down to the ground below, where they found themselves in Shandora, the legendary city of gold. However, Luffy and Aisa then found Zoro, Chopper, Robin, Gan Fall, and Wyper laying unconscious next to a giant hole in the ground. A barely conscious Robin told Luffy that Enel had done this and was plotting to destroy all of Skypiea; he had taken Nami away to an unknown place. Robin believed that Enel would go to the fabled Golden Bell first, and when Aisa sensed the presence of two people with her [[Haki/Kenbunshoku Haki|Mantra]], Luffy told the young girl to take him there.{{Qref|chap=277|ep=181}}
+
+====Fighting a God====
+
+[[File:Luffy Kicks Enel.png|thumb|Luffy vs. Enel.]]
+
+Aisa guided Luffy to a cave near the city ruins, and Luffy confronted Enel, who was with Nami on the giant ship [[Ark Maxim]].{{Qref|chap=278|ep=182}} Luffy pulled himself up to the ship's deck, and Enel struck him with a mighty thunderbolt. However, due to Luffy's body being made of rubber, a natural insulator to lightning, the attack had no effect on him. Enel was left stunned and Luffy charged toward him, successfully punching Skypiea's God in the stomach as his rubber body bypassed Enel's Logia defenses.{{Qref|chap=279|ep=182}} When Enel got up from the attack, Luffy tried attacking him again, but the God used his Mantra to dodge Luffy's attacks and hit the pirate with his staff. Enel used his electricity to reshape his staff into a trident, and Luffy struggled to avoid being stabbed by it. After managing to dodge one of Enel's attacks in midair, Luffy was able to kick him into the floor. However, Enel was able to grab Luffy's arms on his follow-up attack and slam him into the floor as well, and he proceeded to activate the Ark Maxim to bring it up into the air.{{Qref|chap=280|ep=183}} Luffy watched in anger as Enel used the Maxim to generate a giant thundercloud he called '''Deathpiea''' to wreak destruction on Skypiea, and the two then resumed sparring. In an attempt to work around Enel's Mantra, Luffy shut off his mind and dodged Enel's strikes purely on reflex, though quickly went back to normal since he could not attack in that diminished mental state. Luffy then got another idea and ran toward Enel's throne chamber, which was surrounded by a curved wall. He threw rapid punches at the wall, and those punches ricocheted back and struck Enel, who could not anticipate their randomness. With Enel reeling from those attacks, he was powerless to stop Luffy from pummeling him with direct attacks.{{Qref|chap=281|ep=183}}
+
+[[File:Luffy Trapped By Gloam Paddling.png|thumb|left|Luffy's hand is stuck inside the golden ball Enel created.]]
+
+Luffy watched as the injured Enel slowly got up and cursed him for messing with his plans, but as Luffy moved to attack him further, Enel quickly responded by reshaping the gold from the wall behind him and forming it into a giant ball around Luffy's right forearm. With Luffy unable to pull his arm out of it, Enel kicked the ball and sent it rolling off the edge of the Maxim; Luffy tried holding onto the ledge, but Enel sent him falling to the ground far below with his staff. Aisa and Pierre tried to fly in to rescue Luffy, but Enel attacked them with a lightning bolt.{{Qref|chap=282|ep=184}} The three of them fell down into a chasm, where Luffy had rubble fall on him though he remained unharmed. After pulling himself out, he prepared to follow the Ark Maxim to the place where the Golden Bell was.{{Qref|chap=283|ep=185}} Aisa took Luffy to the giant beanstalk [[Giant Jack]], which the Ark Maxim was circling near high above, and Robin was there, revealing that the Golden Bell was up at the top of it. Luffy then ran up Giant Jack with his golden ball in tow, intent on freeing Nami, Usopp, and Sanji and fighting Enel.{{Qref|chap=285|ep=186}} Once he made it close to the top of Giant Jack, Luffy was noticed by Enel, who fired a lightning bolt to break off the top of the beanstalk and send Luffy falling. Luffy was able to grab back onto Giant Jack and pull himself onto the highest cloud platform on it, and right then he was suddenly struck by Nami, who had rode her waver up Giant Jack to fetch him. After watching Enel destroy all of Angel Island with a giant thundercloud called '''Raigo''', Nami told Luffy that Usopp and Sanji had escaped the Ark Maxim and that he needed to go back to the Merry with her so they could escape. However, Luffy told her that he needed to defeat Enel and ring the Golden Bell for the sake of Cricket, in order to show him that the city of gold that Noland wrote about was indeed real.{{Qref|chap=294|ep=190}}
+
+Luffy tried grabbing onto the Ark Maxim, but Enel easily kicked his hand off, and Enel responded to Luffy's ensuing attempts by striking him with lightning bolts. Luffy then got the idea to write a message on a giant leaf to tell the people at Giant Jack's base to cut down the beanstalk so it would fall westward toward the Maxim. Luffy was surprised to see that Nami was sticking with him, and Nami told him that he needed her to pilot the waver the rest of the way up and so she was willing to take that risk.{{Qref|chap=295|ep=191}} Zoro, Nola, and Wyper were able to successfully tip Giant Jack toward the west, and Nami drove the waver up the beanstalk as fast as it would go while Luffy held onto her from behind.{{Qref|chap=296|ep=191}} As the duo shot off the beanstalk and flew toward the Maxim, Enel brought down an even larger '''Raigo''' to destroy all of Skypiea. To Nami's shock, Luffy jumped off the waver directly into the '''Raigo''', and while inside it, Luffy threw his golden ball around in every possible direction. The ball conducted the electricity inside the giant thunder sphere, and so Luffy was able to completely disperse the '''Raigo''' and save Skypiea.{{Qref|chap=297|ep=192}}
+
+[[File:Luffy Rings the Shandorian Golden Belfry Bell With Gomu Gomu no Ogon Rifle.png|thumb|Luffy defeating Enel and ringing the Golden Bell.]]
+
+With the Maxim and the Golden Bell now in his sights, Luffy stretched back his right arm and twisted it around. Enel responded by fully transforming into lightning in a shape resembling a larger version of his body, though Luffy was still able to bypass his transformation and land blows on him. However, Enel was able to reach around Luffy with an arm of lightning and stab him in the back with his trident. Luffy's only options were to either let the trident pierce him further or fall back all the way down to Skypiea, and he decided to let go and fall; however, he then grabbed onto a small piece of island cloud near the Maxim and pulled himself back up. Luffy reared back and twisted his right arm again and sent the golden ball crashing into Enel's giant body, smashing him against the Golden Bell. Luffy cried out for the Golden Bell to ring, and as it did so, Enel's transformation deactivated and the God was defeated.{{Qref|chap=298|ep=192}} Luffy fell down along with Enel, the Maxim, and the bell, but landed on a small piece of island cloud where Nami was.{{Qref|chap=299|ep=193}}
+
+Luffy and Nami jumped back down to Upper Yard, with Luffy using '''Gomu Gomu no Fusen''' to cushion their fall. They then came across the priests' storehouse and took the large amounts of food from inside it before arriving at Shandora and reuniting with the rest of their crew. Night fell as the crew ate the priests' food, and then they took part in a large party with the Skypieans and Shandia.{{Qref|chap=300|ep=193}} The party lasted for several days, and one night when everyone was sleeping, Luffy woke the crew up and told them they should steal the city's treasure and run away. The next morning, Luffy took some of the crew inside the sleeping Nola's stomach, where they took the treasures from the ruins that the snake had eaten. The crew then anxiously waited for Robin to arrive so they could depart without being caught, and when Robin came with several Skypieans behind her, the crew quickly ran away with their stolen treasure, not realizing the citizens had come to give them an even greater amount.{{Qref|chap=301|ep=194}} The Straw Hats sailed to Cloud End, where they bid farewell to Conis and Pagaya. They were then sent off a ledge and fell straight down, but Conis called a Balloon Octopus which grabbed the Merry and inflated itself, giving the crew a controlled descent to the Blue Sea.{{Qref|chap=302|ep=195}}
+
+==Water 7 Saga==
+===Long Ring Long Land Arc===
+====The Three Events====
+Upon returning from Skypiea to the [[Blue Sea]], Luffy and his crew had no time to rest as they encountered a giant wave created by some Sea Monkeys. After the brief incident, Luffy and his crew rested and assessed the good wealth they obtained from their Sky Island adventure. As Luffy discussed with his crew, they all agreed that they would use the treasure to help fix the travel-worn Going Merry and get a shipwright to help maintain it. After encountering the Sea Monkeys once again and a curious pirate ship with no sails or crew, Luffy and his crew reached the next island in their journey. As Luffy, along with Usopp and Chopper, decided to explore the island, they noticed that the animals and plant life were all very long in appearance.{{Qref|chap=303|chap2=304|page=|ep=207|Luffy and his crew return to the Blue Sea and reach [[Long Ring Long Land]].}}
+
+As Luffy and his two companions explored the island more, they encountered a nomad named [[Tonjit]] who had been stuck on his stilts for 10 long years. After getting acquainted with the old man and reuniting him with his horse, [[Shelly]], Luffy and his companions felt that they had done small accomplishment. However, in the midst of their enjoyment, Shelly was suddenly shot. Learning immediately that the shot was fired by the pirate, [[Foxy]], who was nearby, Luffy momentarily get angry at this foe. Before Luffy could fight Foxy however, he was suddenly challenged to an official [[Davy Back Fight]].{{Qref|chap=305|chap2=306|page=|ep=208|Luffy meets Foxy and accepts his challenge to a Davy Back Fight.}}
+
+From Usopp, Luffy learned that this sudden challenge was a set of three games between pirate crews in which the crew members were at stake. Despite Usopp's warnings however and much to the dismay of the rest of his crew, Luffy accepted the challenge from Foxy and his crew to hold a Davy Back Fight on [[Long Ring Long Land]]. What happened next was a festival-like event set up by the [[Foxy Pirates]] in lieu of the Davy Back games. After the formalities of the beginning of the games, Luffy and his crew decided who would participate in which game. Taking the final and most climatic game, Combat, Luffy awaited for his turn as he watched the rest of his crew participate in the other games.
+
+The first two games of the Davy Back Fight proved to be both surprising and emotional for Luffy and his crew. In the first game, Donut Race, they witnessed Foxy and his crew's cheating tricks, and Foxy's exploit of his Devil Fruit powers of the [[Noro Noro no Mi]]. Due to these, Luffy lost Chopper to Foxy. Fortunately, Luffy was able to win Chopper back as his crew won the second game, Groggy Ring, despite the gigantic odds stacked against them. After watching these two grueling games, Luffy was pumped up for his turn in the final game.
+
+[[File:Foxy Defeated by Luffy.png|thumb|left|Luffy defeats Foxy.]]
+
+With the third game approaching, Luffy with the help from Usopp, decided to dress appropriately for the match. Donning an afro and boxing outfit, Luffy was ready to face against the sly Foxy aboard his ship, the [[Sexy Foxy]]. Throughout the whole match, Luffy was constantly tricked by his smarter opponent as they battled all around the ship. With Foxy's tricks and Devil Fruit powers, it seemed like Luffy would lose. Despite this, Luffy persevered to not lose one of his crew forever. In the climax of the battle, Luffy was able to thwart Foxy by using a mirror shard obtained from the battle to reflect Foxy's powers back to himself. Having slowed Foxy down, Luffy delivered the final blow and won the game.{{Qref|chap=313|chap2=318|page=|ep=217|ep2=219|Luffy fights against Foxy in the final game of the Davy Back games.}}
+
+After a lot of rest, Luffy wakes up being told he indeed did win the fight. Foxy comes to congratulate Luffy on how he fought in the match, giving a handshake gesture, then attempting to throw him overhead, forgetting his arm is rubber. As Luffy won, he gets to choose a crew member from the Foxy Pirates, but instead choose their flag, but as the sail is their flag, Luffy opts to "redesign" the flag, then give it back. Luffy's poorly drawn Jolly Roger is given to them, officially ending the Davy Back Fight. Although obviously grateful, Foxy vows revenge on Luffy for losing the match. The Straw Hats return to Tonjit giving him the Foxy Pirates' old flag as a sign of their defeat. Chopper uses it as a bandage for Shelly, the horse.
+
+====Encounter with Admiral Aokiji====
+
+[[File:Ice Time.png|thumb|210px|Luffy being frozen by [[Admiral]] [[Kuzan|Aokiji]].]]
+
+Just as Luffy and his crew were done with the dealing with the matter with Foxy and his pirates, they soon came across another one. Sleeping beside Tonjit's house was the [[Admiral]] [[Kuzan|Aokiji]]. Initially, Aokiji was non-hostile to Luffy and his crew, despite him being a Marine and causing Luffy some fear when he told him that he knew his grandfather. Aokiji even helped Tonjit in finding a way to get back to the rest of the old man's nomad clan with his [[Hie Hie no Mi]]. However, when hostilities began between Aokiji and Nico Robin, Luffy and his crew faced off against this new foe. Despite their best efforts, Luffy and those who fought alongside him against Aokiji were utterly defeated. Fortunately however, the admiral simply left a frozen Luffy in defeat, but with a warning to be wary with Nico Robin.
+
+===Water 7 Arc===
+====The Captain's Burden====
+Seven days after the encounter with Aokiji, Luffy had recovered and demonstrated his new frozen pose as his crew sailed to their next destination. They then encountered the giant frog [[Yokozuna]] and chased after him, with Luffy wanting to eat him. However, they were forced to turn back after getting caught in the path of the [[Sea Train]], and Luffy watched as Yokozuna unsuccessfully tried to attack it. The crew went to the shift station nearby and met [[Kokoro]] and her granddaughter [[Chimney]], and Kokoro told them that their next destination, [[Water 7]], was home to the world's best carpenters. Luffy grew excited, hoping to find a carpenter crewmate there.{{Qref|chap=322|ep=229}} Kokoro gave them a map and a letter of recommendation, telling them to find a man named [[Iceburg]]. As they continued sailing toward Water 7, Luffy talked with his crewmates about what they wanted their carpenter to be like.{{Qref|name=c323|chap=323|ep=229}}
+
+Upon reaching the island, the crew was forced to dock at a small peninsula in the back, and they marveled at its architecture. Nami forced Luffy and Usopp to go with her to meet Iceburg.{{Qref|name=c323}} They headed to the city center to exchange their gold for money, and Luffy bought [[Yagara Bulls]] to take them there.{{Qref|chap=324|ep=229|ep2=230}} The trio got {{B}}300,000,000 from their gold, and headed for the shipyard. There, they met the carpenter [[Kaku]] of the [[Galley-La Company]], who revealed that Iceburg was the mayor of Water 7. To make their meeting with him go faster, Kaku went to check out the Merry himself.{{Qref|chap=325|ep=231}} The trio then met Iceburg, who to their surprise acted very irresponsibly, although his secretary [[Kalifa]] attacked them when they pointed it out. Iceburg then offered to give them a tour of the shipyard.{{Qref|chap=326|ep=231}}
+
+The [[Franky Family]] suddenly swooped in and stole the Straw Hats' money, but [[Paulie]] took them out, and [[Rob Lucci]] forced Paulie to give the crew their money back. Luffy was awestruck when Iceburg took them inside the shipyard's [[Dock 1]], and unsuccessfully tried to get him to join his crew. Kaku then returned to the shipyard, and he broke the news that the Going Merry was damaged beyond repair and could not sail any farther.{{Qref|chap=327|ep=232}} Luffy refused to believe that they would need to find a replacement ship, but the workers gave him no option but to reconsider. Luffy and Nami then realized that the contents of their suitcases were empty, and overheard [[Peepley Lulu]] reveal that he had seen Usopp (whom he mistook for Kaku) with the Franky Family, causing Luffy to immediately run off to find his crewmate.{{Qref|chap=328|ep=233}}
+
+[[File:March to Franky House.png|thumb|left|210px|Luffy, Zoro, Sanji, and Chopper attack the Franky House to avenge Usopp.]]
+
+While looking for Usopp, Luffy accidentally fell in a canal, where he was found and rescued by Zoro, Sanji, and Chopper. They soon found a heavily beaten Usopp in the clearing between the city and the [[Franky House]], and they headed toward the Franky House to teach the Franky Family a lesson.{{Qref|chap=329|ep=234}} Upon entering the house, the four of them immediately started attacking and overwhelming the Franky Family, not stopping even when they revealed their boss [[Franky]] had gone to spend the stolen money. By the end of the battle, the entire Franky House was destroyed, and as the Straw Hats were thinking about what to do next, Luffy announced that he had decided for the crew to bid farewell to the Going Merry.{{Qref|chap=330|ep=234}}
+
+[[File:Usopp vs. Luffy.png|thumb|210px|Luffy duels with Usopp over the Going Merry's fate.]]
+
+The group took Usopp back to the Merry, and after he regained consciousness, Luffy told him about his decision to look for a new ship. Usopp refused to believe what the carpenters had said, but Luffy stood firm in his decision as their argument grew more heated. Usopp then decided to leave the crew, and challenged Luffy to a duel for the Merry.{{Qref|chap=331|ep=235}} The time of the duel was set for 10 PM, and Luffy laid around until then. Luffy and Usopp then confronted each other on the peninsula at the appointed time, and as Luffy went on the offensive, Usopp managed to stop him by pretending to be injured. This allowed Usopp to barrage Luffy with a variety of long-range attacks, culminating in a massive gas explosion that dealt some injuries to Luffy.{{Qref|chap=332|ep=236}} Luffy was able to punch Usopp in the face, but Usopp countered his next attack with an [[Impact Dial]], which he redirected at Luffy. However, the recoil of the Dial left Usopp unable to defend against Luffy's next attack, which defeated him. Luffy then bid farewell to Usopp, saying the former Straw Hat could do whatever he wished with the Merry as he tearfully headed back toward his crew.{{Qref|chap=333|ep=236}}
+
+====Encountering CP9====
+The Straw Hats, minus a missing Robin, left the Going Merry for good and stayed the night at an inn. The next morning, Luffy heard from Nami that Iceburg had been shot, and the two of them took a Yagara Bull to go see him.{{Qref|chap=334|ep=237}} They were met by a crowd as they reached Dock 1, and Franky then arrived to confront Luffy for attacking his family.{{Qref|chap=335|ep=237|ep2=238}} Franky breathed fire at Luffy and Nami before jumping into the water and attacking their boat. He then punched Luffy by detaching his arm, revealing that he was a [[cyborg]]. Luffy and Franky continued fighting furiously in the dock when they were interrupted by Paulie, Kaku, Lucci, Peepley Lulu, and [[Tilestone]].{{Qref|chap=336|ep=238}}
+
+Paulie, Lulu, and Lucci attacked and overpowered Luffy, with Paulie revealing that the Straw Hats were the main suspects in the attack on Iceburg, as Robin was one of the two attackers he had seen. Luffy refused to believe that Robin had done this and demanded to speak with Iceburg, but the Galley-La workers stood against him as the townspeople subdued Nami.{{Qref|chap=337|ep=238|ep2=239}} Luffy attempted to escape from the workers as they pulled out sharp and explosive weapons to attack him, but he was quickly cornered and shot by Tilestone's bazooka. However, Franky then unleashed a massive attack on Dock 1, allowing Luffy to escape with Nami.{{Qref|chap=338|ep=239}}
+
+Luffy and Nami managed to reach [[Galley-La Headquarters]] where Iceburg resided, and Luffy pulled himself in through the window. As he ran through the building, Kalifa called out to him and let him enter Iceburg's room. There, Iceburg demanded that Luffy bring Robin in to speak with him. Luffy replied that he was unable to, and he was forced to escape outside as Iceburg shot at him.{{Qref|chap=339|ep=239}} Luffy and Nami escaped to the outskirts of town and reunited with Zoro, but they were soon forced to hide from the citizens hunting for them. Chopper then found them and revealed that Robin had told him and Sanji that she had framed them for the attack on Iceburg and would be leaving them forever, shocking them.{{Qref|chap=340|ep=240|ep2=241}} Zoro deduced that Robin and her new mysterious cohorts would likely try to kill Iceburg that night, and Luffy decided to go back to Galley-La Headquarters to confront her and find out the truth.{{Qref|chap=341|ep=241}}
+
+As night fell, Luffy, Zoro, Nami, and Chopper hid in a tree near Headquarters, looking for Robin to make her move. They eventually saw a massive explosion be unleashed in front of the building,{{Qref|chap=342|ep=242}} and Luffy immediately headed toward the building. He was blown into a crevice in another building,{{Qref|chap=343|ep=243}} but escaped it and pulled himself toward Headquarters.{{Qref|chap=344|ep=243}} Luffy partially broke into a room where Paulie was with two masked men, and he recognized the masked men as enemies, telling them to give Robin back. The masked men then attacked and subdued him, binding him and Paulie to the ground before leaving.{{Qref|chap=345|ep=243}} Luffy eventually managed to squeeze out of his bindings and freed Paulie of his before the two of them raced toward Iceburg's room. After initially breaking into the wrong room, Luffy and Paulie reached Iceburg's room at the same time as Zoro, Nami, and Chopper. There, they found Robin with Lucci, Kaku, Kalifa, and the bartender [[Blueno]], who were undercover assassins from the [[World Government]] agency [[CP9]].{{Qref|chap=346|ep=244}}
+
+Luffy intervened when Lucci started attacking Paulie, but Lucci used his [[Rokushiki]] techniques to overwhelm him. Robin then told her former crewmates that she was pursuing a goal that she could not reach with them. Lucci told the Straw Hats, Iceburg, and Paulie that the mansion would soon go up in flames, but he and his comrades remained in the room to prevent them from escaping.{{Qref|chap=347|ep=245}} Luffy tried to get to Robin, only for the agents to overwhelm him with their [[Rokushiki]] techniques. As Robin headed to the window, Luffy tried running toward her again, only to be stopped and tossed aside by Lucci as she departed.{{Qref|chap=348|ep=245}} With the fire starting, Lucci decided to show Luffy's group the power of his Devil Fruit, the [[Neko Neko no Mi, Model: Leopard]]. Lucci unleashed a powered-up [[Rokushiki/Rankyaku|Rankyaku]] attack that caused the building to start collapsing, and Luffy attacked the agent when he confronted Paulie and Iceburg. However, Lucci pierced through Luffy's body with a claw-enhanced [[Rokushiki/Shigan|Shigan]] before throwing him out of the building, sending him flying far away.{{Qref|chap=349|ep=246}}
+
+Luffy flew into a narrow gap between two buildings, where he became stuck.{{Qref|chap=360|ep=252}} A while later, he heard Nami calling out to him from a nearby building, and Nami revealed to him that Robin had fallen in the World Government's grip in order to save their lives. Intent on saving Robin, Luffy pushed the two buildings apart and pulled himself and Nami away from the outskirts of town right before an enormous wave created by [[Aqua Laguna]] swallowed the area.{{Qref|chap=363|ep=254}} However, the waves eventually reached and swallowed Luffy, Nami, Zoro, and Chopper as well, forcing Paulie to rescue them. After finding out that Sanji had stowed away on the Sea Train taking Robin to [[Enies Lobby]], Luffy asked Paulie for a ship to use to go after them. Due to the Aqua Laguna, Paulie refused to do that until the next morning, causing Luffy to decide to take a ship by force. However, Kokoro then interjected and told Luffy that she could take him to another, secret, Sea Train.{{Qref|chap=364|ep=254|ep2=255}}
+
+[[File:Straw Hat, Galley-La, and Franky Family Alliance Formed.png|thumb|left|210px|Luffy forms an alliance with the Galley-La Company and Franky Family on the way to Enies Lobby.]]
+
+Kokoro took the Straw Hats into an abandoned warehouse, where she showed them the runaway prototype train [[Rocketman]]. Iceburg was already there and revealed that he had already got the train's systems running, and as the crew prepared to depart, the Franky Family came in and pleaded to come aboard so they could save Franky. Luffy agreed to this, and the train set off.{{Qref|chap=365|ep=255}} The Straw Hats soon discovered that Paulie and the Galley-La workers had stowed away on Rocketman, and Luffy formed an official pact with Galley-La and the Franky Family to defeat their enemies and rescue Robin and Franky together.{{Qref|chap=366|ep=256}} Rocketman headed toward a massive, deadly tidal wave, and after the Galley-La workers and Franky Family could not put a dent in it, Luffy and Zoro unleashed a combined attack to create a whole the Rocketman could roll through.{{Qref|chap=367|ep=257}}
+
+Having gotten past Aqua Laguna, Luffy, Zoro, and Nami equipped themselves for the battle ahead.{{Qref|chap=368|ep=258}} They came to some of the [[Puffing Tom]]'s detached cars, and Luffy jumped into them to see if Sanji was there. He was immediately confronted and shot by several World Government agents, and as Rocketman approached, Luffy told Zoro to bisect the cars. Soon afterwards, the Rocketman crew approached the Marine Captain [[T Bone]], who was running toward the rest of the Puffing Tom. Luffy told his allies to leave this to Zoro as well, and Zoro quickly dispatched T Bone.{{Qref|chap=371|ep=260|ep2=261}} Later, Luffy's group found Yokozuna standing in front of the oncoming train, and Luffy told the giant frog to get out of the way.{{Qref|chap=374|ep=262}} Yokozuna hit Rocketman off the rails, but after Luffy pulled him onboard, Kokoro managed to get the giant frog to join the fight as she got the train back on the tracks. Soon afterwards, the Rocketman crew had Enies Lobby in their sights.{{Qref|chap=375|ep=263|ep2=264}}
+
+===Enies Lobby Arc===
+====On the Warpath to Robin====
+The Franky Family approached the Rocketman again after being derailed by Yokozuna, this time with Sanji and Usopp in tow. However, Usopp was wearing a mask and Luffy did not recognize him, causing him to believe Usopp's claim that he was a different person known as "Sogeking". Iceburg outlined a plan for the Straw Hats to remain on Rocketman while the Galley-La workers and Franky Family went on ahead to clear the way to the main island for the pirates to quickly charge in and take on CP9. Luffy acknowledged this plan, but then proceeded to head out and jump toward Enies Lobby by himself, using '''Gomu Gomu no Rocket''' to launch himself over the Main Gate from the protective fence. Upon landing, he immediately charged toward the Tower of Justice and beat up any Marines in his way.{{Qref|chap=376|ep=264}} Luffy quickly fought his way through to the Main Island Gate and pulled himself up past it, and upon landing on the main island he was surrounded by tens of thousands of Marine soldiers.{{Qref|chap=377|ep=265}} Despite being vastly outnumbered, Luffy was able to terrorize the Marine forces, taking out hundreds of them in the span of seconds.{{Qref|chap=378|ep=266}} Luffy eventually managed to elude the Marines and pulled himself up to the roof of the Courthouse, where Blueno arrived through an "Air Door" to confront him.{{Qref|chap=382|ep=269}}
+
+[[File:Luffy Vs Blueno.png|thumb|210px|Luffy overpowering Blueno.]]
+
+Blueno told Luffy that he and his allies were committing a grave offense with their invasion, but Luffy did not care and charged toward him. Despite Blueno using '''[[Rokushiki/Tekkai|Tekkai]]''', Luffy's strike was still powerful enough to injure him, and Luffy was then able to keep up with the agent despite him using '''[[Rokushiki/Soru|Soru]]''' and smash him to the floor.{{Qref|chap=383|ep=270}} Luffy managed to dodge Blueno's rapid attacks, but the agent then used his [[Doa Doa no Mi]] powers to create doors in the floor under Luffy's feet, trapping him. Blueno then turned Luffy's face into a revolving door which heavily distracted him,{{Qref|chap=385|ep=271}} but Luffy was still able to dodge his '''[[Rokushiki/Rankyaku|Rankyaku]]''' strike by going down through the floor. Luffy and Blueno then sparred some more, and despite the pirate being able to keep up with the agent's superhuman movements, he was unable to gain the upper hand. To enable himself to become stronger, Luffy activated a new ability called '''[[Gomu Gomu no Mi/Gear 2 Techniques|Gear 2]]''' where he inflated his blood vessels, causing his blood to flow at a faster rate.{{Qref|chap=387|ep=272}} Luffy then punched Blueno with such speed that even the agent with his Soru ability could not keep up, and proceeded to heavily injure him with powerful blows. Blueno was forced to retreat into an '''Air Door''' and tried opening one behind Luffy to ambush him, but Luffy easily dodged him before striking him with '''Gomu Gomu no Jet Bazooka'''. The attack broke through Blueno's '''Tekkai''' and greatly injured him, and when the agent stayed on his feet afterward, Luffy prepared to activate a new Gear to become even more powerful. However, Blueno then lost consciousness and fell to the ground, and Luffy noted that his body was extremely tired due to not being used to the strain of Gear 2 yet. He then shouted out to the Tower of Justice where Robin was, saying he had come for her.{{Qref|chap=388|ep=273}}
+
+Luffy was able to regain his energy by pulling two slabs of meat out of his pockets that he had packed as a box lunch, and called for anyone to come out of the Tower of Justice. Franky then blasted himself and Robin out of the tower, but they were stopped by a fence and had to pull themselves onto the tower's ledge. Luffy prepared to pull himself to the tower, but Robin stopped him, saying that she wanted to die and never wanted to see him again. As she said this, [[Spandam]] and the CP9 agents came out to the ledge and confronted Luffy.{{Qref|chap=389|ep=274}} At this point, the rest of the Straw Hats made it up to the Courthouse roof, and as they joined Luffy in facing Robin and CP9, Luffy told Robin that she could choose to die if she wanted, but he wanted her to do so while she was with them.{{Qref|chap=390|ep=274}} Robin responded that the entire world was against her and that she did not want the Straw Hats to consider her a burden given what they would face if she was with them; Spandam backed up that assertion, using it as an opportunity to boast of the World Government's great might while pointing to the official flag sailing above him. However, Luffy responded by telling Sogeking to shoot down the flag, and the sniper did so, burning it up. Spandam was left aghast that Luffy directly declared war against the World Government, and Luffy replied that he was fine with that. He then told Robin to say she wanted to live, and Robin tearfully did so. As the drawbridge between the Courthouse and Tower of Justice was lowered thanks to the Franky Family, the Straw Hats prepared to invade the tower.{{Qref|chap=398|ep=278}}
+
+However, the drawbridge was stopped by a mortar strike, and Spandam quickly tried to lead Robin away. Soon afterwards, though, Nami received a call from Kokoro that she was piloting the Rocketman to the Tower of Justice. Upon hearing this, Luffy grabbed all of his crewmates and jumped into the chasm between the Courthouse and Tower, and they landed on Rocketman as it leaped from the drawbridge and flew toward the tower.{{Qref|chap=399|ep=284}} The train crashed into the tower before coming to a halt, and as the Straw Hats recovered from the wreck, they were confronted by the CP9 agent [[Fukurou]]. Fukurou revealed that Spandam and Lucci were taking Robin to the [[Gates of Justice]], and Robin was chained by handcuffs made of [[Seastone]] that were unbreakable and prevented her from using her powers. Fukurou and the four other CP9 agents in the tower each possessed a key, only one of which would unlock the handcuffs. Luffy tried attacking Fukurou to get his key and the agent departed, and Luffy tried going after him, but was held back by Zoro. The Straw Hats and Franky told Luffy to go directly after Lucci and Robin while they took on the other CP9 agents.{{Qref|chap=400|ep=285}}
+
+Luffy ran up the stairs and managed to reach the room that the agents and Robin had just been in, though it was now deserted; he then started running towards the Gates of Justice.{{Qref|chap=401|ep=286}} He made it to the other end of the tower, but found nothing but water in between it and the Gates, and so tried to think of a way to get across.{{Qref|chap=402|ep=287}} He tried rowing a small boat there, but the rough ocean currents destroyed the boat and left him floundering in the water. Fortunately, Chimney and Gonbe arrived and retrieved Luffy from the water, having come to tell him that there was an underground passage from the tower to the Gates. The trio raced down a flight of stairs and came to a giant steel door; despite the door being locked, Luffy was able to break through it by activating a new Gear called '''[[Gomu Gomu no Mi/Gear 3 Techniques|Gear 3]]''', and Chimney and Gonbe were shocked upon seeing Luffy shrink to the size of a child after using it.{{Qref|chap=403|ep=288}} However, Luffy quickly returned to normal size as he ran down the hall toward Robin.{{Qref|chap=404|ep=288}} Luffy eventually ran to a door which he was able to kick through, and found himself in a large storeroom in a tower propping up the Bridge of Hesitation. There, he was confronted by Lucci.{{Qref|chap=408|ep=293}}
+
+====Luffy vs. Rob Lucci====
+
+[[File:Luffy and Lucci Clash.png|thumb|left|225px|Luffy and Lucci clash.]]
+
+Luffy tried to get through to keep chasing after Robin, but Lucci stayed in his way and the two clashed, with their powerful strikes resulting in heavy collateral damage.{{Qref|chap=409|ep=294}} Luffy managed to catch Lucci off-guard with his speed and throw the agent aside, but Lucci quickly recovered and kicked the pirate before he could run out of the room.{{Qref|chap=410|ep=295}} Their sparring was interrupted when Franky suddenly arrived, possessing two of the CP9 agents' keys; he offered to help Luffy fight Lucci, but Luffy told him to keep going and save Robin.{{Qref|chap=416|ep=299}} Lucci managed to overpower Luffy so he could attack Franky; however, Luffy then activated Gear 2 and hit the agent with powerful, lightning-fast punches. Lucci transformed into his human-leopard hybrid form and tried to attack Franky again, but Luffy successfully overwhelmed him with Gear 2 enough to allow Franky to exit the room.{{Qref|chap=418|ep=300}} Luffy and Lucci continued sparring, but the agent then used a '''Rankyaku''' strike to rip a hole in the wall that would flood the underground passage with seawater, saying that Luffy's crewmates would either drown or be bombarded by the incoming [[Buster Call]] and he would be incapable of saving them.{{Qref|chap=420|ep=302}}
+
+[[File:Gomu Gomu no Gigant Pistol.png|thumb|Luffy strikes Lucci with Gomu Gomu no Gigant Pistol.]]
+
+The room where they were in started filling up with seawater, and Luffy followed Lucci up to the room above which was above sea level and would not be flooded. Lucci said that Luffy could go and help his friends if he wanted, but Luffy responded that if he left Lucci alone, the agent would kill all of them. Lucci was able to overpower and injure Luffy with some advanced '''[[Rokushiki/Shigan|Shigan]]''', '''Rankyaku''', and '''Tekkai''' techniques, so Luffy decided to show him Gear 3. Luffy blew into his thumb and inflated the bones in his right arm, making it equivalent in size to a giant's. He then threw a punch at Lucci with this giant right arm, demolishing the wall and tower in front of him and launching the agent out of the structure.{{Qref|chap=421|ep=304}} Afterwards, Luffy transferred the air to his torso and pulled himself onto the Marine battleship that Lucci had fallen onto, where he proceeded to transfer the air to his leg and unleash a powerful stomp that wreaked tremendous destruction. Lucci leaped onto the mast and transformed into his full-leopard form, allowing him to maul Luffy's left shoulder. Luffy brought the air to his torso to repel Lucci, but proceeded to be overwhelmed by the agent due to Gear 3 reducing his speed.{{Qref|chap=422|ep=305}} However, Marine [[Vice Admiral]] [[Onigumo]] then had his ship fire at the ship Luffy and Lucci were on in order to kill the former, but Luffy was saved from its destruction when he was forced to release the air inflating his body, blowing him back to the prop towers where he was before. But since he was the size of a child again due to Gear 3's side effects, Luffy tried to run and hide from Lucci until he returned to normal.{{Qref|name=c423|chap=423|ep=306}}
+
+[[File:Sai Dai Rin Rokuogan.png|thumb|left|Luffy struck by Sai Dai Rin: Rokuogan.]]
+
+This tactic did not work, as Lucci found Luffy and assaulted him with '''Shigan''' before smashing his small body up against a wall, trapping him. Fortunately, however, Lucci became affected by damage that Luffy had given him earlier and was stopped from unleashing a deadly attack, and enough time passed to allow Luffy to return to normal size.{{Qref|name=c423}} Luffy then activated Gear 2 once again despite the potentially debilitating effect it could have on his body.{{Qref|chap=424|ep=307}} Luffy was able to overwhelm Lucci with his attacks, but Lucci then attacked him with a new technique called '''[[Rokushiki/Rokuogan|Rokuogan]]''', a Rokushiki ability accessible to those who had mastered the normal six techniques. The technique created a shockwave that damaged Luffy internally much like an Impact Dial, though with significantly greater power.{{Qref|chap=425|ep=308}} As the walls around them started to crumble from the bombardment, Luffy looked outside and saw his crewmates on a nearby part of the bridge encouraging him. Luffy resumed fighting Lucci, but the agent noted that his Gear 2 power appeared to have lost its edge before attacking the pirate with another '''Rokuogan''' strike, causing him to collapse to the floor.{{Qref|chap=426|ep=308}}
+
+[[File:Luffy Using Jet Gatling on Lucci.png|thumb|210px|Luffy using Gomu Gomu no Jet Gatling to defeat Rob Lucci.]]
+
+However, Usopp then called out to Luffy, having removed his Sogeking mask, and also called out Lucci, saying he would be the agent's next opponent. Luffy protested, and Usopp said he would need to get back up and win if he wanted to keep Lucci away from him, saying they would all go back together once the agent was defeated. Spurred on by Usopp's words, Luffy got back up and exchanged a flurry of blows with Lucci. Lucci then wrapped his tail around Luffy's body and struck him with another '''Rokuogan''', but despite taking that attack, Luffy quickly got up. He then assaulted Lucci with a flurry of Gear 2 punches in a technique called '''Gomu Gomu no Jet Gatling''', which sent the agent crashing into the wall and knocked him unconscious. Victorious at last, Luffy shouted out to Robin that they would be going back together.{{Qref|chap=427|ep=309}} However, Luffy then collapsed from his wounds, and though he heard Usopp's call to join them on an escape ship and became surrounded by all five of the Buster Call battleships, he stated that his body could not move at all. However, Usopp had Robin push Luffy off the edge of the prop tower with her ability, and as Luffy fell toward the ocean the Going Merry suddenly surfaced, giving the Straw Hats a chance to escape.{{Qref|chap=428|ep=310}}
+
+[[File:Going Merry's Funeral.png|thumb|left|210px|Luffy and his crew bid farewell the Going Merry in its last moments.]]
+
+Luffy fell into the ocean but was quickly rescued by Kokoro, who tossed him onto the Merry. As the Straw Hats collected themselves, Robin thanked everyone for saving her, and Luffy grinned in response. The Marine battleships prepared to fire at the Merry, but their aim was thrown off due to Sanji having closed the Gates of Justice which created violent whirlpools. One of the ships managed to lock onto the Merry and fire, but Zoro and Sanji used Luffy's body to intercept the cannonballs and launch them back at the Marines. Franky used '''Coup de Vent''' to blast the Merry away from the battleships, allowing the Straw Hats to sail away from Enies Lobby victorious.{{Qref|chap=429|ep=311}} Once they reached safety, Usopp put his Sogeking mask back on and lied that Usopp had gone off on another boat, which Luffy believed. The Straw Hats then encountered a Galley-La ship captained by Iceburg, and as this happened, the entire bow of the Merry nearly broke off entirely. Luffy begged Iceburg to help Merry, saying the ship was essentially their crewmate. However, Iceburg replied that the best thing to do for the Merry would be to let it rest. After a few seconds, Luffy solemnly accepted this, and after his crew had evacuated the ship, Luffy used a torch to set it on fire before disembarking onto a small rowboat. Luffy thanked the Merry for all it had done for them, and as the ship burned, it stunningly spoke to the crew like it had during its arrival on Enies Lobby, apologizing for being unable to carry them further. Merry's words caused Luffy to start bawling as he apologized to the ship for treating it as poorly as he had; however, Merry then responded that it was happy to have gone this far, and thanked the Straw Hats for taking care of it as it broke down and sank into the sea.{{Qref|chap=430|ep=312}}
+
+===Post-Enies Lobby Arc===
+As everyone relaxed at Water 7 two days later, Franky decided to build a [[ship]] for the crew out of the special wood called [[Treasure Tree Adam|Adam Wood]]. However, at that point, Marines led by [[Monkey D. Garp|Vice Admiral Garp]] broke into Iceburg's mansion where everyone was staying, and punched the still-asleep Luffy to wake him up. To everyone's shock, Luffy revealed that Garp is really his grandfather,{{Qref|chap=431|page=|ep=313|Back at [[Water 7]].}} and revealed the training Garp put him through as a child. Garp soon told Luffy about the [[Four Emperors]] and how [[Shanks]] was one of them. Soon after, Garp asked Luffy about his meeting with his father as Luffy was surprised to learn he had a father and he encountered him in [[Loguetown]]. Garp casually revealed the name of Luffy's father, known as [[Monkey D. Dragon|Dragon]] the Revolutionary, who is considered by the World Government to be the worst criminal in the world. Luffy did not know of Dragon as he is met with surprise from his crew and friends before he turned to Robin, who informed him why his father was infamous. Afterwards, Garp said that it was supposed to be a secret.{{Qref|chap=432|page=|ep=314|Back at [[Water 7]].}}
+
+[[File:Zoro Discusses Usopp's Membership with Luffy.png|thumb|Zoro discusses Usopp's return to the crew with Luffy.]]
+
+Sometime after, Sanji revealed to the Straw Hats that Usopp was planning to rejoin the crew. While Luffy, Nami, and Chopper wanted him to rejoin and planned to invite him back, Zoro insisted that Luffy should be a firm captain on his position, and Usopp shouldn't return so easily as he should return on their terms, not his. Zoro even threatened to leave the crew if Usopp was allowed to rejoin without asking for forgiveness for his behavior. Luffy understood the message and agreed with Zoro's view of the situation.
+
+A few days later, Chimney, Gonbe, [[Mozu and Kiwi]] burst in on the Straw Hats to tell them their new ship was complete. Shortly after, [[Zambai]] and the rest of the Franky Family also appeared, revealing to the Straw Hats their new [[Bounties]]. They then revealed that their boss also received a bounty, which led them to the Straw Hats who they begged to let him join their crew. After the Straw Hats, they excitedly left to [[Scrap Island]], where their new ship was moored. There, Iceburg unveiled their new caravel, much to the pirates' delight. After briefly exploring the ship, Luffy asked Iceburg where Franky was. Having discerned that the young captain wished to recruit Franky as their [[Shipwright]], Iceburg advised Luffy that if he really wanted Franky, he would need to use force.
+
+With the help from the rest of the Franky Family, Luffy got a hold of Franky's underwear as a bargaining chip to get him to join his crew. Franky simply posed naked, unabashed, and said, "I'm still a man, naked." Meanwhile, Sanji came running with Zoro to tell everyone that Vice Admiral Garp had sailed on the opposite shore into attack position. Luffy then threw Franky's swim briefs back and told him to sail with them. Franky then stated that he did want to see his dream ship reach the end of the world and become the greatest ship ever built. Franky agreed to join after this.
+
+Shortly after, Garp appeared and started attacking the Straw Hats and their new ship. At that moment, Usopp tried to rejoin the crew, but because of Zoro's speech, he was ignored until he apologized. During the struggle between Garp and the Straw Hats, Usopp finally apologized and admitted that he wanted to rejoin. With that note, Luffy tearfully accepted him back into the crew. With Usopp and Robin's return, Franky wished to grant the ship it's new name, and while most of the Straw Hats gave some suggestions, with Luffy giving some of the most ridiculous ones, they in the end went with Iceburg's suggestion, the [[Thousand Sunny]]. After escaping Garp's onslaught of iron balls using their new ships emergency escape feature, the ''Çoup de Burst''', the newly formed Straw Hat crew sailed off to find their next adventure.
+
+==References==
+{{References}}
+{{Monkey D. Luffy Tabs Bottom}}
+[[es:Monkey D. Luffy/Historia/Paradise]]
+[[Category:Character Subpages]]
+{{Monkey D. Luffy Tabs Top}}
+
+==Thriller Bark Saga==
+===Thriller Bark Arc===
+====Meeting Brook and Exploring Thriller Bark====
+
+[[File:Luffy Asks Brook to Join.png|thumb|left|210px|Sanji and Nami panic as Luffy invites the skeleton [[Brook]] to join their crew.]]
+
+After sailing for some time on the [[Thousand Sunny]], Luffy and the rest of the crew found themselves in the presence of a [[ghost ship]]. Wanting to explore the ship, Luffy along with Sanji and Nami climbed aboard. There they met a skeleton named [[Brook]]. When, Luffy asked him to join his crew, the skeleton eagerly accepted.{{Qref|chap=442|page=|ep=337|Brook is introduced.}} Luffy then brought Brook back to Thousand Sunny to show to the rest of the crew, much to their dismay. Over dinner, Brook explained his past and later explained that he really cannot join Luffy due to his current condition of having his shadow stolen.{{Qref|chap=443|page=|ep=338|Brook joins the Straw Hats for dinner and explains his past.}}
+
+Luffy really wanting to have Brook as a member, promised to get Brook's shadow back no matter what. This pleased Brook so much that the skeleton decided to perform before the crew with his violin, revealing he is a musician. Just as Brook was about to perform, a ghost appeared as well as the gates of a strange island, [[Thriller Bark]]. These events prompted Brook to head to the island before Luffy and the rest of the Straw Hats' eyes.
+
+With Luffy's resolve to go to the island to get his long awaited musician (in fact, nearly since the beginning of his journey) and to explore the island, Franky and Robin decided to join him also. After witnessing Franky's [[Mini Merry II|present]] to the Straw Hats, Luffy and the rest of the Straw Hats decided to look for Nami, Usopp, and Chopper who had not returned. However before Luffy and the rest could go to the island, they were stopped by an [[Absalom|invisible thing]].{{Qref|chap=444|page=|ep=399|Luffy, Zoro, Sanji, Robin, and Franky are kept from going ashore by Absalom.}}
+
+After the Thousand Sunny got caught in what was apparently a spider web, Luffy and the rest descended to the island. There they met the [[Zombie#Cerberus|Cerberus]] which Luffy thought of eating,{{Qref|chap=446|page=|ep=340|Luffy, Zoro, Sanji, Robin, and Franky encounter the Cerberus.}} soon followed by even more strange creatures. At one point, they came across some ghosts, one of which Luffy tried to catch. The ghost was unaffected and instead passed through Luffy and temporarily drained his will to go on. After recovering, the group meets with some [[Thriller Bark Creatures#Zombies|Zombies]]. Luffy and the rest defeated the zombies with a combo technique.{{Qref|chap=448|page=|ep=342|Luffy and the Straw Hats with him defeat some Zombies with a combo.}} Luffy then asked the zombies about his three friends that came by earlier. The zombies inadvertently revealed that they attacked them when they showed up. For this, Luffy and the rest shoved the zombies back into their graves head first.
+
+<div style="float:right">[[File:Spoil Requests Help.png|thumb|210px|Spoil begs Luffy to get his and the other victims' shadows back from Moria.]]</div>
+
+The group then met with [[Spoil]], a zombie looking old man who asked them to defeat [[Gecko Moria]] who had stolen his shadow and the shadows of others like him. Robin then explained that Moria was a Shichibukai with a former bounty higher than Luffy. With plans to actually beat Moria, Luffy agreed to help the old man and the others who had their shadows stolen. As it began to rain, Luffy and the others discovered that [[Thriller Bark]] was actually a ship. With their goal in mind, they ventured into [[Thriller Bark Mansion|Moria's mansion]].{{Qref|chap=449|page=|ep=343|Luffy and the others with him agree to defeat Moria.}}
+
+Inside the mansion, Luffy and the others fought against the Zombies in the dining hall. {{Qref|chap=450|page=|ep=344|Luffy and the others fight against the Zombies in the dining hall.}} After the battle, he and the others noticed that [[Sanji]] was missing. With nothing else to do in the room, Luffy and the others decided to take [[Buhichuck]], the leader of the Zombies in the room, along in order to have him guide them to the rest of their friends. As Luffy left the room, the Zombies told him to be scared of Moria's wrath for what Luffy and his friends did in the dining hall. Luffy in response, merely replied that he will "kick Moria's ass".
+
+After walking awhile with Buhichuck as their hostage, Luffy, Robin, and Franky suddenly noticed that [[Roronoa Zoro|Zoro]] was missing too.{{Qref|chap=451|page=|ep=345|Luffy, Robin, and Franky notice that Zoro is now missing.}} The situation was beginning to become suspicious. Later, Luffy found a suit of armor and decided to don it. After a while, the three came upon an arena like area. There, Luffy and Robin witnessed a bout between Franky and a [[General Zombie]]. After witnessing it for while, Luffy's group were suddenly trapped in the room by Buhichuck. There they were forced to fight a large group of General Zombies.{{Qref|chap=452|page=|ep=346|Luffy, Robin, and Franky fight against the General Zombies.}} In the middle of the battle, Luffy found himself face to face with a General Zombie with three swords like Zoro. Before Luffy could get a clear answer from [[Jigoro]], he was caught off guard by some Spider Mice Zombies. Luffy was then sealed in a coffin by the Spider Mice with their webbing and was then sent to the main mast of Thriller Bark.
+
+[[File:Moria Cuts Luffy's Shadow.png|thumb|left|192px|Luffy's shadow being cut by Moria.]]
+
+Luffy was brought afterwards before [[Gecko Moria]].{{Qref|chap=455|page=|ep=349|Luffy is brought before Moria.}} After being stripped of his armor, Luffy had his shadow stolen by Moria through the use of the power of the Devil Fruit Moria ate, the [[Kage Kage no Mi]]. Upon being separated from his shadow, Luffy fell into a coma. With Luffy's shadow in Moria's hands, Moria decided to put it in the 900th Zombie, [[Oars]].{{Qref|chap=456|page=|ep=350|Moria decides to put Luffy's shadow in Oars.}} Having his shadow finished being extracted, Luffy was then brought back to the Thousand Sunny by some Spider Mice.{{-}}
+
+====Counterattack Against Moria====
+After being placed in the Thousand Sunny's kitchen along with Sanji and Zoro, Usopp managed to wake them up. After being briefed on what happened while they were out. With Nami and three of their shadows taken, Luffy and the others planned to take them back. Luffy was then informed by Franky of Brook's relationship with [[Laboon]]. Ever more excited by this information, Luffy is even more decided to have the skeleton join their crew. With this, Luffy and his crew decided to take back from Moria what he stole from them and their friends.{{Qref|chap=458|chap2=459|page=|ep=353|ep2=354|Luffy is awakened and decides with the rest of his crew to retaliate against Moria.}}
+
+With the determination to get everything back before dawn arrives, Luffy and his crew split into two teams. With part of his team headed to save Nami and himself headed to defeat Moria, Luffy's team purified several zombies with some salt from Usopp. As they rampaged through and purified Moria's zombie hoard, Luffy and Sanji unfortunately got subdued by more of Perona's ghosts. Fortunately however, they were saved by the rest of the team before the zombies could get to them. Just as things were getting chaotic enough, [[Oars]], the zombie with Luffy's shadow, came crashing into the part of the building Luffy's team was in and separated part of the building as well as part of Luffy's team. With only Robin and Chopper left with him, Luffy and the two decided to continue towards Moria, seeing that the others would not be beaten so easily.{{Qref|chap=460|page=|ep=355|Luffy's team is separated by Oars amongst the chaos.}} As the three continued onwards, they were stopped in Moria's dance hall by [[Hogback]] and [[Victoria Cindry|Cindry]]. Fortunately, however, Robin and Chopper were able to hold those two off long enough for Luffy to slip pass them.
+
+[[File:Luffy Confronts Moria.png|thumb|210px|Luffy meets [[Gecko Moria]] and demands him to return all of the shadows he stole.]]
+
+Luffy finally reached Moria,{{Qref|chap=461|page=|ep=356|Luffy reaches Moria in the freezer.}} and after a short conversation, started attacking the Shichibukai. However, as soon as Luffy threw a punch, Moria used his own shadow, Doppelman, to fight in his stead. Undeterred by this seemingly invincible being, Luffy was still able to land a hit on Moria himself by attacking the Shichibukai from an indirect place.{{Qref|chap=463|page=|ep=357|Luffy begins fighting against Moria in the freezer.}} However despite using this tactic for some time, Luffy was still unable to land a direct clean hit on Moria. This continued until Oars came back to the freezer and started obeying Moria's orders fully. Once Moria gave Oars the order to completely annihilate all of the Straw Hats, the zombie began to attack Luffy. Luffy dodged the blow and started to chase after Moria, who had decided to run away from the chaos that was about to ensue.{{Qref|chap=469|page=|ep=364|Luffy starts chasing after Moria as Oars starts looking for the Straw Hats.}}
+
+As Luffy chased after Moria, he was led deep within the forest of Thriller Bark. However, as Luffy was chasing Moria, the Shichibukai tricked Luffy into chasing Doppelman. Upon realizing what happened, Luffy was left stranded in the middle of forest. Seeing that dawn was fast approaching, Luffy immediately tried to find his way back to the Mast Mansion.{{Qref|chap=473|chap2=474|page=|ep=368|ep2=369|Luffy is led deep into Thriller Bark's forest and left there.}} However while running around lost in forest, Luffy encountered the group that the old man, [[Spoil]], was head of, the Thriller Bark Victim's Association. With some convincing by members of the association, the Risky Bros. of the Rolling Pirates, Luffy was told that they knew a way to beat Moria.{{Qref|chap=475|page=|ep=370|Luffy meets the Risky Brothers in the Thriller Bark forest.}}
+
+Through some explanations by the Risky Brothers' captain [[Lola]], Luffy was told of the process of using captured shadows to power oneself up for ten minutes. Luffy was implanted with one hundred shadows that the Thriller Bark Victim's Association had collected over the years and became a vastly larger blue being that was dubbed "[[Kage Kage no Mi#Nightmare Luffy|Nightmare Luffy]]". With his newfound strength and skills bestowed by the shadows, Luffy rushed off to Mast Mansion, where Oars and Moria were battling against his crew and Brook.{{Qref|chap=476|page=|ep=370|Luffy becomes Nightmare Luffy.}}
+
+[[File:Nightmare Luffy.png|thumb|left|210px|Nightmare Luffy saves Nami and Usopp from Oars and joins the fight.]]
+
+Arriving just in the nick of time to save both Nami and Usopp from Oars, Luffy immediately started battling against the zombie. He easily overpowered him with his devastating attacks, wounding Moria as a result as well. With the execution of his final move, '''Gomu Gomu no Storm''', Luffy's ten minute limit was up. However, Luffy had inflicted so much damage onto Oars that the behemoth completely toppled over onto the Mast Mansion.{{Qref|chap=478|chap2=479|page=|ep=372|Nightmare Luffy devastates both Oars and Moria in battle.}}
+
+Though Luffy was exhausted by having so many shadows implanted within him, the battle was still not over, for Oars rose back up to continue battling on. Despite their wounds, Luffy, his crew, and Brook rose back up as well and started one last combined attack against the zombie. While the rest of his crew began to restrict Oars' movements, Luffy was brought to top of Thriller Bark with help from Brook's high jumps and Robin's ability. At the top, Luffy was then thrown down towards a restricted Oars. As Luffy fell, he activated Gear 3 and landed a crippling blow to Oars, shattering the zombie's spine and rendering him incapable of moving anymore.{{Qref|chap=480|page=|ep=373|Luffy along with his crew and Brook perform one last move that shatters Oars' spine.}}
+
+[[File:Gomu Gomu no Gigant Jet Shell.png|thumb|210px|Luffy using Gomu Gomu no Gigant Jet Shell to defeat Moria.]]
+
+Despite Luffy's strong will within him, Oars was no longer able to move. However, while Oars was indeed finally defeated, Luffy and the other shadowless victims still had to get Moria to return all of their shadows before the rising dawn incinerated them. Unfortunately, despite receiving the blunt of Luffy's attack, Gecko Moria, managed to rise back up again and instead of giving back their shadows, the Shichibukai replied with his horrifying technique, '''Shadow's Asgard.''' Despite Moria's transformation into a giant monstrosity, time getting dangerously over before dawn, and all the fatigue and wounds from earlier, however, Luffy readied himself to fight Moria one last time. As Luffy battled against Moria to the limit with Gear 2 techniques that made Moria spew out some shadows, dawn was quickly approaching. Eventually, with time practically almost over, Luffy decided to stack his Gear transformations on top of one another in order to perform a reckless move, '''Gomu Gomu no Gigant Jet Shell''', to use against Moria. As Luffy attacked Moria with this move and just as the first signs of dawn started to incinerate both Luffy and the others, Luffy asked his own shadow to come back to him if it wanted to become [[Pirate King]]. Then with one last use of '''Gomu Gomu no Gigant Jet Shell '''Luffy was able to topple down Moria unable to hold his stolen shadows any longer. With this, Luffy's shadow and all of the other shadows of those on Thriller Bark returned to their original just in time to save them.{{Qref|chap=481|chap2=482|page=|ep=373|ep2=374|Luffy battles Moria one last time just as dawn finally arrives.}}
+
+====Just Escaping the Tyrant's Clutches and Finally Getting a Musician====
+
+[[File:Omae ni wa Jigoku o Miseru….png|thumb|left|210px|Kuma takes away Luffy's accumulated pain from his body.]]
+
+With everyone's shadows finally returned and Moria finally defeated, Luffy collapsed from all the fatigue and pain he experienced from the night beforehand. While things seemed finally over, the celebration was however cut short with the arrival of [[Bartholomew Kuma]] in the scene. The second Shichibukai, having seen and reported the whole event to the World Government, was ordered to take out Luffy as well as eliminate everyone else on the island who witnessed Luffy's victory over Moria. A battle for an unconscious Luffy thus then ensued between the second Shichibukai and everyone else left standing willing to protect Luffy. In the end, Zoro asked if he could exchange his life for Luffy's. Impressed by Zoro's loyalty, Kuma pushed all of the pain from the battle from Luffy's body with his ability and implanted it into Zoro, to make him feel Luffy's pain.{{Qref|chap=483|chap2=485|page=|ep=375|ep2=377|Luffy is saved from being capture by Bartholomew Kuma while he is unconscious.}}
+
+[[File:Luffy Asks Brook to Join Again.PNG|thumb|210px|During the victory celebration, Luffy asks [[Brook]] once again to join his crew.]]
+
+After Kuma left and a day of rest went by, an energetic Luffy decided to celebrate their victory with everyone. As party went on, Luffy noticed Brook playing a familiar song on a piano. Remembering that this was a song that Shanks and his crew used to sing all the time, Luffy got into a conversation with Brook. As Brook played and the conversation went on, Luffy once again asked Brook to join his crew. Brook once again, turned down Luffy's offer since the skeleton had still some things to do. Knowing what he was talking about, Luffy revealed to Brook that not only did he learn about the skeleton's relationship with [[Laboon]], but also told him that Laboon was alive and well. Having told Brook this, Luffy touched Brook's heart and made the skeleton burst into tears of joy. As the party got more joyous with Brook bringing out a Tone Dial with the last musical performance of the Rumbar Pirates on it, Luffy was asked by Brook if he could join his crew. For this, Luffy casually agreed, much to the shock to most of his crew.
+
+[[File:Straw Hats Celebrate Brook's Joining.png|thumb|left|210px|The Straw Hat crew as they cheer on their ship for their new member Brook.]]
+
+With this very casual acceptance, Luffy finally got the musician he so longed for since his journey as a pirate began. After two days of recuperation, Luffy and his crew decided to leave Thriller Bark for Fish-Man Island. As they were about to leave, they were introduced to the concept of the [[Vivre Card]] by Lola. Remembering the piece of paper that Ace gave to him, Luffy took out the Vivre Card that his brother gave to him. Upon taking it out however, Luffy noticed that Ace's Vivre Card was burning a little and becoming smaller. With this, Luffy was explained that Ace's life was slowly vanishing. Dismissing the Vivre Card's state as Ace having his own adventure, Luffy and his crew sailed away from Thriller Bark and onto Fish-Man Island.{{Qref|chap=489|chap2=490|page=|ep=381|Luffy sees that Ace's Vivre Card is becoming smaller but dismisses it as him having his own adventure.}}{{-}}
+
+==Summit War Saga==
+===Sabaody Archipelago Arc===
+====An Old Nemesis and the Man in the Iron Mask====
+After several days of traversing the dangers and wonders of the Grand Line, the Straw Hats became overjoyed when they finally reached the [[Red Line]]. Luffy, Robin, and Brook attempted to get down to [[Fish-Man Island]] in the [[Shark Submerge III]], but the submarine could not go that far down and they were chased back up by a Sea Bunny. After returning to the Sunny, Luffy defeated the Sea Bunny with one punch, causing it to spit out a mermaid named [[Camie]] and a talking starfish named [[Pappag]] onto the Sunny's deck.{{Qref|chap=490|ep=385}}
+
+To thank Luffy for saving her, Camie offered the Straw Hats some takoyaki. Luffy examined her and Pappag with great curiosity, not having realized he had already met a mermaid in [[Kokoro]]. He was eager to receive the takoyaki, but when Camie called her partner [[Hatchan]], she found out he had been kidnapped by the [[Macro Pirates]] and the [[Rosy Life Riders|Flying Fish Riders]]. Nami volunteered the crew to rescue him, and Luffy instantly agreed when he heard about Hatchan's takoyaki making skills. Camie called fish to direct them toward the Flying Fish Riders' hideout, and Luffy learned that the group was one of many kidnapping gangs around the [[Sabaody Archipelago]], being led by [[Duval]]. Some Flying Fish Riders then arrived and started attacking the Sunny, but quickly retreated.{{Qref|chap=491|ep=386}} The Sunny then reached the Flying Fish Riders' base, which appeared abandoned. The Straw Hats approached a cage containing Hatchan, and Luffy and his first four crewmates recognized him, becoming hesitant to rescue him. However, when Camie and Pappag went to save Hatchan and were caught by the Macro Pirates, the Straw Hats decided to save Hatchan as Luffy freed Camie and Pappag from the Macro Pirates' grasp.{{Qref|chap=492|ep=387}}
+
+[[File:Duval and Motobaro vs Luffy.png|thumb|Luffy stops Duval and Motobaro.]]
+
+The Flying Fish Riders then emerged from the ocean to attack, and Luffy hijacked one of the flying fish. However, the flying fish were then ordered to go underwater, forcing Luffy's crewmates to rescue him. One Flying Fish Rider charged toward the Sunny with a giant mace, and on Sanji's command, Luffy knocked out the fish while Sanji took down the rider, and Luffy put the fish on the deck to eat for dinner. Luffy watched as Brook put several more riders to sleep with his music, and tried hijacking another flying fish, but ended up crashing into Duval's room. In the room, Luffy saw Duval without his mask on before Duval put it on and confronted him.{{Qref|chap=493|ep=388}} Luffy was chased back outside by Duval and his bison [[Motobaro]], and as Duval angrily confronted Sanji, Luffy hit his mask off to reveal that Duval's face resembled the one on Sanji's wanted poster.{{Qref|chap=494|ep=388}}
+
+Duval had the Flying Fish Riders put a steel net around Sanji before throwing him into the sea, and Zoro had to hold Luffy back from jumping in after him. Luffy then watched in awe as Camie raced to save Sanji, and Franky blew apart the Flying Fish Riders' base with the Sunny's [[Gaon Cannon]]. Duval then prepared to charge at Luffy with Motobaro, but with just a few words, Luffy managed to cause the bison to turn around and fall unconscious. Sanji then told Luffy to let him finish off Duval, and the former proceeded to do so.{{Qref|chap=495|ep=389}}
+
+====Arrival at Sabaody: Defying the World Nobles====
+[[File:Enjoyment at Sabaody Park.png|thumb|left|210px|Luffy and the others enjoy Sabaody Park.]]
+
+Afterwards, the Straw Hats gorged on takoyaki that Hatchan, Camie, and Pappag made for them, and Duval and the newly renamed Rosy Life Riders came to thank them for Sanji changing Duval's face to give him a new appearance. After the meal, Pappag told the Straw Hats that they would need to give the Sunny a special coating to sail down to Fish-Man Island and into the [[New World]], and they could get this at the [[Sabaody Archipelago]]. They soon reached Sabaody, and Luffy marveled at the bubbles coming out of the ground. Hatchan said he would take the Straw Hats to a good coating mechanic, but insisted that they not defy any [[World Noble]]s they encountered.{{Qref|chap=496|ep=390}} Luffy, Chopper, and Brook went shopping with Camie, Pappag, and Hatchan, and eventually saw [[Devil Dias|a slave]] attempting to run away. However, the collar around the slave's neck then exploded, and when his masters Saint [[Shalria]] and Saint [[Rosward]] came up to him, they shot him. This enraged Luffy, but Pappag warned him that attacking a World Noble would result in a [[Marine]] [[admiral]] being summoned.{{Qref|chap=497|ep=391}}
+
+Luffy's group was attacked by several [[Bounty Hunter|bounty hunters]], but he, Chopper, and Brook dispatched them with ease. They then arrived at Grove 13, where they entered Shakky's Rip-Off Bar to find the coater. The owner, [[Shakuyaku]], knew who Luffy and his crewmates were and figured they had come to find [[Rayleigh]] to coat their ship. She revealed that he had been away for six months, but said he liked to go to the Sabaody amusement park, revealing there were nine other pirates there with bounties over {{B}}100,000,000, including [[Eustass Kid|one man]] with a bounty higher than Luffy's.{{Qref|chap=498|ep=392}} Luffy's group then headed to Sabaody Park, where they enjoyed the rides and attractions. However, Camie ended up being kidnapped by the [[Hound Pets]] while the rest of the group went to get ice cream, and Luffy, Pappag, and Hatchan ran off to find her.{{Qref|name=c500|chap=500|ep=394}}
+
+[[File:Luffy Punches Charlos.png|thumb|210px|Not tolerating Hatchan's injury, Luffy punches Saint Charlos.]]
+
+The three of them searched Human Shops looking to find Camie, and Pappag and Hatchan told Luffy about the discrimination fish-men and merfolk faced here. The Rosy Life Riders then came to pick them up to bring them to the [[Human Auctioning House]] where Camie was being sold,{{Qref|name=c500}} and Luffy and his rider picked up Zoro on the way there. They ended up crashing through the door right as Camie was being sold onstage, and Luffy rushed to her despite Hatchan trying to hold him back. Luffy eventually got past Hatchan, but looked back and saw the fish-man being shot by the World Noble Saint [[Charlos]]. He then walked back up toward the two of them, and despite Hatchan's pleas not to go against the World Noble, Luffy went up to Charlos and punched him in the face, sending him crashing through several benches and knocking him unconscious.{{Qref|chap=502|ep=396}}
+
+[[File:Pirate Captain.png|thumb|left|210px|Luffy, Kid, and Law confront the Marines.]]
+
+Luffy apologized for going against Hatchan's orders, but his crew immediately joined him in attacking the guards and attempting to free Camie. During the chaos, Silvers Rayleigh came out from backstage and used [[Haoshoku Haki]] to knock out almost everyone, including all the guards and World Nobles, and he told Luffy he had been looking forward to meeting him.{{Qref|chap=503|ep=397}} Rayleigh freed Camie of her slave collar and said he would talk with Luffy later, as the Marines had surrounded the Auction House and Rayleigh had no intention of confronting them. The pirate [[Eustass Kid]] told his fellow supernovas Luffy and [[Trafalgar D. Water Law|Trafalgar Law]] that he and his crew would confront the Marines themselves, but the two of them immediately went out to join Kid. The Marines shot mortars at the three of them, but they each used their [[Devil Fruit]] powers to redirect the shots back at them.{{Qref|chap=504|ep=398}} The Supernovas then went on the offensive, and decided to meet back up in the New World as their crews joined them in decimating the Marines before heading off separately.{{Qref|chap=505|ep=399}}
+
+====Destruction of the Straw Hat Crew====
+The Straw Hats and their allies went with Rayleigh, where they parted ways with the Rosy Life Riders before going back to Shakky's bar. Rayleigh revealed that he was [[Gol D. Roger]]'s first mate, and told the Straw Hats the truth about Roger's final voyage and execution.{{Qref|chap=506|ep=400}} When Usopp asked Rayleigh about the [[One Piece]], Luffy loudly stopped him, not wanting to have the treasure spoiled for him. Rayleigh liked Luffy's attitude and agreed to coat the Sunny for free, saying it would take him three days. The Straw Hats received a Vivre Card from Rayleigh to reunite with him at that time, and they headed out with the objective to survive the Marine onslaught until then.{{Qref|chap=507|ep=400|ep2=401}}
+
+[[File:Luffy Fighting Kuma.png|thumb|Luffy fighting Kuma.]]
+
+However, the Straw Hats were immediately confronted by a [[Pacifista]] that they mistook for [[Bartholomew Kuma]]. The Pacifista shot a beam at them, and after finding out who Kuma was and what he did on [[Thriller Bark]], Luffy decided to go all out as he activated [[Gear 2]].{{Qref|chap=508|ep=401}} Luffy, Zoro, and Sanji performed some of their strongest attacks simultaneously on the Pacifista, but only knocked it into a building without damaging it much.{{Qref|chap=509|ep=402}} It soon got back up and overwhelmed Zoro, but the Straw Hats unleashed consecutive powerful attacks on it, ending with Luffy's '''Gomu Gomu no Gigant Rifle''', which successfully took it down.{{Qref|chap=510|ep=402|ep2=403}}
+
+The Straw Hats tried to rest, only to be immediately confronted by the Marine Science Unit Commander, [[Sentomaru]], and another Pacifista, [[PX-1]]. Since they were in no shape to continue fighting, Luffy decided to have the crew split up and run away, telling them to reunite at the Sunny in three days. Luffy ran off with Robin and Chopper, but Sentomaru confronted them, and he used [[Busoshoku Haki]] in his palm strikes to hurt Luffy. Luffy then saw the Marine Admiral [[Borsalino|Kizaru]] attacking Zoro, but before Kizaru could finish Zoro off, Rayleigh came in and intercepted his attack.{{Qref|chap=511|ep=403|ep2=404}}
+
+[[File:Luffy Cries Over Loss of Crew.png|thumb|left|210px|Luffy cries over the loss of his crew.]]
+
+Luffy told Usopp and Brook to take Zoro and run away, knowing that all of them were too weak to beat the enemies in front of them. However, he watched as his crewmates were overwhelmed by PX-4 while he was slammed into the ground by Sentomaru. In the midst of this onslaught, the real Bartholomew Kuma appeared, and Luffy watched as he transported Zoro to another place.{{Qref|chap=512|ep=404}} Sentomaru told Luffy what Kuma had done, and after Kuma transported PX-1 away as well, Luffy yelled at his crew again to run, as it was all they could do at this point. However, it was not enough as Kuma sent Brook, Usopp, and Sanji flying away as well. Kuma repelled an attack from Luffy before sending Franky and Nami away, and Luffy was unable to do anything as the Shichibukai finished the job, making Chopper and Robin disappear. With everyone gone, Luffy started breaking down over his inability to save his crewmates, and Kuma told him that they would not see each other again as he sent Luffy away from Sabaody.{{Qref|chap=513|ep=405}}
+
+===Amazon Lily Arc===
+Luffy was sent flying upon Kuma's touch, and flew for days until he landed on the island [[Amazon Lily]]. He decided to use Rayleigh's [[Vivre Card]] to head back to Sabaody, but collapsed after running into a cliff face and unsuccessfully trying to destroy it. After killing and eating a boar, Luffy found some mushrooms and ate those as well. However, he ate a [[Body Mushroom]], which caused mushrooms to grow from his body and threaten his life. He was discovered by [[Marguerite]], [[Sweet Pea]], and [[Aphelandra]], and they took him to the village. There, they burned the mushrooms off of Luffy and took him to the river to wash him. There, when Sweet Pea mistook Luffy's crotch for a mushroom, [[Gloriosa|Elder Nyon]] revealed to the citizens, who were all females, that Luffy was a man.{{Qref|chap=514|ep=408}}
+
+Luffy was put in a cell, and after waking up, he took back his straw hat from the Amazon Lily citizens as they ogled at him. They gave him some clothes, and when he reacted negatively to their feminine design, the women got angry and decided to execute him. Intent on returning to his crew, Luffy destroyed the roof of his cell with a kick and escaped. After being slammed to the ground by Apelandra, Luffy realized he needed to recover Rayleigh's Vivre Card from his trousers. Upon seeing Marguerite with them, he grabbed her and scaled the cliff around the village, returning to the woods. Marguerite gave him the Vivre Card, and after Luffy revealed that he was a pirate, Marguerite told him about their empress [[Boa Hancock]] who was also a pirate.{{Qref|chap=515|ep=409}} Marguerite helped Luffy remove the frills from his clothes, and he asked if she could give him a boat to leave, to which she replied that Amazon Lily was located in the [[Calm Belt]]. Luffy decided to build a raft, but it quickly fell apart, and after saving him, Marguerite decided to kill him to avoid becoming attached.{{Qref|chap=516|ep=410}}
+
+[[File:Luffy Interrupts Hancock's Bath.png|thumb|194px|Luffy sees Hancock's back.]]
+
+Luffy dodged Marguerite's arrows, which possessed considerable power due to being imbued with [[Busoshoku Haki]], and the latter's comrades arrived to reinforce her. Luffy manage to escape by climbing back up the mountain overlooking the village, and he decided to find an important person to help him by going to a tall building. He jumped onto the roof of Hancock's palace, but ended up breaking through it and falling into Hancock's bath, where he saw a mark on her back.{{Qref|chap=517|ep=411}} Hancock's sisters [[Boa Sandersonia]] and [[Boa Marigold]] then came in, and the three of them said Luffy would have to die for seeing Hancock's back. Hancock attempted to turn Luffy to stone with her [[Mero Mero no Mi]] powers, which had no effect on Luffy as he mistook them for [[Foxy]]'s [[Noro Noro no Mi|Noro Noro]] beams. Luffy then jumped out of the palace, but was shot by Hancock's kiss and was captured by the Kuja upon falling to the ground.{{Qref|name=c518|chap=518|ep=412}}
+
+[[File:Saragi no Mai.png|thumb|left|Luffy faces off against Marigold and Sandersonia in their human-snake forms.]]
+
+Luffy was put into an arena, and Hancock refused to believe his account of how he got to Amazon Lily. Marguerite, Sweet Pea, and Aphelandra then pleaded on Luffy's behalf, but Hancock turned them to stone. She then released the panther [[Bacura]] to attack Luffy, but Luffy defeated it with one punch. Luffy was enraged with the spectators for laughing at Hancock's actions toward Marguerite's group, being unaffected by Hancock's charms. Hancock then sent Sandersonia and Marigold to the ring to kill Luffy,{{Qref|name=c518}} and they used their Devil Fruit powers to transform into snakes. Luffy struggled against the two sisters as they dodged his attacks with [[Kenbunshoku Haki]] and hurt him with Busoshoku Haki, and they decided to punish him further by destroying the statues of Marguerite's group. Luffy desperately yelled at them to stop, which unbeknownst to him exerted [[Haoshoku Haki]] that stopped the Gorgon Sisters in their tracks and knocked out several Kuja in the audience.{{Qref|chap=519|ep=413}}
+
+[[File:Luffy Defeats Sandersonia and Marigold With Gomu Gomu no Jet Gatling.png|thumb|210px|Luffy defeats the Gorgon Sisters with Gomu Gomu no Jet Gatling.]]
+
+Deciding to go all-out, Luffy activated [[Gear 2]], and its speed was enough to overwhelm Sandersonia's Kenbunshoku Haki as well as overpower Marigold's Busoshoku Haki. The Gorgon Sisters then unleashed their ultimate attacks as Sandersonia turned her hair into Yamata no Orochi and Marigold turned hers into flaming salamanders, but Luffy destroyed all of them with '''Gomu Gomu no Jet Gatling''' and managed to tie the sisters' tails together, sending Sandersonia falling towards the spiked pit around the arena. She grabbed the edges of the arena, and Luffy realized that her clothes had been burned off, causing him to climb on her exposed back to cover the mark on it. After realizing what he had done, Hancock had the Kuja evacuate the arena.{{Qref|chap=520|ep=414}}
+
+Hancock told Luffy that she would either return Marguerite's group to normal or give him a way to leave the island, and Luffy chose the former, becoming overjoyed when Marguerite was de-petrified. Luffy was taken back to Hancock's palace, and inside a chamber, Hancock revealed that the mark on her back was the Hoof of the Soaring Dragon, which signified that one was a slave of the [[World Noble]]s. She revealed that she and her sisters were once slaves on [[Mary Geoise]] before being freed, and the Kuja believed the marked spots to be cursed Gorgon's eyes because of the mark's shame. Having taken a liking to Luffy after finding out that he had attacked a World Noble, Hancock offered to take him wherever he wanted to go.{{Qref|chap=521|ep=415}}
+
+[[File:Luffy's Decision.png|thumb|left|210px|Luffy makes the tough decision of putting his brother's life before reuniting with his crew.]]
+
+After requesting to go to Sabaody starting the next day, Luffy partied with the Kuja, but had to run away after they started wanting to touch him. He came to Elder Nyon, who revealed that Hancock was a member of the [[Shichibukai]]. Nyon then told him the news about [[Ace]]'s imprisonment and impending execution, and a shocked Luffy decided to put his return to the crew on hold to save his brother. Nyon told him that it would take a week to reach [[Impel Down]] with a pirate ship, but a Marine ship could get there in four days. This caused Luffy to request that Hancock accept the Marines' summons to come to Ace's execution, and Hancock, who unbeknownst to Luffy was afflicted by [[Love Sickness]] for him, readily agreed.{{Qref|chap=522|ep=416}} Luffy hid under Hancock's robes as she boarded the Marine battleship, and made arrangements to stop at Impel Down.{{Qref|chap=523|ep=417}}
+
+===Impel Down Arc===
+====On the Loose in the World Government's Greatest Prison====
+Luffy hid in Hancock's room as the Marine battleship headed for Impel Down, and she requested large meals so he could eat. As they arrived at the great prison, Luffy was awed by the number of battleships stationed there. He hid under Hancock's mantle as she disembarked and headed for the prison, but she revealed to him that the workers would be doing a full body check of her.{{Qref|chap=525|ep=422}} Upon entering the prison and going to be inspected, Hancock petrified the vice head jailer [[Domino]] and the security cameras to allow Luffy to go in undetected, and she made him promise to not cause too much ruckus. Luffy hid in the ceiling rafters as Hancock was accompanied into the prison.{{Qref|chap=526|ep=422}}
+
+[[File:Luffy and Buggy Team Up.png|thumb|210px|Luffy and [[Buggy]] teaming up together.]]
+
+Luffy followed Ace's Vivre Card, and snuck through a gate to Level 1 after it was opened by some guards chasing a prisoner. The prisoners in Level 1 begged Luffy to free them when Luffy noticed [[Buggy]] being chased by the [[Blugori]]. Intent on not getting caught, Luffy and Buggy worked together to attack the Blugori.{{Qref|chap=526|ep=423}} Luffy ended up defeating all five Blugori, and asked Buggy to help him get to Level 5 where he believed Ace was. Buggy initially refused, but then agreed with the condition that he receive Captain [[John]]'s armband on Luffy's arm. Luffy decided to give Buggy the armband immediately, but in their race down the corridor Buggy ended up crashing into the wall. Thinking they needed to go through the wall, Luffy punched through it, sending him and Buggy into the guards' room before breaking through another wall into a forest of spikes. Luffy flew on Buggy's back over the spiked floor until they reached a pit leading to Level 2, which was filled with stronger criminals and worse tortures. Luffy immediately jumped into the pit, with Buggy following him soon after.{{Qref|chap=527|ep=424}}
+
+Upon arriving at Level 2, Luffy and Buggy immediately encountered the [[Basilisk]], which Luffy managed to defeat with [[Gear 3]]. The prisoners then asked the duo to free them, and Luffy angrily pulled Buggy aside when the latter did that instead of helping him. Buggy admitted that he had no idea how to get to Level 3 and that he was planning on ditching Luffy, only to renege on this statement when all of the prisoners he freed had abandoned him. [[Galdino]], formerly known as Mr. 3, then came and offered to help them.{{Qref|chap=528|ep=425}} The trio were later chased by multiple other beasts, including the bosses of the level, the [[manticore]]s. Galdino found out that Luffy was attempting to go deeper rather than escape and unsuccessfully tried to leave, causing him to take Luffy to a staircase going to Level 3. The staircase was guarded by the [[Sphinx]], which Luffy only made angrier with his attacks. Galdino distracted the Sphinx with wax replicas of himself, but its attacks caused the floor to cave in, sending it and Luffy's group down to Level 3.{{Qref|chap=529|ep=430}}
+
+[[File:Bon Kurei and Luffy Team Up.png|thumb|left|210px|Luffy teams up with [[Bentham|Mr. 2 Bon Kurei]] to get down to the lower levels.]]
+
+Luffy, Buggy, Galdino, and the Sphinx landed in Level 3, a dry and hot wasteland known as "Starvation Hell". However, they were swiftly caught in a giant net made of [[Seastone]] and confronted by the chief guard [[Saldeath]]. Their entrapment did not last long, though, as the Sphinx regained consciousness and tore apart the net. Luffy saw that Buggy and Galdino had gone up to try to escape, and he thanked them for bringing him here as he proceeded to fight through the Blugori and Sphinx on his way to Level 4.{{Qref|chap=530|ep=431}} Luffy got away from the scuffle, but had to deal with some guards and traps before being confronted again by the Sphinx. However, Luffy then saw [[Bentham|Mr. 2 Bon Kurei]], with [[Roronoa Zoro|Zoro]]'s face, leap in and attack the beast. Working together, Luffy and Bon Kurei defeated the Sphinx, and they happily embraced as Bon Kurei stated that he wanted to find someone on Level 5 as well.{{Qref|chap=531|ep=432}}
+
+[[File:Gomu Gomu no Jet Bazooka.png|thumb|210px|Luffy uses '''Gomu Gomu no Jet Bazooka''' to defeat Minotaurus.]]
+
+Luffy and Bon Kurei fought through more Blugori before being confronted by the [[Minotaurus]] of the [[Jailer Beasts]]. The two of them were initially injured by Minotaurus' spiked club, but Luffy used '''Jet Bazooka''' to send it flying a great distance away. Bon Kurei then guided Luffy to a well tower that overlooked Level 4, a blazing inferno that created the heat in Level 3. Luffy asked Bon Kurei whom he wanted to find, and the latter replied that he wished to meet [[Emporio Ivankov|Iva]] the [[okama]] queen. However, they were then joined by Buggy and Galdino, who were being chased by Minotaurus. Each member of the party used strong attacks on it, concluding with Luffy reinforcing his arm with Galdino's '''Candle Lock''' to defeat the beast.{{Qref|chap=532|ep=433}} Luffy and Bon Kurei prepared to head into Level 4, much to Buggy and Galdino's horror. However, the floor fell out from under them as a result of their attacks, causing all of them to plunge down to Level 4.{{Qref|name=c533|chap=533|ep=434}}
+
+====A Near-Death Experience====
+
+[[File:Monkey D. Luffy Hits Magellan With Gomu Gomu no Jet Bazooka.png|thumb|left|210px|Luffy sacrifices his arms to poison and attacks Magellan with '''Jet Bazooka'''.]]
+
+After avoiding landing in the boiling pool of blood, Luffy decided to race in the direction of the kitchen because of its good smell, and Bon Kurei followed him. However, after defeating several more guards, Luffy was confronted by the warden [[Magellan]].{{Qref|name=c533}} Bon Kurei warned him to run away from Magellan and his [[Doku Doku no Mi]], and Luffy was forced to run away from Magellan's poisonous hydra heads. He swung across a flaming pit to get away, but Magellan spit a poison ball at him that created an explosion and overwhelmed his senses. Magellan then moved through a poison pathway to get to Luffy, and Luffy dodged his attacks as he continued to be afflicted by the poison ball. Intent on rescuing Ace, Luffy then went on the offensive and hit Magellan with '''Jet Bazooka''', but this resulted in his arms being covered with Magellan's poison.{{Qref|chap=534|ep=435}}
+
+[[File:Luffy Defeated by Magellan.png|thumb|Luffy defeated by Magellan.]]
+
+Luffy attempted to attack Magellan further, but was always met with the warden's poisonous creations and eventually hit by more poison. Magellan also breathed poisonous mist into the air, disorienting Luffy and causing his attacks to fly into empty space. Luffy kept fighting for as long as he could, but was eventually overwhelmed by the vast number of poisons in his body. At Magellan's command, he was brought into the freezing wasteland of Level 5 to die.{{Qref|chap=535|ep=436|ep2=437}} After regaining consciousness, Luffy tried crawling toward Ace and refused to die, but could barely move and quickly passed out again. Bon Kurei then found him and dragged him to try to find Iva, but was attacked by wolves. However, Luffy came to and bit a wolf as he proceeded to [[Haki/Haoshoku Haki|knock all of them out with a shout]] before passing out again.{{Qref|chap=536|ep=437|ep2=438}}
+
+Luffy and Bon Kurei were found by [[Emporio Ivankov]], the "Iva" Bon Kurei was looking for, as well as [[Inazuma]]. Luffy pleaded with Ivankov to save Bon Kurei, causing Ivankov to decide to help Luffy as well.{{Qref|chap=537|ep=438}} Ivankov took Luffy to Level 5.5, his "Newkama Land", and had Luffy chained to a platform as he explained his treatment: by taking away ten years from Luffy's life, he would give him a slim chance of surviving the poison. He then injected healing hormones into Luffy, and Luffy was consumed by pain and anguish; Inazuma projected it would last for two and a half days. However, Luffy managed to successfully complete the process in 20 hours, and he pressed against the door keeping him in the chamber as he was desperately hungry.{{Qref|chap=538|ep=439|ep2=440}}
+
+Luffy ate days' worths of rations for over 30 minutes before he fully recovered, and he thanked Ivankov and Bon Kurei for saving him and propelling him to recovery. He asked if Ivankov was going to escape now, and Ivankov said the time was not right yet, but Luffy then revealed that [[Monkey D. Dragon|Dragon]] was his father, astonishing Ivankov who revealed that he was a comrade of Dragon's in the [[Revolutionary Army]]. Ivankov then agreed to accompany Luffy to rescue Ace, and injected adrenaline hormones into Luffy that would keep him active for a day. Luffy, Ivankov, and Inazuma then headed out and raced through Level 5, beating the wolves in their way. They then approached and entered a gate leading to Level 6, a level shrouded in secrecy where Ace was being kept.{{Qref|chap=539|ep=441}}
+
+====Escape from the Great Prison====
+Luffy, Ivankov, and Inazuma fought their way to Level 6, only to find out that they were too late, with the prisoner [[Jinbe]] revealing that Ace had just been taken to be executed. The prison guards then blocked off the lift and the stairs and unleashed sleeping gas into the room, but Inazuma blocked the gas with his [[Choki Choki no Mi]] abilities, although this blocked off the stairs even more. Ivankov told Luffy that Ace was already on his way to Marineford and it was best to give up and let [[Whitebeard]] rescue him, but Luffy refused and was intent on going to Marineford. [[Crocodile]] then offered to help Luffy escape through the ceiling, and Luffy was surprised to see the former Shichibukai imprisoned here, refusing Crocodile's offer because of his actions on [[Arabasta]]. However, Ivankov told Luffy that he knew a secret about Crocodile that would keep him under control. Jinbe then asked Luffy to free him, saying he wanted to help save Ace as well, and Luffy agreed to this as his group freed Jinbe and Crocodile from their cells.{{Qref|chap=540|ep=442}}
+
+[[File:Crocodile Luffy and Jinbe in Impel Down.png|thumb|left|210px|Luffy, Jinbe, and Crocodile rampaging their way through the levels to freedom.]]
+
+Inazuma created a pathway to the ceiling with his powers, and the group broke through into Level 5. They then raced up the stairs to Level 4, and fought the guards there as they were joined by prisoners who were freed by Buggy and Galdino, as well as [[Daz Bonez]] who had been freed by his boss Crocodile.{{Qref|chap=541|ep=443}} Luffy was told to go on to Level 3 in the midst of this skirmish, but turned back as he saw the Jailer Beasts attacking the escaped prisoners, and he, Jinbe, and Crocodile defeated the Jailer Beasts all together at once.{{Qref|chap=542|ep=445}}
+
+[[File:Luffy Uses Jet Pistol on Blackbeard.png|thumb|Luffy attacks Blackbeard.]]
+
+The group was then confronted by the chief guard [[Sadi]], but Ivankov threw Luffy forward to get him to keep going. Luffy was confronted by the vice warden [[Hannyabal]] who refused to let him past, and despite Luffy hitting him with multiple attacks, Hannyabal refused to go down and kept attacking. However, Hannyabal was then brought down by [[Marshall D. Teach]], and Luffy realized that he was the "Blackbeard" that had captured Ace.{{Qref|chap=543|ep=446}} Blackbeard said that fate was on Luffy's side when Ace prevented the former from hunting down the latter as he had originally intended, but Luffy responded by punching him. As Luffy charged to attack again, Blackbeard slammed him into the ground, injuring him with his [[Yami Yami no Mi]] abilities. Jinbe then prevented Luffy from attacking Blackbeard further, and Luffy was compelled to head for Level 3 as Blackbeard and [[Blackbeard Pirates|his crew]] went on to continue the execution of their plan.{{Qref|chap=544|ep=447}}
+
+[[File:Whale Sharks.png|thumb|left|210px|Luffy and the prisoners finally escape on whale sharks summoned by Jinbe.]]
+
+Luffy's group made it to Level 3, and stormed their way through the Impel Down forces to Level 2. While fighting the manticores, Luffy found out that Ivankov and Inazuma were facing Magellan and he wanted to go back and help, but was held back. His group then reunited with Buggy and Galdino right as Magellan arrived at Level 2, and Galdino used his wax to block the warden's 
+poison hydra from hitting Luffy.{{Qref|chap=545|ep=448}} Luffy then got an idea to fight Magellan together with Galdino, and Galdino created wax armor to put around Luffy's arms and legs. Luffy then successfully punched Magellan, with the wax protecting him from the poison.{{Qref|chap=546|ep=449}} However, Magellan countered with Kinjite, a poison strong enough to destroy objects, forcing Luffy and Galdino to run away. They arrived at the outside of the prison, but Bon Kurei told Luffy that they had not managed to get a ship yet. Ivankov and Inazuma then arrived, having survived Magellan's poison, and Luffy got in contact with Jinbe, who told his group to jump into the sea. Luffy and Galdino worked together to force back Magellan's '''Venom Demon''', and Luffy had Ivankov blow all the prisoners toward the sea with his '''Hell Wink'''. When the prisoners were over the water, Jinbe called a school of whale sharks to carry them to the battleship that he had commandeered.{{Qref|chap=547|ep=450}}
+
+Luffy and the prisoners celebrated as they reached the battleship, but soon found themselves under attack from the other Marine battleships. They then faced another problem as the [[Gates of Justice]] were closed, preventing them from leaving Impel Down. However, Jinbe continued ahead at full speed, and as the gate suddenly opened, he revealed to Luffy that Bon Kurei had stayed behind to open it. Luffy wanted to go back and rescue him, but Jinbe stated that this was impossible and leaving him behind was necessary. Jinbe then gave Luffy a [[Baby Den Den Mushi]] to contact Bon Kurei, and he and the other prisoners tearfully thanked him as their ship managed to get out of Impel Down right before the gate was closed.{{Qref|chap=548|ep=451}} As he wept over Bon Kurei, Luffy punched Buggy for taking the okama's fate lightly, and he also talked to Jinbe, whom he found out was a Shichibukai. [[Marine Headquarters]] then called the battleship, and Luffy answered it. They identified him and Buggy as the co-instigators of the prison break, and said that they would have no chance of reaching Marineford. However, Luffy declared that he would save Ace no matter what, and when Buggy was hailed by the prisoners after it was revealed that he had served on [[Gol D. Roger]]'s crew, he changed his mind and agreed to go with Luffy to Marineford as well.{{Qref|chap=549|ep=452}}
+
+===Marineford Arc===
+====The Fight Rages Without Him====
+The Impel Down escapees' ship approached the Gates of Justice to Marineford,{{Qref|chap=550|ep=459}} and to their surprise, the gates were opened immediately.{{Qref|chap=551|ep=460}} [[Emporio Ivankov|Ivankov]] wondered if [[Monkey D. Dragon|Dragon]] would come to save [[Portgas D. Ace|Ace]], but Luffy revealed that Ace was not related to him by blood and that Ace's father was [[Gol D. Roger]]. Luffy tried looking for Marineford, but could not due to the thick fog.{{Qref|chap=552|ep=461}}
+
+[[File:Impel Down Alliance Arrives.png|thumb|210px|Luffy and the other Impel Down prisoners finally arrive at Marineford.]]
+
+The escapees' ship was suddenly carried by a giant wave heading toward Marineford created by [[Edward Newgate|Whitebeard]], but the wave was frozen right above the island by Admiral [[Kuzan|Aokiji]], leaving the escapees trapped on top of it. Luffy got the idea to free the battleship from the ice and slide down the back of the wave. However, after picking up a transmission revealing that Ace would be executed ahead of the scheduled time, the group tried to hurry and get the battleship out, which caused the ice below them to shatter and sent them plummeting straight down onto the frozen Marineford Bay. By sheer luck, they ended up crashing into a Marine battleship in a small unfrozen part of the bay, and Luffy stood on the battleship's wreckage as he called out to Ace.{{Qref|name=c557|chap=557|ep=466}}
+
+[[File:Luffy's Declaration to Whitebeard.png|thumb|left|210px|Luffy declares he'll become Pirate King to Whitebeard.]]
+
+[[Crocodile]] attempted to attack Whitebeard, but Luffy kicked the former [[Seven Warlords of the Sea|Warlord]] away due to Ace caring about Whitebeard. Whitebeard told Luffy that he would be throwing his life away trying to rescue Ace, but Luffy did not care and brashly told the [[Emperor]] that he would save Ace himself and become Pirate King, surprising Whitebeard and earning his respect.{{Qref|name=c557}} Luffy told Whitebeard that Ace's execution time had been moved up, addressing the Emperor like an equal, before running into the battlefield.{{Qref|name=c558|chap=558|ep=467}}{{-}}
+
+====Objective: Save Ace!====
+Luffy was immediately met by Admiral [[Borsalino|Kizaru]], but Ivankov redirected Kizaru's laser. As Luffy fought through dozens of Marines, [[Hina]] attempted to ensnare him, but Luffy used his speed to evade [[Ori Ori no Mi|her abilties]]. [[Gecko Moria]] then summoned a [[zombie]] army to attack Luffy, and Ace told Luffy to leave, claiming to not want his help. However, Luffy declared that he would rescue Ace and disregard any pirate code because he was Ace's little brother, and [[Jinbe]] took out Moria's zombies with a blast of seawater. As this occurred, Sengoku revealed to all that Luffy was just as dangerous as Ace since he is the son of [[Monkey D. Dragon|Revolutionary Dragon]]. Unfazed by his lineage being revealed, Luffy then took out a member of the Giant Squad with '''Gomu Gomu no Gigant Rifle''', saying he would save Ace even if it killed him.{{Qref|name=c558}}
+
+[[File:Hancock Protects Luffy from Smoker.png|thumb|210px|Hancock protecting Luffy from Smoker.]]
+
+Luffy continued fighting through the Marines, but right after forcing [[Tashigi]] aside, he was hit by [[Smoker]]'s jitte. Smoker used his [[Moku Moku no Mi]] powers to make Luffy's attacks pass through him before pinning Luffy down with his jitte, but he was then kicked away by [[Boa Hancock|Hancock]].{{Qref|chap=559|ep=468}} Hancock gave Luffy the key to Ace's handcuffs, and he happily embraced her before running off. He ran into Ivankov confronting [[Bartholomew Kuma]], and watched as the emotionless Shichibukai used his new [[Pacifista]] modifications to attack. Luffy kept running, but then encountered [[Dracule Mihawk]].{{Qref|chap=560|ep=469}}
+
+[[File:Gomu Gomu no Jet Migawari.png|thumb|left|Luffy uses Gomu Gomu no Jet Migawari to dodge Mihawk's attack.]]
+
+Luffy attempted to avoid Mihawk, but the Shichibukai kept pace and hit him with a spinning air slash. Some of Ivankov's followers attempted to protect Luffy from Mihawk, but Mihawk quickly beat them. Luffy attempted to attack Mihawk, but cut it short upon realizing that his arms would be cut off. Mihawk was impressed at his clear-headed attitude and swung his sword at Luffy, who ducked as he saw the slash cleave through the frozen wave far away. Luffy was forced to avoid Mihawk's slashes, but ended up getting farther from Ace. He then pulled Buggy in front of him to intercept Mihawk's attacks, and was able to run away when Buggy attempted to attack Mihawk. After this, Luffy saw [[Vista]] of the [[Whitebeard Pirates]] battling Mihawk.{{Qref|chap=561|ep=470}}
+
+[[File:Borsalino Kicks Luffy.png|thumb|210px|Kizaru kicks Luffy at the speed of light.]]
+
+Luffy saw that the Marines were going to execute Ace very soon, but was met by Kizaru and kicked away at the speed of light. He tumbled over to Jinbe and some of the Whitebeard Pirates' Division Commanders, and the commanders went to help Luffy by dealing with Kizaru. A short time later, Luffy watched in shock as Whitebeard was stabbed by his subordinate [[Squard]].{{Qref|chap=562|ep=471}} However, Whitebeard recovered and entered the fray, and Luffy was annoyed when the Emperor's [[Gura Gura no Mi]] abilities shifted the ground and almost made him fall into the water. Luffy reached the edge of the bay and attempted to pull himself up to land, but was unable to due to the Marines raising an encircling wall. Luffy then watched in awe as Admiral [[Sakazuki|Akainu]] unleashed magma meteors into the bay to melt the ice.{{Qref|chap=564|ep=473}}
+
+[[File:Luffy Faces Three Admirals.png|thumb|left|210px|Luffy faces the three admirals.]]
+
+Luffy raced toward an opening in the encircling wall, but was beaten back by the Marines lying in wait there. After landing near Ivankov and Jinbe, he asked them for a favor, and Jinbe sent him over the wall in a blast of seawater. Luffy landed in front of the three Marine admirals,{{Qref|chap=565|ep=474}} and although he could not harm them due to their Logia abilities, he activated Gear 2 to run past them. Kizaru quickly caught up to him and kicked him back, and Luffy was helpless as the executioners started to execute Ace. However, Crocodile took out the executioners, but Luffy was then attacked by Aokiji, who injured him with an ice spear. [[Marco]] of the Whitebeard Pirates stepped in and attacked Aokiji, allowing Luffy to go on.{{Qref|chap=566|ep=475}}
+
+However, Luffy was overpowered by Vice Admirals [[Momonga]] and [[Dalmatian]] before being shot by Kizaru, who kicked him at light speed again. Luffy was caught by Whitebeard, who threw him to his subordinates for his wounds to be treated. Luffy refused to be sidelined, but soon collapsed from exhaustion.{{Qref|chap=567|ep=476}} Ivankov came up to him, and Luffy requested to be injected with Vigor Hormones again. Ivankov initially refused, but Luffy did not care about the dangerous consequences and so received the injection, giving his body energy it was not equipped to handle.{{Qref|chap=568|ep=477}}
+
+[[File:Luffy Defeats Koby at Marineford.png|thumb|Luffy defeats Koby with Gomu Gomu no Bullet.]]
+
+Luffy raced toward the execution platform again but was immediately confronted by [[Koby]], who was determined to stop him. However, Luffy dealt with Koby's [[Soru]] and defeated him with one punch. Luffy was then confronted by some [[Pacifista]], but he was shielded by Hancock, who the Pacifista were unable to attack. The executioners then attempted to execute Ace again, and Luffy, who was still too far away, yelled at them to stop, unwittingly unleashing a large burst of [[Haoshoku Haki]] that knocked them out.{{Qref|chap=569|ep=478}} More Marines began targeting Luffy, but more of the Whitebeard Pirates backed him up on orders from Whitebeard. Luffy was then attacked by Mihawk again, but Mihawk's strike was intercepted by [[Daz Bonez]] who along with Crocodile confronted him. As Luffy reached the bottom of the wall underneath the execution platform, [[Inazuma]] emerged from Ivankov's hair and created a ramp going up to the platform.{{Qref|name=c570|chap=570|ep=479}}
+
+[[File:Luffy Hits Garp.png|thumb|left|210px|Garp allowing Luffy to strike him in order to rescue Ace.]]
+
+Luffy ran up the ramp, but was confronted by his grandfather [[Monkey D. Garp|Garp]] who could not let him pass.{{Qref|name=c570}} Garp said Luffy would have to beat him to rescue Ace, and Luffy activated Gear 2 and punched his grandfather off the ramp. Garp's arrival caused the ramp to break, but Luffy jumped off the falling pieces and made it to the execution platform. There, he was confronted by Fleet Admiral [[Sengoku]], who turned into a [[Hito Hito no Mi, Model: Daibutsu|giant buddha]], and Kizaru destroyed the key to Ace's handcuffs with a beam. Luffy then saw [[Galdino]] stirring from unconsciousness next to Ace, and he told the former Baroque Works agent to create a wax wall around Ace while Sengoku prepared to punch him. Luffy absorbed Sengoku's punch with '''Gomu Gomu no Gigant Fusen''', and was pressed against the wax wall, causing the entire execution platform to start collapsing. As they were falling, Galdino gave Luffy a wax key to free Ace, and Luffy used it to unlock Ace's handcuffs, allowing Ace to shield them from the Marines' bazooka shots.{{Qref|chap=571|ep=480}}
+
+====Uncontrollable Anguish: Luffy Collapses====
+
+[[File:Ace and Luffy Fighting Against Marine Officers.png|thumb|210px|Luffy and Ace battle against the Marines.]]
+
+Upon reaching the ground, Luffy and Ace worked in tandem to take down the Marines, and Ace protected Luffy from an attack by Aokiji. Luffy and Ace were then shocked as Whitebeard proclaimed that he would die to let everyone else escape.{{Qref|chap=572|ep=481}} Luffy was initially unable to get Ace to escape with him, but after Ace spoke with Whitebeard, the two brothers went on the move again. However, Ace made the mistake of turning around to confront Akainu after the admiral degraded Whitebeard, and as he watched the two fight, Luffy dropped Ace's [[Vivre Card]]. When he went to pick it up, Akainu swooped in to kill him, only for Ace to step in and take the blow.{{Qref|chap=573|ep=482}}
+
+[[File:Ace's Bloody Death in the Manga.png|thumb|left|210px|Luffy's mind collapses from Ace's death.]]
+
+Jinbe stepped in to prevent Akainu from attacking Ace again, and the heavily injured Ace fell into Luffy's arms. As Luffy called out for medical attention, Ace told him to greet [[Curly Dadan|Dadan]] for him and apologized that he would not see Luffy's dream come to fruition. He then thanked Luffy and the Whitebeard Pirates for loving him before passing away, and as he kneeled over Ace's dead body, Luffy suffered a complete mental breakdown.{{Qref|chap=574|ep=483}}
+
+Jinbe took the incapacitated Luffy away to protect him from Akainu,{{Qref|chap=575|ep=484}} but they were confronted by the admiral again as they neared the bay.{{Qref|chap=577|ep=486}} Akainu managed to punch through Jinbe's body with a [[Magu Magu no Mi|magma fist]] and hit Luffy, severely injuring his chest. Crocodile then stepped in and sent Luffy and Jinbe up in the air with a sand cyclone, where they were unwittingly caught by Buggy.{{Qref|chap=578|ep=487}} Buggy took them to [[Trafalgar D. Water Law|Trafalgar Law]] and the [[Heart Pirates]], who had just arrived on their submarine the [[Polar Tang]], and [[Bepo]] took Luffy inside as the crew prepared to submerge. They were able to do so thanks to the intervention of Koby and the [[Red Hair Pirates]],{{Qref|chap=579|ep=488}} and despite last-ditch attacks by Aokiji and Kizaru, the Polar Tang made it out of Marineford as Luffy was laid on a table to receive medical attention.{{Qref|chap=580|ep=489}}
+
+===Post-War Arc===
+Luffy was next seen being treated for his injuries on Law's submarine. As he was being treated on Law's submarine, Law, Ivankov, Boa Hancock, and Jinbe commented on how much damage he had accumulated, and Jinbe worried about his reaction to all that had happened when he awakened. {{Qref|chap=581|page=|ep=490}}
+
+[[File:Luffy Cries Over the Death of Ace.png|thumb|Luffy cries over the death of his brother, Ace.]]
+
+After two weeks of recovering from his injuries, Luffy awakens in [[Amazon Lily]] and goes on a rampage blindly asking where Ace is. After remembering Ace's death little by little, while still destroying the rocks and the trees in the forest, he stops for a moment as Jinbe tries to explain to him that the war is over and Ace is dead. Luffy states he has realized that it wasn't a dream by pinching his cheek very hard and starts to finally cry and mourn over his loss. While weeping, he thinks back to when he first met Ace. After the flashback, he begins to doubt his abilities and starts to think about how he could possibly become the Pirate King if he is too weak.{{Qref|chap=589|page=|ep=504}} After that, Luffy has a little verbal and physical struggle against Jinbe who told him not to regret his brother's death, and that he has not lost everything yet. Luffy then remembers that he still has something priceless: his crew, and then declares that he wants to go to Sabaody Archipelago to meet his crewmates again.{{Qref|chap=590|page=|ep=505}}
+
+Soon after that he meets Silvers Rayleigh and learns about his and Shakky's relationship with Nyon, Boa Hancock, and her sisters. Luffy asks if any of his crew had returned to Sabaody Archipelago, to which Rayleigh replied that they probably had not. After Rayleigh explained how he learned Luffy was on Amazon Lily, Rayleigh explains that if Luffy went back to Sabaody, the same tragic events he suffered would occur again. Luffy then starts to listen to a proposition Rayleigh has for him.{{Qref|chap=591|page=|ep=507}} Although no word left from Luffy and Rayleigh, the word about Luffy being alive is being spread throughout the world. However, there is something lingering within the newspaper regarding actions of Luffy.{{Qref|chap=593|page=|ep=510}}
+
+[[File:Luffy Pays His Respects.png|thumb|left|210px|The article about Luffy's return to [[Marineford]] with a hidden message for his crew: the "<s>3D</s>2Y" tattoo on his right arm with the "3" and "D" crossed out.]]
+
+The article revealed that Luffy actually infiltrated Marineford a second time, accompanied by Jinbe and Rayleigh. After they stole a Marine ship, they circled Marineford once, which according to Lieutenant Commander Brannew is a custom for burials at sea. Luffy then went into the plaza alone and rang the [[Ox Bell]] sixteen times, threw a bouquet of flowers into the rubble, and then bowed his head in silent prayer, leaving promptly after. His goal from this was to send the message: 3D2Y to the other Straw Hats, meaning that they would meet in Sabaody Archipelago not in three days, but in two years.
+
+Luffy is later seen on the Kuja Pirates' ship, resting so he can recover from his injuries. The other Kuja pirates are all at his bedside, watching him under Hancock's orders while playing with his stretchy skin. Luffy then says that he hopes that his message reached his crewmates. Rayleigh then assured him that it would, since it was highly unlike him. Jinbe eventually left the Kuja ship while riding a whale shark after Luffy and Jinbe gave their thanks to each other and Jinbe tells him that he will continue to aid Luffy later on in the future and that he looks forward to meeting Luffy and his crew 2 years from now.
+
+Luffy eventually arrives on [[Rusukaina]], a deserted island northwest of Amazon Lily, with the Kuja and Rayleigh where he will train with Rayleigh alone. Rayleigh explains the three forms of Haki while demonstrating them on a rampaging elephant. The demonstration excites Luffy and makes him eager to learn them. Luffy then puts his hat on a stone, which is the only safe spot on the dangerous island, with the vivre card while saying that he will take a vacation from being a pirate for sometime.
+
+'''''[[Monkey D. Luffy/History/New World|The story continues two years later.]]'''''{{-}}
+
+==References==
+{{References}}
+{{Monkey D. Luffy Tabs Bottom}}
+[[es:Monkey D. Luffy/Historia/Guerra en la Cumbre]]
+[[Category:Character Subpages]]
+{{Monkey D. Luffy Tabs Top}}
+
+==During the Timeskip==
+===Training===
+At some point in the time skip, Luffy developed [[Gomu Gomu no Mi/Gear 4 Techniques|Gear 4]] in order to help him subdue the beasts on [[Rusukaina]].{{Qref|chap=784|page=6-19|ep=726|Luffy fights Doflamingo using Gear 4.}} He later asked [[Silvers Rayleigh|Rayleigh]] how to improve his attack power with it, and Rayleigh warned him about the consequences of using it. However, Luffy later learned how to properly utilize Gear 4.{{Qref|chap=790|page=10|ep=733|Luffy recalls training with Rayleigh to improve his own Haki.}}
+
+[[File:Rayleigh Training Luffy.png|thumb|left|200px|Rayleigh training Luffy to use Haki.]]
+
+While teaching [[Haki/Kenbunshoku Haki|Kenbunshoku Haki]] to Luffy, Rayleigh challenged Luffy to dodge 100 times while blindfolded or he would not be allowed to eat. When Luffy was attacking blindly, he accidentally hit Rayleigh's dinner, causing him to hit Luffy. While lying on the ground hungry, some animals gave him food, but Luffy refused to eat what they offered. During a later conversation, Rayleigh remarked on how Luffy was proficient in sensing the feelings of living things. He also mentioned that there are people who can see a glimpse into the future and asked Luffy what would he do if he met one of these people.{{Qref|chap=894|page=2-5|ep=869}}
+
+After teaching Luffy the basics of [[Haki]], Rayleigh informed him that Haki grows stronger when one faces a stronger opponent.{{Qref|chap=886|page=19|ep=860}}
+
+==Fish-Man Island Saga==
+===Return to Sabaody Arc===
+[[File:Straw Hat Luffy is Back.png|thumb|left|200px|Straw Hat Luffy is back.]]
+
+When the two years of training were up, Luffy was called by the Gorgon Sisters, Nyon, and Marguerite, who had prepared a ship for him to sail to Sabaody. Luffy collected his straw hat and bid farewell to the animals, who were now his friends.{{qref|chap=598|page=1-3|ep=517}}
+
+Upon arriving near Sabaody, Hancock gave Luffy a coat to shroud himself as well as a large backpack with an obscene amount of supplies. Luffy bid farewell to her and the Kuja, promising to see them again as he headed for land on a rowboat.{{qref|name=c599|chap=599|page=2-7|ep=518}} After landing, Luffy accidentally bumped into [[Demaro Black]], who unbeknownst to him was impersonating him.{{qref|chap=598|page=24}} This made Black extremely angry and, not recognizing Luffy, he held the pirate at gunpoint and told him to prostrate himself for forgiveness. Luffy shrugged him off, causing him to pull the trigger, but Luffy dodged the bullet with ease using [[Haki/Kenbunshoku Haki|Kenbunshoku Haki]] before unleashing a blast of [[Haki/Haoshoku Haki|Haoshoku Haki]] that knocked Black, as well as the rest of his [[Fake Straw Hat Crew]], unconscious.{{qref|name=c599}}
+
+Luffy then ran into [[Manjaro]] and [[Drip]], who were impersonating [[Roronoa Zoro|Zoro]] and [[Sanji]] in Black's crew, and mistook them for the real item. Recognizing him as the one who attacked Black, the duo took Luffy to Grove 46 where their captain was gathering new recruits.{{qref|chap=600|page=5, 11|ep=519|ep2=520}} Luffy was brought onstage to be made an example of, but the event was suddenly disrupted by the arrival of the [[Marines]] and [[Pacifista]] led by [[Sentomaru]]. Luffy discovered that Black had been impersonating him, and the Pacifista PX-5 began targeting him after Black's defeat, revealing the real Luffy to the crowd. However, Luffy dodged PX-5's laser blast before hitting its face into the ground, causing it to explode. The real Zoro and Sanji then arrived and defeated another Pacifista, and Luffy greeted them before seeing Rayleigh off in the distance; Rayleigh told him to get to his crew, and Luffy proclaimed to the Dark King that he would become the Pirate King.{{qref|chap=601|page=3-19|ep=521}}
+
+[[File:Straw Hats Reunion.png|thumb|left|Luffy, Zoro, and Sanji reunite with the rest of the crew.]]
+
+Aided by [[Perona]] and a [[Animal Species/Summit War Saga#Masukeredomo Goayu Birds|Masukeredomo Goayu Bird]] from the [[Torino Kingdom]], Luffy, Zoro, and Sanji reached the [[Thousand Sunny]] and Luffy reunited with the rest of his crew. They quickly found themselves under attack by a Marine battleship, but the Kuja arrived to intercept it. As the [[coating]] began to take effect for the Sunny to submerge, Luffy thanked his crew for going with his request to train for two years and shouted to set sail as their voyage to [[Fish-Man Island]] was now beginning.{{qref|chap=602|ep=522}}
+
+===Fish-Man Island Arc===
+====The Undersea Voyage====
+The Straw Hats admired the wonders under the sea and learned how the coating bubble worked. [[Franky]] told the others that [[Hatchan]] had been wounded and would be waiting for them on Fish-Man Island; he then revealed that [[Bartholomew Kuma]] had taken over protecting the Sunny during their training for reasons that were mostly unknown, but may have involved his ties to the [[Revolutionary Army]].{{qref|chap=603|page=7-17|ep=523}} The Straw Hats were then attacked by the [[Caribou Pirates]], whose [[Numabou|ship]] was being pulled by [[Momoo]]. However, when Momoo saw Luffy and Sanji he became fearful and fled, allowing only Caribou to board the Sunny. The Straw Hats promptly tied him up and began preparing to ride the [[Sea Currents|currents]] down into the deep sea. As they started plummeting down, they encountered a giant kraken, and Luffy got the idea to tame it and have it pull their ship.{{qref|chap=604|ep=524}}
+
+[[File:Gomu Gomu no Elephant Gun.png|thumb|left|210px|Luffy uses Gomu Gomu no Elephant Gun to defeat the kraken.]]
+
+To keep the kraken at bay without threatening the Sunny's coating, Caribou had Luffy, Zoro, and Sanji wear smaller bubbles around them that would allow them to move and breathe away from the ship. The trio headed out, and after Zoro and Sanji attacked the kraken's tentacles, Luffy unleashed a Gear 3 punch hardened with [[Haki/Busoshoku Haki|Busoshoku Haki]] called ''Gomu Gomu no Elephant Gun'' which knocked the kraken unconscious with a single blow. However, the trio were then pulled down by the current into the [[Underworld of the Sea]] before they could return to the Sunny.{{qref|chap=605|ep=525}} Luffy and Sanji's bubbles popped, but they managed to get into Zoro's bubble and narrowly evade death. Luffy successfully tamed the kraken and gave it the name [[Surume]], and had it attack the giant fish-man [[Wadatsumi]] after finding him threatening the rest of the crew. Luffy, Zoro, and Sanji returned to the Sunny and had Surume carry it to Fish-Man Island.{{qref|chap=606|page=14-15|ep=526}}
+
+Their voyage was soon threatened again by the eruption of an undersea volcano, causing a landslide as Surume took the Sunny down the final trench. [[Usopp]] managed to hold back most of the avalanche with his special [[Pop Green]] ammunition, but a rock hit Surume on the head and knocked him out, causing the Sunny to sink down to the ocean floor.{{qref|chap=607|ep=526}}
+
+====Trouble in the Underwater Paradise====
+The Straw Hats were unharmed following this and celebrated upon seeing Fish-Man Island a short distance away. However, they were then confronted by [[Hammond]], who told the Straw Hats to submit to his crew the [[New Fish-Man Pirates]] or be attacked. The Straw Hats quickly planned to blast into Fish-Man Island with Coup de Burst, and Luffy bluntly rejected Hammond's demand.{{qref|chap=607|ep=527}} Hammond had his [[Sea Beast]] army attack in response, but the Straw Hats were able to blast away just in time. They went through a barrier that stripped the remaining coating off the Sunny before entering another layer of seawater, which swept the whole crew off the ship in different directions and left the Devil Fruit users powerless.{{qref|name=c608|chap=608|ep=527}}
+
+Luffy, Usopp, Sanji, and Chopper were rescued by [[Camie]] and the [[Medaka Mermaid Quintuplets]] and taken to the former's apartment where they eventually regained consciousness. Camie took them up to show them around Fish-Man Island and meet [[Pappag]] at his mansion in [[Gyoverly Hills]], and they first stopped at [[Mermaid Cove]].{{qref|name=c608}} While there, Luffy told Camie that he wanted to see [[Jinbe]] on the island, but she revealed that he had left. The three princes of the [[Ryugu Kingdom]], the Neptune Brothers, then suddenly came to the cove to search for the Straw Hats. Camie and the mermaids attempted to hide them, but Sanji had a massive nosebleed which exposed the pirates and left him critically short of blood. Hammond and his crewmates [[Hyouzou]] and [[Kasagoba]] then arrived as Luffy asked for someone to donate blood, and Hammond told him that even though humans and fish-men had the same blood, it was illegal for the races to give each other transfusions. He then fired a net at Luffy, but Luffy easily dodged it with Gear 2 before knocking out the three pirates with a single strike. Hammond's Sea Squirrel then charged at Luffy, but he stopped it with just a look. Camie told the Straw Hats to join her onboard the Neptune Brothers' ship [[Ryugu]], and they got on and headed for town.{{qref|chap=609|ep=528}}
+
+The group arrived at the port town [[Coral Hill]] and desperately looked for any humans with Sanji's rare blood type. They finally found [[Splash and Splatter|two okama]] who agreed, and Sanji recovered in Madame [[Shyarly]]'s room. Luffy noticed a nick on his arm and realized he had been poisoned by Hyouzou; however, he was unaffected due to immunity built up after his fight with [[Magellan]]. Luffy, Usopp, and Camie headed to the Mermaid Cafe, where they ran into Brook and Pappag. Pappag then took them to his home via Fish Taxi, and they passed by a candy factory with the [[Big Mom Pirates]]' [[Jolly Roger|jolly roger]] on it; Pappag explained that the [[Four Emperors|Emperor]] [[Charlotte Linlin|Big Mom]] now protected the island following [[Edward Newgate|Whitebeard]]'s death, but demanded large amounts of candy in return.{{qref|chap=610|ep=529}} The group arrived at Pappag's mansion and reunited with Nami at a [[Criminal]] store; Pappag allowed them to take whatever they wanted from it. King [[Neptune]] then arrived unexpectedly and invited the Straw Hats to his palace.{{qref|chap=611|ep=530}}
+
+[[File:Luffy Encounters Shirahoshi.png|thumb|210px|Luffy meets the Mermaid Princess.]]
+
+The Straw Hats rode aboard [[Megalo]], a shark belonging to Neptune's daughter whom they had unwittingly saved from Surume, and Neptune and his sons had intended to come to thank the Straw Hats for this. Neptune revealed that Zoro was already at the palace, and Nami told the others that Franky had gone to look for a relative of [[Tom]] while Robin went to look for a historical item. Upon arriving at [[Ryugu Palace]], Luffy smelled food and wandered away from the others. His scent led him to a tower room with large metal doors; he opened the doors and spotted the food, but ended up stepping on something soft. The lights then turned on as Luffy found himself facing the Mermaid Princess [[Shirahoshi]], who cried out for her father and brothers.{{qref|chap=612|ep=531}} While trying to calm her down, Luffy noticed an axe flying through the door at Shirahoshi and jumped up to intercept it, managing to redirect it into the floor. The [[Minister of the Right]] then led a group into the room to check on Shirahoshi, and she hid Luffy behind her as she lied that she only had a bad dream. The Minister of the Right then revealed that they had canceled the banquet thanking the Straw Hats and would be arresting them instead, as they were suspected of kidnapping mermaids and it was prophesied that they would destroy Fish-Man Island. Once they left, Luffy was unfazed as he believed his crewmates would easily handle the palace guards. Shirahoshi told Luffy that the one responsible for throwing the axe was [[Vander Decken IX]], who wanted to kill her for not marrying him. He possessed [[Mato Mato no Mi|an ability]] allowing anything he threw to reach his target, which was why she had been locked up inside this tower for the last ten years.{{qref|name=c613|chap=613|ep=532}}
+
+[[File:Gomu Gomu no Jet Hammer.png|thumb|left|210px|Luffy pummels Decken into the ground.]]
+
+As Shirahoshi inquired about Luffy's adventures as a pirate, Luffy noted that she was a weak crybaby, which upset her. However, Luffy then offered to take her on a walk outside the palace, saying he would protect her from Decken.{{qref|name=c613}} Shirahoshi was conflicted, but ultimately asked Luffy to take her to the [[Sea Forest]]. Luffy got the idea to sneak her out by stuffing her in Megalo's mouth, and the trio headed out of the tower.{{qref|chap=614|page=11-12, 15-17|ep=533}} As they traveled to the Sea Forest, Shirahoshi told Luffy that she wanted to go to a grave there.{{qref|chap=615|page=16|ep=534}} When they passed over Coral Hill, Luffy saw Sanji and Chopper with an injured Hatchan laying on the ground, and hopped off to check on Hatchan. However, Megalo could not hold Shirahoshi in his mouth any longer and threw her up, leaving the populace in shock.{{qref|chap=617|ep=536}} The citizens tied up Luffy, Sanji, and Chopper while they were distracted, but Vander Decken then came flying toward Shirahoshi. Luffy used Haoshoku Haki to get the citizens out of the way and though tied up, he was able to get to his feet and leap into the air, breaking the coral Decken was riding on with a kick before unleashing a Gear 2 kick called ''Gomu Gomu no Jet Hammer'' that struck Decken and sent him crashing to the ground, defeating him. Shirahoshi untied the Straw Hats before they and Hatchan escaped on Megalo, and Decken summoned Wadatsumi to attack the group. However, Luffy hit Wadatsumi in the tooth with a Gear 2 punch, sending him recoiling in pain and allowing the group to escape.{{qref|chap=618|ep=537}}
+
+The group arrived at the Sea Forest, reuniting with Franky before encountering Jinbe. Shirahoshi went to the grave she wanted to see, which was for her deceased mother [[Otohime]]. Nami and Camie then arrived, revealing that the New Fish-Man Pirates led by [[Hody Jones]] had invaded Ryugu Palace. Jinbe then confessed to the Straw Hats that it was he who had released [[Arlong]] into the [[East Blue]].{{qref|chap=619|ep=538}} He proceeded to explain to them how there were two leaders that recently tried to change the course of a long history of racism and violence between humans and fish-men: Queen Otohime, and the pirate [[Fisher Tiger]], whose crew he and Arlong were a part of.{{qref|chap=620|ep=539}} Tiger had died after being led into a Marine ambush and refusing a blood transfusion from a human. Following this, Jinbe joined the [[Seven Warlords of the Sea]] and arranged for Arlong to be freed from [[Impel Down]], allowing him to break off from the crew and go to the East Blue.{{qref|chap=623|chap2=624|ep=543|ep2=544}} However, Luffy fell asleep and barely heard any of this.{{qref|chap=627|ep=547}}
+
+====Battle for Fish-Man Island====
+Hody then broadcast himself all over Fish-Man Island, showing Neptune in chains and saying he would execute the king in three hours at [[Gyoncorde Plaza]]. He then addressed the Straw Hats, showing Zoro, Usopp, and Brook in a cage and saying that they would soon be submerged in water. Following this, Luffy began heading to Ryugu Palace, but Jinbe told him to wait. Jinbe wanted to deal with Hody himself to avoid exacerbating tensions between humans and fish-men, but Luffy did not want to stand by while his crewmates were in danger.{{qref|chap=628|ep=548}} Jinbe began attacking to keep Luffy put, hitting him with a [[Fish-Man Karate]] attack that hurt him despite his rubbery body. Luffy retaliated with a Gear 2 punch, but could only knock Jinbe back a little. Robin then summoned a [[Hana Hana no Mi|clone]] to appear and try to break them up, but Sanji tried to save her and Luffy and Jinbe punched each other as well as him. As they all recovered, the real Robin arrived to calm things down, and Jinbe tried getting Luffy to hear him out but Luffy still remained unconvinced.{{qref|chap=629|ep=549}}
+
+[[File:Straw Hats and Allies Confront the New Fish-Man Pirates.png|thumb|210px|Jinbe and the Straw Hat Pirates face off against the New Fish-Man Pirates at Gyoncorde Plaza.]]
+
+Jinbe said that Luffy could still fight Hody, but needed to to do as a hero rather than an angry human. Luffy had no desire to be a hero, so Jinbe offered him meat instead. Jinbe devised a plan for Luffy to stow away inside Megalo's mouth and have himself and Megalo captured intentionally; he would then call out for Luffy's help after rescuing Neptune, believing that his status among the populace would cause them to support Luffy.{{qref|name=c634|chap=634|ep=554}} Luffy then rode inside Megalo alongside Jinbe and Shirahoshi, but a wrinkle in their plan occurred when Shirahoshi went to a trap that resulted in her being captured along with them. They were brought before Hody to Gyoncorde Plaza, and as Hody announced his plot to execute the Neptune Family, the populace began to grow desperate and plead for Luffy to arrive, even if the pirate would indeed destroy Fish-Man Island. When Hody moved to kill Neptune, Luffy emerged from Megalo's mouth ahead of schedule and kicked Hody with Gear 2, sending him flying back. The rest of the Straw Hats, including Zoro's group, then revealed themselves and prepared to do battle against Hody's crew; an onlooker then asked Luffy if he was a friend or foe of Fish-Man Island, and Luffy said that they should decide that for themselves.{{qref|chap=633|ep=553}}
+
+[[File:Luffy Kicking Hody.png|thumb|left|Luffy strikes Hody.]]
+
+After recovering, Hody boasted against the Straw Hats, saying he would take over the surface world and become Pirate King with his army of 100,000 behind him. He then unleashed this army against the Straw Hats, but Luffy immediately took down 50,000 of them with his Haoshoku Haki. He then told Hody that he would be the Pirate King as he activated Gear 3 and took out even more of the fish-man's forces with a single punch.{{qref|name=c634}} The Straw Hats proceeded to overwhelm Hody's hordes with their new abilities, and Hody ordered Surume, whom he had brought to the region as a slave, to attack. However, Luffy then called out to Surume, instantly causing the kraken to turn against Hody's crew.{{qref|chap=635|ep=556}} Luffy told Surume to protect Shirahoshi, but Hody then threatened the kraken, saying he would kill his brother in the [[North Pole]] if Surume did not obey him. A distressed Surume started crushing Shirahoshi, but Luffy quickly stopped this, saying he would protect Surume's brother. Luffy then walked straight toward Hody, with Zoro attacking anyone who tried to stop him, and kicked the fish-man in the face in a rage.{{qref|chap=636|ep=557}}
+
+Hody quickly recovered from this and tried blowing Luffy's head off with Fish-Man Karate, but Luffy's neck merely stretched back. Luffy then coated his forehead in Busoshoku Haki and broke through iron shields set up to protect Hody, then proceeded to use his Haki to counter Hody's attacks and hit the fish-man with powerful blows. However, the giant ship [[Noah]] then arrived outside Fish-Man Island, and it was discovered that Decken had sent it after Shirahoshi. Shirahoshi proceeded to exit the island's protective bubble and put herself in harm's way to protect everyone, and Luffy told his crew to let him handle this. Jinbe gave him a piece of coral to produce bubbles, and Luffy had Sanji launch him toward Noah.{{qref|chap=637|ep=558}} Luffy grabbed onto one of Noah's chains, and when it exited the barrier and into the ocean, he got in a bubble. Hody swam up to him to capitalize on this advantage, but [[Fukaboshi]] then arrived to carry Luffy to safety. Hody resumed heading toward Noah, where he stabbed Decken to send the ship sinking straight down onto Fish-Man Island.{{qref|chap=638|ep=559}}
+
+Hody then moved to attack Shirahoshi, but Luffy was able to punch him away even with the seawater weakening his outstretched arm. Hody said that Luffy could not protect anyone underwater, but Luffy proclaimed that he had trained for two years to protect everything.{{qref|chap=639|ep=560}} Shirahoshi attempted to redirect Noah's course, but Decken passed out before she could do so, causing Noah to begin its descent.{{qref|chap=640|ep=561}} Luffy decided he would destroy Noah to save Fish-Man Island, but Fukaboshi argued against this as Noah possessed extreme historical importance to his people. Luffy then moved to attack Hody and hit him toward Noah, but suffered a bite wound to the shoulder in the process. Hody deduced that Luffy was heading toward Noah to fight inside its bubble and so used his sword [[Kirisame]] to inflict a large slash that broke the bubble. Fukaboshi then took on Hody, but was defeated.
+
+[[File:Gomu Gomu no Red Hawk.png|thumb|210px|Luffy striking Hody with Gomu Gomu no Red Hawk.]]
+
+In the meantime, however, a group of Ryugu Palace workers were able to extract a large bubble from their air tank and fired it at Noah to let Luffy access it again. Hody then charged at Luffy and Shirahoshi again, but Luffy was able to break Kirisame off his back.{{qref|chap=641|ep=562}} Fukaboshi then made a call to Luffy and the rest of the island via [[Den Den Mushi]], revealing he now knew Hody's true nature. Hody never faced any discrimination or suffering at the hands of humans, but had grown up learning only the hate of those who had. Fukaboshi lamented that his mother's efforts to foster peace had neglected to quell the hatred festering in the populace, and said that the way to move forward was to reduce Fish-Man Island to nothing. However, Luffy reaffirmed his promise to not let anyone on the island be hurt, and prepared a Gear 2 Busoshoku punch which caught fire. Calling it ''Gomu Gomu no Red Hawk'', Luffy struck Hody in the midsection with an explosive punch.{{qref|chap=644|ep=564}}
+
+Luffy had Shirahoshi take him to Noah as Hody got up once again and attempted a last-ditch [[Fish-Man Jujutsu]] attacked, but Luffy dodged the assault and activated Gear 3, hitting Hody with ''Gomu Gomu no Elephant Gun'' and finally defeating the fish-man. Luffy then continued pummeling Noah with Gear 3, intending to destroy the ship.{{qref|chap=645|ep=566}} However, in the midst of his barrage, he heard a mysterious [[Voice of All Things|voice]] telling him to stop. Shirahoshi then intervened and told Luffy to stop, revealing that [[Sea King]]s had arrived and were now holding Noah in place. Luffy relaxed, knowing that everything was now all right, before losing consciousness due to blood loss.{{qref|chap=647|ep=567}}
+
+====The After Battle Party, Huge News, and Departure====
+[[File:Jinbe Donates Blood to Luffy.png|thumb|left|210px|Jinbe saves Luffy's life by donating blood.]]
+
+Shirahoshi took Luffy down to Gyoncorde Plaza, begging for help with his bleeding. Chopper said that Luffy would need a transfusion to survive, but the fish-men backed off due to the law. However, Jinbe revealed he had the same blood type and offered to give his blood in spite of the law. The transfusion was successful, and Luffy soon woke up. Once he did, he told Jinbe that the fish-man should join his crew.{{qref|chap=648|ep=568}} The Straw Hats promptly departed on the Sunny, and Jinbe said that he could not join at the moment, but agreed to do so once he had resolved certain outstanding responsibilities of his current position. They then received a call from Neptune inviting them to a proper feast, and headed to Ryugu Palace after picking up Camie and Hatchan, where they ate and danced to their heart's content.{{qref|chap=649|ep=569}}
+
+Jinbe told Luffy about some developments in the world over the past two years, namely that [[Kuzan|Aokiji]] and [[Sakazuki|Akainu]] had battled to become Fleet Admiral, with Akainu emerging victorious and Aokiji leaving the Marines. Despite this loss, the Marines had since grown in strength, along with the [[Blackbeard Pirates]] whose captain [[Marshall D. Teach|Teach]] had taken Whitebeard's spot among the [[Four Emperors]]; the crew was now hunting powerful Devil Fruit users. However, Luffy did not pay attention to all of this. The Straw Hats then heard Shirahoshi crying out, and Luffy arrived at Shell Tower to find Caribou trying to kidnap her. Luffy promptly hit Caribou out of the palace toward the mainland, and the Minister of the Right revealed that Caribou had also stolen the palace's treasure. Wanting the treasure for their crew, Nami sent Luffy, Zoro, and Sanji down to the mainland to get Caribou.{{qref|chap=650|ep=570}}
+
+The trio found Caribou passed out on the ground with heaps of treasure all around him, having been ejected from [[Numa Numa no Mi|his body]]. They collected the treasure and were heading back to the palace when they passed by the Candy Factory, where Luffy proclaimed that he had just eaten a lot of sweets at the palace party. This piqued the interest of [[Pekoms]] and [[Tamago|Baron Tamago]], who had come on behalf of the Big Mom Pirates to collect Fish-Man Island's monthly candy tribute. With the island missing its tribute, Tamago explained that Big Mom's forces would come and destroy it. Big Mom then called Pekoms and Tamago via Den Den Mushi, and while they argued over who should answer, Luffy picked up the call. He introduced himself to Big Mom and claimed to have eaten all the candy tribute; he offered to give her the treasure instead. Big Mom did not believe his claim and did not want the treasure, but was intrigued by Luffy's character and so agreed to place her target on him instead of Fish-Man Island. However, Luffy was just as aggressive, proclaiming that he would defeat Big Mom and make Fish-Man Island his territory. {{qref|chap=651|ep=571}} Following this, he did give the treasure to Pekoms and Tamago.
+
+[[File:Straw Hat Crew Pinky Swears with Shirahoshi.png|thumb|left|210px|Luffy and his crew make a promise with Shirahoshi that they'll return and visit her again.]]
+
+Upon returning to the palace, Luffy told the others what he had done; they were not very pleased, especially Nami due to losing the treasure.{{qref|chap=652|ep=572}} Later, the Straw Hats prepared to depart Fish-Man Island, and Shirahoshi tearfully pleaded for Luffy to stay longer. Nami was given a new Log Pose by the [[Minister of the Left]] which pointed to three islands; upon seeing it, Luffy wanted to go to the island that the shakiest needle was pointing to even though this signified the most dangerous one, causing an argument between him and Nami. Luffy bid farewell to everyone as the Sunny set sail, and Shirahoshi went up to the ship again. She promised that the next time Luffy saw her, she would no longer be a crybaby and they could take a walk up on the surface world. Luffy wrapped his pinky around hers to signify their promise, which the other Straw Hats joined in as well. When the Sunny entered the depths, Luffy stared up, remembering everything he had been told about the New World and how he would meet [[Shanks]] in this sea; he proclaimed his eagerness to get there.{{qref|chap=653|ep=573}}
+
+==Dressrosa Saga==
+===Punk Hazard Arc===
+====Arriving at Punk Hazard and Forming an Alliance====
+As the Sunny made its ascent, Luffy, Zoro, Usopp, and Franky made a fishing line to catch a large deep sea fish to eat. The fish they caught was then eaten by two successive bigger fish, causing the ship to be weighed down and dragged toward a [[Sea Currents#White Strom|White Strom]] current that blasted them away at a dangerous speed. However, the current was broken up by a large pod of [[Animal Species#Island Whale|Island Whales]], and one of them let the Sunny ride on it after hearing Brook play [[Binks' Sake]]. The whales took the Straw Hats to the surface of the New World, leaving them in tumultuous waters.{{qref|chap=654|ep=574}}
+
+The crew soon came across an island with a volcano that was so ablaze even the nearby ocean was on fire. Luffy wanted to disembark there, even though none of the Log Pose's needles were pointing to it. Suddenly, the crew received an emergency call on their [[Den Den Mushi]], and Luffy answered it despite warnings that it was likely a Marine trap. The person on the other end of the line pleaded for help, saying he and his comrades were being attacked by a [[samurai]] on the island, which he called [[Punk Hazard]]. Luffy decided to go and look for the man in distress, and Zoro, Usopp, and Robin were assigned by a draw to accompany him. They rode the [[Mini Merry II]] on a [[Milky Road]] created by Nami's new [[Art of Weather/Sorcery Clima-Tact/Grow Up|Clima-Tact]], and upon landing on the island they found it was sealed off by a fence established by the Marines and World Government, though Zoro cut through it without a second thought.{{qref|name=c655|chap=655|ep=579}}
+
+[[File:Dragon Number Thirteen Anime Infobox.png|thumb|210px|Luffy, Zoro, Usopp, and Robin encounter a dragon.]]
+
+As the group struggled to cope with the intense heat, they noted that the caller mentioned it being cold. They then encountered a [[Dragon Number Thirteen|dragon]] which appeared to be able to talk.{{qref|name=c655}} The dragon started attacking them by breathing fire, and Luffy tried punching it, but did not do much damage against its hard scales. Luffy was able to hurt it by hitting its soft underbelly, but the dragon then began flying. The voice appeared again asking if the Straw Hats were with the [[Seven Warlords of the Sea|Warlord of the Sea]], and Luffy pulled himself onto the dragon's body to knock it out of the sky. While on the dragon's back, he spotted what appeared to be a man stuck inside the top of the dragon's head with his legs sticking out, which was the source of the voice. The dragon moved to attack Luffy with a bite, but Luffy lured it to bite its own wing instead, sending it falling to the ground. Zoro then decapitated the dragon, killing it.{{qref|chap=656|ep=580}}
+
+Luffy then tried to pull the man out of the dragon, but when he did so there was nothing above his waist, causing Luffy to think he killed him. However, the pair of legs then got up and started talking, throwing a kick at Luffy before running off to attack the Warlord in the area.{{qref|chap=656|ep=581}} Luffy apprehended the legs and attached them to his own body, pretending to be a [[Centaurs|centaur]] as his group cooked and ate the dragon's corpse. Zoro then discovered that the other side of the island was covered in ice, meaning the samurai and his victims were likely there.{{qref|chap=657|page=2-5|ep=581}} Despite Robin claiming that centaurs were not real, Luffy then encountered one, who possessed the lower half of a leopard. The centaur became hostile, causing Luffy to defeat him; Robin then defeated his companion, a giraffe centaur. While Luffy was occupied, the group had received a call from Brook revealing that intruders had invaded the Sunny, captured the others, and taken them to the Ice Lands.{{qref|chap=658|page=14-19|ep=582}}
+
+[[File:Boaty Banana.png|thumb|left|210px|Usopp creating a boat using his Pop Greens.]]
+
+The group headed for the Ice Lands and came to a lake at the center of the island. Usopp brought out his [[Pop Green]] ammunition which he used to create a boat out of plant material. As the group rowed across the lake, they were confronted by the leopard centaur, who called out to his boss [[Chadros Higelyges|Brownbeard]] and [[Centaur Patrol Unit|centaur patrol]] that stood on the opposite shore.{{qref|chap=659|page=5-9|ep=583}} Luffy's group recognized Brownbeard as affiliated with the person they were trying to rescue and thought he would be a friend, but Brownbeard had his men fire bazookas at them, capsizing the boat and sending them into the water. Usopp was forced to hold Luffy and Robin above water while Zoro got sidetracked by sharks, leaving them defenseless. However, Brook then arrived to hold off the centaurs, allowing the group to make it across, and they eyed the centaurs' warm coats for themselves.{{qref|chap=661|page=2-11|ep=586}}
+
+After wiping out the centaur patrol, Luffy's group forced Brownbeard to take them through the Ice Lands, and as they rode Luffy heard a crashing sound from far away. They came to the source of the noise near a lab, where they found [[Trafalgar D. Water Law|Trafalgar Law]] who was now a Warlord.{{qref|chap=662|page=10, 19|ep=587}} Luffy was happy to see Law as he was grateful to the Warlord for saving his life in Marineford, but Law brushed it off, saying he acted on a whim and that being pirates meant they may become enemies later. A horde of Marines from [[G-5]] then entered the scene to see to their commanders, Smoker and Tashigi, who had just been defeated by Law. The Straw Hats quickly departed, and Law told Luffy he would find what he was seeking at the back of the lab.{{qref|name=c663|chap=663|ep=588}}
+
+Upon reaching it, the Straw Hats reunited with Nami, Sanji, Chopper, and Franky, though their souls were in the wrong bodies due to [[Ope Ope no Mi|Law's powers]]. The four were accompanied by a group of large children and the head of a samurai, which belonged to the pair of legs. Hiding out inside ruins, the crew went over what they had figured out. The distress call had been sent by one of Brownbeard's centaur subordinates who was being attacked by the samurai, [[Kin'emon]], who was doing so to find his missing son [[Kouzuki Momonosuke|Momonosuke]]. However, Kin'emon was then cut into three pieces by Law's powers.{{qref|name=c663}} The captive Brownbeard then decided to tell the Straw Hats about Punk Hazard, revealing that his master was a man named [[Caesar Clown]] who helped him and people who were formerly test subjects here to walk again after a chemical weapon explosion under the supervision of Dr. [[Vegapunk]]; Law had joined forces with Caesar a few months ago and made them centaurs to fully restore their ability to walk. Brownbeard boasted that the Straw Hats would never escape the island and would become test subjects for his master.{{qref|chap=664|ep=589}} Kin'emon went off to find his torso, and Zoro, Brook, and Sanji (in Nami's body) went out to retrieve him. The giant children then began to shake and ask for candy, but Chopper soon discovered that the candy contained an addictive [[NHC10|substance]] and that Caesar Clown appeared to have been drugging them to make them grow unnaturally large. Upon learning this Luffy refused to get the candy, causing one of the children, [[Sind]], to get violent and hit him with incredible force. Usopp was able to neutralize the children afterwards with a special sleep-inducing shot, and Luffy decided to go and confront Caesar over what he had done to the children.{{qref|chap=665|ep=591}}
+
+Luffy departed with Usopp, Robin, and Franky (in Chopper's body), but they quickly turned around after seeing an explosion back where they had come from. Upon returning to the ruins, they encountered the massive [[Yeti Cool Brothers]] Rock and Scotch, who fired at Luffy with their bazookas. Luffy managed to avoid the blasts, but the brothers suddenly vanished before he could attack them. Chopper (in Sanji's body) then told Luffy's group that the duo had captured Nami (in Franky's body).{{qref|chap=666|ep=592}} Luffy went to go save her, and Franky decided to accompany him, but immediately ate the [[Rumble Ball]]s Chopper had given him causing him to enter Monster Point, resulting in him losing his mind and attacking Luffy. Luffy ran toward Nami with Franky in pursuit until the duo fell into a gorge the brothers set as a trap, where they careened toward a sheet of ice spikes. However, Luffy was able to use Busoshoku Haki to punch through the spikes. Rock then fired bazooka shots at him, but Luffy was able to counter them with ''Gomu Gomu no Fusen'' and use his training to redirect them straight at Rock. Franky continued to go after Luffy as Scotch sent a large mountain peak falling down toward them, but was able to regain his mind just in time to catch the peak and throw it at Rock, defeating him. Luffy then knocked out Franky with ''Gomu Gomu no Elephant Gun'' to neutralize him, but Scotch then took Nami and climbed up the gorge to escape. However, Law then appeared and defeated Scotch, allowing Luffy to break Nami out of her chains.{{qref|name=c667|chap=667|ep=593}}
+
+Law told Luffy he had come to talk with him, saying that this island harbored a key powerful enough to throw the New World into disarray and give one the chance to take power. He offered to form an alliance with Luffy to take down one of the [[Four Emperors]],{{qref|name=c667}} [[Kaidou]]. Luffy agreed, as he aimed to take down all four of the Emperors, even though Law said this plan would have low odds of succeeding.{{qref|name=c697|chap=697|ep=623}} Luffy, Law, Nami, and Franky returned to the hideout in the lab ruins and Law returned Chopper and Franky to their original bodies, placing Nami in Sanji's for the time being. Luffy explained to Law that he and his crew wished to save the children from Caesar's drugging, which Law reluctantly agreed to help with. Law told the Straw Hats that their main objective here was to capture Caesar, and warned them that he was a powerful criminal who had the [[Logia]]-type [[Gasu Gasu no Mi]].{{qref|chap=668|ep=594}}
+
+====Invading Caesar Clown's Laboratory====
+[[File:Luffy Grabs Caesar Clown.png|thumb|210px|Luffy grabs Caesar.]]
+
+Luffy launched himself, Franky, and Robin into a Marine battleship at the rear entrance of Caesar's laboratory and loudly proclaimed that he had come to beat and kidnap Caesar.{{qref|chap=669|page=16-17|ep=595}} Luffy was then attacked by Smoker and Tashigi; to his confusion the former was quite weak while the latter was much stronger, but Robin deduced that Law must have switched their bodies as well. Despite Smoker's attempts to fight, Luffy told him they should hold off on it until the vice admiral regained his body. They were then interrupted by large globs of slime falling from the sky; this slime appeared to be alive and moved to combine into a larger mass, and caused a large explosion on another G-5 ship when set alight. Caesar then arrived and started to explain what the slime was, but Luffy immediately moved to grab him.{{qref|chap=670|ep=596}} Though apprehended with Luffy's Haki, Caesar could still use his powers and so forced Luffy to breathe in poison gas; however, it had no effect on the pirate due to the immunity he gained from fighting [[Magellan]]. Luffy then struck Caesar with a kick, but Caesar retaliated by creating an explosion. Caesar then combined his gas with the slime globs to create a much larger explosion, but Luffy was able to dodge this one and kick Caesar in the midsection. However, as he moved to grab Caesar again, the scientist gained the upper hand by removing the oxygen around Luffy, causing him to lose consciousness.{{qref|chap=671|ep=597}}
+
+Caesar quickly defeated Robin, Franky, Smoker, and Tashigi following this and had them and Luffy taken to a cage inside the lab alongside Law, with all Devil Fruit users bound in [[Seastone]]. When everyone regained consciousness, they found themselves with Caesar's comrades [[Vergo]] and [[Monet]]. Law explained that Vergo was a Marine Vice Admiral who was actually undercover in service of "Joker", the codename of the Warlord [[Donquixote Doflamingo]].{{qref|chap=673|ep=599}} Caesar then arrived, revealing he had long known about Law's treachery and using the Warlord's disembodied heart to attack him. He then began a broadcast to the [[Underworld]], announcing that his living slime, [[Smiley]], was made from the chemical weapon that exploded four years ago; he was now about to transform it into an even more powerful weapon known as [[Shinokuni]].{{qref|chap=675|ep=601}} Luffy and the other captives watched as Smiley ate a special candy that transformed it into a gas which petrified in ash anyone it touched. Caesar told his captives that all of their groups would be killed by this gas, including them; he then activated machinery to move their cage outside the lab. However, Law was not worried and told Luffy to stick to his counterattack plan.{{qref|chap=676|ep=602}}
+
+[[File:Punk Hazard Counter Attack Begins.png|thumb|left|210px|The counter attack begins.]]
+
+Law had Franky set a ship below them on fire to shroud the cage in smoke, allowing him to get him and the pirates out of their chains as he revealed he had switched out his Seastone chains with regular ones. Luffy immediately broke out of the cage without bothering to wait for Law, and looked for a way to get into the lab. Law teleported the group inside, and they opened the shutters to allow the G-5 Marines to get in, and they were followed by the rest of the Straw Hats (except Chopper) alongside a fully intact Kin'emon and Brownbeard.{{qref|chap=677|ep=603}} Law told everyone that they had two hours to make it to Section R-66, the only place where it was possible to escape from Shinokuni. Luffy then started racing toward Caesar to resume their battle, and easily beat his henchmen aside with a new attack called ''Gomu Gomu no UFO''.{{qref|chap=678|ep=604}} Luffy continued fighting through Caesar's henchmen as he and Smoker raced into the corridor leading to Section B of the lab.{{qref|chap=679|ep=605}} The duo quickly reached the entrance to Section C where Caesar was, and Luffy immediately punched the scientist upon getting inside.{{qref|chap=680|ep=606}}
+
+[[File:Monet Hugs Luffy.png|thumb|230px|Monet hugging Luffy.]]
+
+Luffy and Caesar resumed fighting, and Luffy was able to avoid the latter's oxygen depletion by moving out of his ability's range. Luffy managed to get behind Caesar and was about to pummel him with a Haki-hardened Gear 2 attack, but the attack was blocked by Monet who created a wall out of snow. Monet told Caesar to flee while she handled Luffy, saying that Doflamingo would eliminate her if she failed.{{qref|chap=681|ep=607}} Monet created a ten-layer igloo of snow around Luffy before hugging him, with her [[Yuki Yuki no Mi|snow Logia]] body quickly depleting his stamina. However, Luffy was able to muster enough energy to escape by breaking through the floor. Though he successfully got out, he ended up falling into the trash heap far below the rest of the lab, with no way to get back up besides flying.{{qref|chap=683|ep=609}} 
+
+[[File:Luffy Meets a Dragon.png|thumb|left|230px|Luffy meets Momonosuke.]]
+
+Luffy soon encountered a small talking pink dragon inside the trash heap who introduced himself as [[Kouzuki Momonosuke|Momonosuke]]. Momonosuke explained that he had been taken to Punk Hazard alongside other kids to be experimented on by Caesar, but he had refused any food offered to him. However, in a fit of hunger he ended up eating a [[Devil Fruit]] locked away in a secret room which turned him into a dragon. Momonosuke told Luffy that he had overheard Caesar talking about how the children in his lab would perish from his tests within five years, causing Luffy to become angry at Caesar and grow determined to climb out of the trash heap. However, Luffy shouted at Momonosuke which caused the young dragon to exclaim in fear and summon clouds that propelled the two of them up and out of the chamber.{{qref|chap=685|ep=611}} After exiting, Luffy ordered one of Caesar's henchmen to tell him where the scientist was, and the henchman immediately responded that he was in Section R.{{qref|chap=688|ep=614}}
+
+====Final Battle with Caesar and Aftermath====
+[[File:Luffy Breaks Caesar's Face in the Anime.png|thumb|Luffy breaks Caesar's face by punching him.]]
+
+Luffy broke into Section R as Caesar was attacking Brownbeard, and asked what this place was where Caesar had lied to everyone who served him. Caesar told Luffy that this island was backed by powerful forces, as he produced a substance called [[SAD]] here which Doflamingo used to turn into artificial [[Zoan]]-type Devil Fruits known as [[SMILE]], which was sold to Kaidou to form a massive army of Zoan users. Caesar warned Luffy that attacking him would incite the wrath of the most powerful figures in the New World, but Luffy replied that this had not stopped him before as he struck Caesar in the face.{{qref|chap=689|ep=615}} Caesar continued threatening Luffy with Doflamingo's wrath as he fired an explosive beam, but Luffy dodged it and continued attacking the scientist.{{qref|chap=690|ep=616}}
+
+[[File:Gomu Gomu no Grizzly Magnum.png|thumb|left|220px|Luffy defeating Caesar with a massive attack.]]
+
+Caesar ordered for vents to be opened to send Shinokuni into Section R, and once it did he merged with the gas to make himself big and powerful, not caring about any of his henchmen being caught in it. Luffy started running back toward Section B, but then came running back while stretching his arms behind him, inflating them with Gear 3 and imbuing them with Busoshoku Haki.{{qref|chap=691|ep=617}} Caesar immediately became fearful at what was heading for him and made a last-ditch offer for Luffy to work with him before Luffy launched both enlarged fists into him in an attack called ''Gomu Gomu no Grizzly Magnum''; the attack blasted Caesar all the way out of the lab. Zoro, Nami, Sanji, and Robin then arrived with the children, Tashigi, and G-5 Marines, and Law and Smoker arrived soon after. Law asked where Caesar was, and when Luffy told him what he had done, Law said they needed to go and find him immediately.{{qref|chap=692|ep=617|ep2=618}} The children, Marines, and Caesar's men all gathered into a large SAD cart, and Luffy agreed to move out through the escape corridor once all of his crew was accounted for.{{qref|chap=693|ep=619}}
+
+[[File:Punk Hazard Allies Confront Baby 5 and Buffalo.png|thumb|210px|The Straw Hat Pirates, Kin'emon, Smoker, and the G-5 Marines stand united.]]
+
+As they traveled, an explosion from the SAD room suddenly rocked the corridor and forced Luffy and others to protect the cart from falling rubble,{{qref|chap=694|ep=620}} but they eventually emerged unharmed on the coast. There, they found Franky battling [[Buffalo]] and [[Baby 5]] of [[Donquixote Pirates|Doflamingo's crew]], who had been sent to retrieve Caesar. Upon seeing the arrival of this large force, the duo quickly apprehended Caesar and started flying off. However, Nami and Usopp assured everyone that they could handle this, and quickly neutralized Buffalo and Baby 5 before Usopp trapped Caesar by firing a pair of Seastone handcuffs at him.{{qref|chap=695|ep=621}}
+
+Once Caesar, Buffalo, and Baby 5 were apprehended, the pirates and Marines split up to regroup. Brownbeard and his men were arrested by the Marines; Kin'emon appeared to have been killed by Shinokuni but emerged alive after his petrification shattered, and he and his son Momonosuke reunited; Law rid the kids of Caesar's drugs. Sanji made some food for Kin'emon and Momonosuke to eat, and despite Law saying that they needed to leave at once as more enemies would surely come for them, a large party soon broke out as the pirates and Marines ate and drank together.{{qref|chap=696|ep=622}} Afterwards, the Marines and children departed on the SAD tanker, and thanked the pirates for their help.{{qref|name=c697}}
+
+The Straw Hats, Law, and the samurai then departed Punk Hazard on the Sunny and set sail for [[Dressrosa]], where Doflamingo was based. Luffy and Law got everyone on the crew caught up on their plan to ally and take down Kaidou, and Law explained their next steps. With Caesar captive and his SAD production halted, Doflamingo lost the ability to make SMILE; their goal now was to destroy the Warlord's [[SMILE Factory]] and fully cut off Kaidou's access to artificial Zoan fruits. Kin'emon revealed that he and Momonosuke wished to go to Dressrosa as well, as one of their comrades was being held there.{{qref|chap=698|ep=624}} Night fell with nobody arriving to attack, and the next morning, the pirates found out from the news that Doflamingo had indeed left the Seven Warlords and his throne in order to meet Law's demands to get Caesar back; additionally, the news had learned about Luffy and Law forming an alliance.{{qref|chap=699|ep=628}}
+
+===Dressrosa Arc===
+====The Next Objective====
+Law contacted Doflamingo to discuss the next part of the negotiation. Luffy suddenly interrupted the call and angrily asked Doflamingo if he is the boss of Caesar. Doflamingo stated his desire to see Luffy and informed the Straw Hat captain that he has something that he would want to get which Luffy thought it was meat. Luffy was then put into a trance until Usopp snapped him out of it. After Law told Doflamingo that he will bring Caesar to Green Bit, he and the Straw Hat planned on how to destroy the SMILE factory on Dressrosa. Luffy then got more excited to see Dressrosa and the crew have a big meal. While eating, Luffy heard Law and Kin'emon talking about a place called Zo. Luffy then listened to Kin'emon and Momonosuke's story about how they were shipwrecked and drifted to Dressrosa as well as how Momonosuke was separated from his father. After hearing about how Kanjuro helped Kin'emon escape, Luffy excitedly declared that they should save him too. The Thousand Sunny soon approached Dressrosa.{{Qref|chap=700|ep=629|Luffy talks with Doflamingo and they soon approach Dressrosa.}}
+
+[[File:Straw Hats In Disguise.png|thumb|left|210px|Luffy and his group incognito.]]
+
+After disembarking, the group began their next phase of their operation. Luffy thought about using Momonosuke, in his dragon form, to fly. However, Momonosuke refused to do so. When Luffy asked him if he is afraid of heights, they got into a small fight until Kin'emon broke them up. The group split into three teams and Luffy went into Dressrosa with Zoro, Sanji, Franky, and Kin'emon to destroy the factory and rescue Kanjuro. While exploring, they saw the things that the country is famous for including living toys. After getting disguises, they stopped at a restaurant to get something to eat. There, they found some thugs taking advantage of a blind man while taking away his money in roulette.{{Qref|chap=701|ep=630}} The man then demonstrated his gravity-like ability when the thugs attacked Luffy for calling their bluff.{{Qref|chap=701|ep=631|page=16-19}}
+
+As the man left, Luffy asked who he was, only for the man to say it was better for both of them if he did not know. After one of Zoro's swords is stolen, he chased after the thief with Sanji and Kin'emon in tow. Luffy attempted to follow them for fun, but was stopped by Franky. Instead, they interrogated one of the thugs, who happened to be a subordinate of Doflamingo, for the location of the SMILEs factory. The thug claimed that he did not know anything about it. He then said that most of Doflamingo's crewmembers were at the colosseum where there was a tournament being held for a big prize. At first, Luffy thought it was meat, thinking back to his conversation with Doflamingo, only for the thug to inform them that the prize was actually Ace's former Devil Fruit.{{Qref|chap=702|ep=631}}
+
+====Corrida Colosseum====
+Luffy decided to compete for the fruit, not wanting just anyone to eat it. He offered the fruit to Franky, but he declined, not wanting to lose his ability to swim. Even though the initial objectives were to find the factory and Kanjuro, Franky felt Luffy deserved the chance to fight for the fruit. Luffy and Franky later arrived at Corrida Colosseum where they met a one-legged toy soldier called [[Kyros|Thunder Soldier]].{{Qref|chap=703|ep=632}} While Franky told Luffy that he could go full out in the tournament, it was best to keep his identity secret. He nearly gave himself away when he almost signed his own name, but thanks to Franky stopping him, he ended up signing in as "Lucy". He was then taken to the waiting room, where he met all the contestants. One of them called [[Spartan]] attacked Luffy, thinking he was a weakling. Much to the other contestants' surprise, Luffy easily defeated Spartan.{{Qref|chap=703|ep=633}}
+
+One of the staff members of the colosseum was about to disqualify Luffy. Luckily, Sai and Boo from the [[Chinjao Family]] stepped in and spoke on Luffy's behalf, saying that Spartan was the one who started the fight. After thanking the Chinjao family for saving him from disqualification, Luffy learned that he has been assigned to C Block. Once he was inside the battle preparation room, Luffy got excited seeing all the armor and decided to put some on to make himself look cooler. While learning about the colosseum's weight restriction on protective gear, Luffy was greeted by [[Cavendish]], captain of the [[Beautiful Pirates]].{{Qref|chap=704|ep=633}} Luffy accidentally told him his own name, but the other contestants thought he was mispronouncing his alias "Lucy". Cavendish then proceed to tell Luffy his backstory such as how he came to resent the Eleven Supernovas, but Luffy ignored him during the middle of the conversation. He then sees a bronze statue of a man named [[Kyros]]. While admiring the statue, he met a female gladiator named [[Rebecca]], who told him the story of Kyros. Luffy then sees that Rebecca was determined to win the Mera Mera no Mi to defeat Doflamingo. After Luffy and Rebecca finished their conversation, the winner of A Block was announced and Luffy was shocked to see that it was [[Jesus Burgess]].{{Qref|chap=704|ep=634}}
+
+Before B Block began, Luffy took a look at the warriors defeated by Burgess. He was then approached by Bellamy,{{Qref|chap=706|ep=634}} who told him that he also visited Skypiea. [[Bellamy]] said that his reason for joining the tournament was a chance to join Doflamingo's crew. He went on saying that he has no grudge against Luffy and that he would not laugh at him again.{{Qref|chap=706|ep=635}} Luffy then watched B Block with Cavendish. As the fights in B Block went on, [[Chinjao]] approached Luffy and asked him about Garp, revealing Luffy's identity to Cavendish in the process.{{Qref|chap=707|ep=636}}
+
+[[File:Luffy and Cavendish vs. Chinjao.png|thumb|250px|Luffy and Cavendish fight the furious Chinjao.]]
+
+Luffy kept denying his true identity, but Cavendish drew his sword, preparing to attack Luffy anyway. However, Chinjao made the first move, striking at Luffy with a headbutt. Right after Luffy dodged the attack, Cavendish tried to force Luffy to take off his fake beard. Chinjao then launched another attack, but Cavendish wards off the second headbutt with his sword. Chinjao continuously assaulted both Luffy and Cavendish with his headbutts until Luffy punched him into the ground. When Chinjao became very furious, Boo and Sai came to stop him. While the two managed to calm down Chinjao, Luffy hid himself by hanging from a window sill. Luffy continued to watch the match and witnessed Bartolomeo deflecting [[Hack]]'s attack, which also damaged Hack's hand as well.{{Qref|chap=708|ep=637}}
+
+As he continued to watch the battle in the arena, he was wondering how Bartolomeo was able to damage Hack like that. He then witnessed that even Bellamy could not stand up against Bartolomeo's [[Bari Bari no Mi|strange power]]. He then cheered Bellamy on, urging him to give it his all. After that, [[Elizabello II|King Elizabello]] finally threw his legendary "King Punch" which took out all the remaining gladiators in the arena. Even Luffy said that it was an incredible punch and that he had never seen anything like it. Before the King was declared the winner of B Block's "Battle Royale", Bartolomeo emerged unharmed and revealed that he had eaten the Bari Bari no Mi and had created a barrier to protect himself. He then took out the King and was declared the winner of B Block much to Luffy's surprise.{{Qref|chap=709|ep=638|Luffy is surprised upon seeing Bartolomeo win in the B Block.}}
+
+As an injured Bellamy was moved out of the ring, he and Luffy had another friendly chat and commented on how the other had changed. Meanwhile, Bartolomeo overheard Bellamy calling him Straw Hat.{{Qref|chap=710|ep=639}}
+
+[[File:Luffy Defeats Hajrudin.png|thumb|left|230px|Luffy defeats Hajrudin with a single punch.]]
+
+When C Block started, Luffy entered the ring before Cavendish could confront him. When the gong was heard, Luffy was excited to start fighting.{{Qref|chap=712|ep=641|ep2=642|C Block begins.}} As the battle royale went on, Luffy was seen defeating an opponent effortlessly.{{Qref|chap=713|page=13|ep=643|Sanji sees a Visual Den Den Mushi feed of the colosseum in the plaza.}} Some time during the battle royale, Luffy tamed and befriended the Fighting Bull, naming him Ucy.{{Qref|chap=714|page=13|ep=643}} Luffy rode on top of him as he rampaged around the ring. The bull was eventually stopped and crushed by Hajrudin. Luffy then avenged Ucy by eliminating Hajrudin from the competition with a knock-out punch.{{Qref|chap=714|ep=644}}
+
+Afterwards, Luffy removed Ucy from the fighting area by carrying him over his right shoulder. When he was finished, Luffy entered the fight again only to have his helmet stolen by [[Jean Ango]] who heard a rumor that he was Straw Hat Luffy, forcing him to use his cape to hide his identity.{{Qref|chap=715|ep=645}} Jean Ango then threw multiple weapons at him, which Luffy was able to dodge with ease. The weapons aimed at Luffy hit Chinjao instead. Luffy then took back his helmet before Chinjao knocked the bounty hunter out of the ring. Seeing that Chinjao was hell bent on taking his grudge out on him, Luffy decided to fight him head on. Before clashing with Chinjao, he knocked out Sai while Chinjao knocked out Ideo. As the two remaining fighters in the battle royale, Luffy and Chinjao clashed their fists against each other, causing a large wave of Haoshoku Haki to burst throughout the arena.{{Qref|chap=716|ep=646}}
+
+After Luffy declared his goal of becoming the Pirate King, Chinjao asked him who taught him Haki and Luffy answered that it was Rayleigh. Chinjao then bursts into tears, mentioning about a treasure he was not able to acquire. Luffy told Chinjao to stick to either crying or getting angry and then continued his clash with him.{{Qref|chap=717|ep=647}} After taking some punches from Chinjao,{{Qref|chap=718|ep=648}} Luffy struck back with a powerful attack of his own, hitting him in the chest with his Gomu Gomu no Hawk Rifle.{{Qref|chap=718|page=18-19|ep=649}}
+
+[[File:Luffy Defeats Chinjao.png|thumb|250px|Luffy defeats Chinjao and inadvertently restores his pointed head.]]
+
+After recovering, Chinjao began mocking Luffy, telling him that those known as the Worst Generation are greenhorns who do not know anything of the world and saying that his attempts to surpass Roger are laughable. He then enraged Luffy by saying executing Ace was a smart move by the Marines. Luffy then proceeded to launch himself in the air with Gomu Gomu no Rocket using Chinjao as leverage. He then activated Gear 3 and launched his Gomu Gomu no Thor Elephant Gun while Chinjao took the attack head on with a headbutt. The two collided, seemingly matched up until Luffy managed to gain the upper hand, which coincidentally restored Chinjao's head to the shape it was before his final battle with Garp. Chinjao was then knocked out and fell down to the arena, splitting it in half with his newly reformed head. Chinjao then sank into the water, unconscious, and Luffy officially won C Block. Luffy stood victorious as the audience cheered for him.{{Qref|chap=719|ep=649}}
+
+[[File:Teach Speaks With Luffy.png|thumb|left|230px|Luffy speaks with Blackbeard.]]
+
+After Luffy left the arena, Cavendish thrust his sword at him, but he caught the sword effortlessly and held on to it tightly. Chinjao arrived wanting to thank Luffy for restoring his head but accidentally broke the floor when trying to bow in respect. Luffy ran away from both Cavendish and Chinjao and was saved by Rebecca. He then ran into Burgess, who was communicating with Blackbeard through Den Den Mushi. Luffy declared that he will not allow Ace's power to fall into Blackbeard's hands. At the Gladiator's quarters, Rebecca bought him some food and sat next to him. Some gladiators behind prison bars caught Luffy and after some hesitation, she tried to kill him with her sword. Luffy dodged the attack and pinned her down. Rebecca asked him why he did not seek retribution. Luffy answered that he would not do anything to someone who bought him food. Rebecca then proceeded to tell him about the convict gladiators and how they were imprisoned in the colosseum for opposing Doflamingo. She said that she wanted to win the Mera Mera no Mi in order to be able to protect herself and not have to rely on the Thunder Soldier, who was planning an attack against Doflamingo.{{Qref|chap=720|ep=650}}
+
+Rebecca then explained to Luffy about how the toys are no different from humans, how her mother died and Thunder Soldier was her guardian after her mother's death, which is why he is so important to her. The conversation was interrupted by [[Gatz]] announcing that the ring is repaired and D Block is about to commence. When Rebecca entered the arena, the audience booed and jeered at her. Luffy angrily wondered why and one of the convict gladiators informed him that Rebecca is the previous king's granddaughter.{{Qref|chap=721|ep=651}}
+
+Having also been wrongly judged by Chinjao due to his relation to Garp, Luffy responded by saying that Rebecca has nothing to do with her grandfather, which the convict gladiators agreed. When Cavendish stood up for Rebecca and stopped the audience's booing and jeering, Luffy commented that while he still disliked Cavendish, he was not so bad.{{Qref|chap=722|ep=652}}
+
+As he watched Rebecca's fights during the D Block battle royale, he commented that Rebecca can use [[Kenbunshoku Haki]]. He continued to cheer Rebecca on.{{Qref|chap=725|ep=656}} He later decided to move to a different place to watch the fight. Before leaving, he was told by the convict gladiators about the country's dark side that the public knew nothing about. As he exited the Gladiator's quarters, he encountered Bartolomeo.{{Qref|chap=726|ep=657|ep2=658}}
+
+====Invading the Palace====
+Bartolomeo guided Luffy to Zoro and Kin'emon, with the former being annoyed at the fact that he was not invited to fight in the colosseum. He then informs Luffy that the colosseum is surrounded by Marines, who quickly dismisses the fact besides Kin'emon's shock. They then engage in a conference call with Sanji and Franky's group. Everyone is then brought up to speed on the current situation as they learn about the true situation on Dressrosa. When Franky plead to Luffy to allow him to help the dwarves and toys, Luffy quickly gave his permission to assist with the revolution. Just as the call ends, a battle between Law and Doflamingo which raged across Dressrosa abruptly ended right outside the colosseum with Doflamingo standing above his opponent. Luffy cried out to Law in horror as Doflamingo shot him three times at close range.{{Qref|chap=729|ep=661}}
+
+Luffy then angrily yelled at Doflamingo, who responded by saying that it was his duty to discipline Law. Zoro and Kin'emon rushed to save Law. Zoro was intercepted by Issho, the blind man they encountered earlier and Kin'emon was kicked away by Doflamingo before he could retrieve Law. Luffy tried to help his friends, but realized that the bars in the windows of the colosseum are made of Seastone. The entire crew was shocked to be told by Kin'emon that the blind gambler was actually an admiral.{{Qref|name=c730|chap=730|ep=662}}
+
+Both Doflamingo and Issho float above their opponents using their abilities, taking Law with them and head towards the palace. After the Marines started pursuing Zoro and Kin'emon, Zoro told Luffy to find the exit. As Luffy informed the two swordsmen that Law is still alive, they heard that the Sunny is under attack by the Big Mom Pirates, who are after Caesar Clown. During the commotion, Nami told Luffy that Law tried so hard to keep Caesar and Momonosuke away from Doflamingo and cannot allow them to fall into his hands. Luffy gave Sanji's group permission to head for Zo and also allowed Sanji to counterattack against the Big Mom Pirates. While leaving Franky's group in charge of destroying the SMILE factory, Luffy decided to head to the palace with Zoro and Kin'emon to rescue Law and fight Doflamingo.{{Qref|name=c730}}
+
+[[File:Luffy's Reaction to Meeting Sabo.png|thumb|210px|Luffy reacts upon seeing Sabo after twelve years of thinking he was dead.]]
+
+While looking for an exit out of the colosseum, he found Bartolomeo carrying a wounded Bellamy. Luffy said that he was leaving the tournament since rescuing his friend comes first. Bartolomeo proudly declared that he will get the Mera Mera no Mi for him, but someone interrupted them and declared that the fruit could not be given to Luffy. Luffy then talked to this person and recognized him as his older brother [[Sabo]], whom he believed to be dead.{{Qref|chap=731|ep=663}} Luffy began crying in happiness and disbelief and embraced his brother. Sabo was glad that Luffy was alive, and Luffy gave him permission to eat the Mera Mera no Mi at his request.{{Qref|chap=794}} Before leaving, Luffy gave Sabo his gladiator costume so he can take his place in the tournament. Luffy later escaped the colosseum and met up with Zoro and Kin'emon. The trio wore disguises to elude the Marines. As they ran away from the colosseum, Luffy was still crying over the revelation that his brother was alive.{{Qref|chap=731|ep=663}}
+
+Luffy, Zoro, and Kin'emon later arrived at the lift that leads to the royal palace alongside the dwarf, Wicca. There, they encountered Viola, who offered to guide them to the palace.{{Qref|chap=734|ep=666}} After getting acquainted with her and learning about her ties with the Riku Family, Luffy's group was then led to a secret passage. Once inside the passage, Zoro suggested that they use a basket used for lifting supplies and that Luffy should climb up carrying a rock and hang from the chain to act as a counterweight for the basket to move up. Luffy gladly accepted the suggestion.{{Qref|chap=735|ep=667}}
+
+They later arrived at the palace rampart tower. Viola was about to sneak them in, but Luffy went ahead and smashed his way through the gate, much to her chagrin. After Luffy took off his disguise, the group charged in.{{Qref|chap=736|page=11-15|ep=668}} Once Luffy, Zoro, and Viola reached the Rampart Tower B-1, they were intercepted by Pica.{{Qref|chap=736|page=18-19|ep=669}}
+
+After Viola explained about Pica's [[Ishi Ishi no Mi|Devil Fruit ability]], Pica attempted to crush Luffy and his group with the palace walls.{{Qref|chap=737|page=2-3|ep=669}} They managed to avoid it and Zoro held off Pica while Luffy and Viola rushed on ahead, though they were hampered by Pica's power to create dead ends. They eventually ran into Thunder Solder as he was about to be destroyed by Gladius. Luffy knocked away Gladius with a Jet Stamp and caught the toy soldier.
+
+Luffy was about to continue the fight with the officer, but Viola pulled him away, stating that Gladius was too dangerous. Gladius attacked the group, managing to wound Viola which forced Luffy to carry her. Seeing no stairs to advance further up, Luffy jumped out a window and used his leg to stretch to the second floor conveniently outside the Room of Suits. As they overheard Doflamingo trying to get Law to tell him what the Straw Hats' plan was, Luffy asked if he can attack Doflamingo, only to be denied and told to wait by Viola.{{Qref|chap=740|page=2, 8-12, 14-16|ep=672|ep2=673}} They later saw Gladius and his men approaching the second floor. Thunder Soldier also spoke to Luffy about his realization that he and his crew were pirates but also commented that it was reassuring that they share the same goal.{{Qref|chap=742|page=14|ep=676}}
+
+After Thunder Soldier transformed back into a human, Viola revealed to Luffy about Kyros and everything that happened in Dressrosa. After Kyros decapitated Doflamingo, Luffy grabbed Viola and charged in to save Law.{{Qref|chap=743|page=12-16|ep=677}} While rushing to Law, Viola gave Luffy the keys to Law's cuffs. Law told Luffy that their alliance already ended, but Luffy ignored him. His rescue of Law was interrupted by Pica's sudden appearance. Luffy was then surprised to see Doflamingo still alive.{{Qref|chap=744|page=16-19|ep=679}}
+
+It was then revealed that the Doflamingo that was decapitated was only a copy. As Kyros attempted to attack the copy again, the real Doflamingo appeared behind Kyros and attempted to behead him with a kick, slicing the palace in the process. Luffy managed to save Kyros from a fatal blow. Doflamingo and his copy then tried to attack both Luffy and Kyros but they jumped out of the way. Luffy retaliated by using Jet Gatling but Doflamingo blocked the attack. His copy then struck Luffy from behind and he followed by giving Luffy a punch to the face, knocking him back. Pica then threw Luffy, Law, Kyros, Viola, and Riku Dold III out of the palace. They watched as Doflamingo initiated his "bird cage" plan, trapping everyone on Dressrosa.{{Qref|chap=745|page=5-13, 16-19|ep=680}}
+
+====Birdcage====
+After Pica relocated the royal palace to the top of the Flower Hill, Doflamingo forced everyone imprisoned into a survival game and put a price on the heads of twelve people. Luffy and his crew were included in Doflamingo's hit list. After reuniting with Zoro, Luffy spoke to Rebecca through Den Den Mushi and informed her that the toy soldier was her father. He told her not to cry and stay close to Usopp, Robin, and Sabo. After declaring that he will defeat Doflamingo and end his game, Luffy grabbed Zoro and Law and pursued Doflamingo.{{Qref|chap=746|page=7-10, 14-19|ep=681|ep2=682}} Luffy jumped down from the King's Plateau and they landed in the middle of a crowd of enemies. After a brief scuffle with Senor Pink, Machvise, and Dellinger, the Dressrosa citizens started attacking Luffy and his group. Luffy was about to use Haki but Issho arrived to confront them. Pica then appeared as a massive stone giant, looking for Doflamingo's enemies. Luffy laughed at his voice, making him angry.{{Qref|chap=747|page=11-17|ep=683|Luffy makes fun of Pica's voice.}}
+
+[[File:Luffy and the Corrida Colosseum Gladiators Going After Doflamingo.png|thumb|left|250px|Luffy, Zoro, Law, and their new allies are on their way for Doflamingo.]]
+
+Pica then threw a punch which sent Luffy, Zoro, and Law flying to the square in front of the colosseum. They were soon approached by Cavendish, who explained that he had ceased his grudge against Luffy. Cavendish offered to defeat Doflamingo for Luffy, but the Straw Hat captain was adamant about defeating Doflamingo himself. They were then joined by those who also wished to fight Doflamingo: the Chinjao Family, Hajrudin, Elizabello II, Dagama, Abdullah, Jeet, Orlumbus, Ideo, Suleiman, and Blue Gilly. After the allied colosseum fighters fought off the former toys who are after Doflamingo's prize money, Luffy was reunited with Ucy. Luffy and his allies then marched towards the royal palace and began to battle against Pica.{{Qref|chap=748|page=4-16|ep=684|The Colosseum fighters join up with Luffy.}}
+
+When Pica attempted to strike Luffy and his allies, Chinjao and Elizabello II shattered Pica's stone hand, enabling Luffy to move forward. Pica then attacked with his other arm, causing Luffy's allies to fall back. However, Luffy, Zoro, Law, Abdullah, Jeet, and Ucy jumped on and climbed on Pica's arm. Pica regrew the arm that was shattered and prepared to attack Luffy again. Luffy responded by shattering Pica's stone head with Grizzly Magnum. Zoro discovered Pica's real body, which appeared in front of Luffy's group. Pica took out his sword and tried to attack the group riding on Ucy, but Luffy carried the bull and evaded the sword strike. Zoro intercepted Pica when he attempted to strike Luffy again. As Ucy ran on the stone giant's back, Law revealed to Luffy that the plan to defeat Kaidou was a trick to get revenge on Doflamingo for killing [[Donquixote Rosinante|Corazon]], a former executive officer of the Donquixote Family, Doflamingo's brother, and Law's benefactor.{{Qref|chap=749|page=2-17|ep=685|ep2=686|Luffy rides on Pica's statue with Ucy.}}
+
+Luffy, Law, Ucy, Abdullah, and Jeet eventually reached the first level of the new King's Plateau. While charging, Luffy repelled the Donquixote Pirates' troops standing in the way.{{Qref|chap=750|page=16-17|ep=687|Luffy reaches the first level of the King's Plateau.}}
+
+After Luffy saw that the other colosseum fighters went ahead of them, Kelly Funk (while fused with Bobby Funk) appeared seemingly to aid them. Law asked Luffy what to do about his seastone handcuffs, but Luffy assured him that things will work out. Kelly then showed them a tunnel that is supposed to go directly to the fourth level. While entering the tunnel, Luffy and Law were shocked to see Abdullah and Jeet fell off. After leaving those two behind, Luffy and Law were contacted by Robin through Den Den Mushi. Robin informed them that she will meet them at the fourth level. Luffy, Law, and Ucy later reached a dead end. While the bull stood on top of a pool of water, a string clone of Doflamingo appeared behind them.{{Qref|chap=751|page=12-17|ep=688|Luffy and Law are trapped by Doflamingo.}}
+
+The clone attacked Ucy with bullet thread, knocking him unconscious. As the bull collapsed, Law and Luffy fell into the water and became powerless. Before the clone could kill them, Abdullah and Jeet struck the clone from behind, destroying it. After recovering, Luffy punched a hole to the second level with Elephant Gun and carried Law with him as he moved ahead of the allied colosseum fighters. Cavendish approached Luffy and told him that he has a plan.{{Qref|chap=752|page=2-11, 16-17|ep=688|ep2=689}}
+
+Luffy and Law then rode on Cavendish's horse. During the fray, Kyros managed to hitch a ride on Farul as well. Luffy was happy to see him while Cavendish was displeased. Kyros was shocked when Luffy informed him that Rebecca was heading for the fourth level. Kyros reminded Luffy that Rebecca is on Doflamingo's hit list, but Luffy assured him that one of his crewmates was with her. When the other colosseum fighters banded together, they created an opening for Luffy, Kyros, and Cavendish to go through.{{Qref|chap=753|page=12-17|ep=690|ep2=691}} As Farul charged towards the third level, Luffy continued to repel any Donquixote Pirates' troops along the way. Luffy, Law, Cavendish, and Kyros then briefly argued over who will be the one to defeat Doflamingo.
+
+Once they reached the third level, they found giant toy soldiers standing in their way.{{Qref|chap=754|page=6-11|ep=691}} One of the toy soldiers bit Farul on the head until Luffy punched it away. With Farul gravely injured, Luffy and his group prepared to battle the toy army. Just then, Robin, Bartolomeo, and Gladius fell from the sky and landed in front of them. Robin and Bartolomeo held back Gladius and the toys to enable Luffy's group to continue towards the fourth level, where Rebecca would be waiting.{{Qref|chap=756|page=12-17|ep=694}} Bartolomeo used his ability to create a stairway to the fourth level. Luffy thanked him, causing Bartolomeo to shed tears of joy. Kyros went ahead while Cavendish decided to remain on the third level to avenge his horse. As Luffy, while carrying Law, ran up towards to the fourth level, Gladius launched rupture bullets at him. Bartolomeo protected Luffy by jumping into the line of fire.
+
+Once Luffy and Law reached the fourth level, Rebecca quickly gave them the key to Law's handcuffs. After removing the handcuffs, Kyros told Luffy and Law to go ahead while he fights Diamante.{{Qref|chap=757|page=2-8, 16-17|ep=695|ep2=696}} Luffy then told Rebecca that he was glad that she could see her father again. Rebecca then asked him if he would really defeat Doflamingo, while still calling him "Lucy". Luffy answered that his name is not Lucy and told her his real name. Diamante tried to stop Luffy and Law, but Law teleported himself and Luffy to the palace pool garden. They were then approached by Sugar, who intended to turn them into toys. Just as she got close to them, Usopp sniped at her from the old King's Plateau and made her lose consciousness, saving both Luffy and Law. With Sugar out of the way, Luffy and Law finally reached Doflamingo.{{Qref|chap=758|ep=696|ep2=697}}
+
+====Confronting Doflamingo====
+
+[[File:Luffy Hits Doflamingo with Red Hawk.png|thumb|210px|Luffy hits Doflamingo with Red Hawk.]]
+
+After seeing at how Doflamingo treated [[Bellamy]] like trash, Luffy was enraged. Law warned him not to let his emotions get the better of him. Luffy attacked Doflamingo with his foot, but he used Bellamy as a shield. Doflamingo then created another string clone to fight Law while controlling Bellamy to fight Luffy. Bellamy begged Luffy to stop him, but Luffy refused as he considered Bellamy a friend. Luffy then aimed an attack at Law. Law activated Room and used Shambles to switch places with Doflamingo, allowing Luffy to strike him with Red Hawk.{{Qref|chap=759|ep=}}
+
+Once Doflamingo recovered from Luffy's attack, he stopped Law from attacking Trebol and incapacitated him with Fulbright. He then struck Luffy with a Haki-imbued kick, tied his hands, and then have Bellamy slashed him. When both Luffy and Law are down, Doflamingo mentioned to them his past as a World Noble.{{Qref|chap=760|ep=}} Doflamingo then sent his string clone and a controlled Bellamy to confront Luffy, and though Luffy attacked them with Octopus Gatling, the Doflamingo string clone got him from behind and slammed him through the floor into the palace interior. The Doflamingo clone spoke to Luffy about the cruelty of man, confusing Luffy.{{Qref|chap=761|ep=}}
+
+Luffy eventually managed to defeat the string clone, sending it flying through the roof with Jet Gatling. He then demanded Doflamingo to release Bellamy. Doflamingo decided to set Bellamy free and Luffy asked him to rest. He was about to go help Law, but Bellamy got up on his feet and continued on with the fight, refusing to betray his own principles and prepared to assault Luffy with his new and improved Spring Hopper.
+
+Luffy yelled at Bellamy for siding with the man who betrayed him and said it wasn't worth fighting, but Bellamy ignored him and drove into Luffy using Spring Hopper, punching him with a Haki-imbued fist and causing Luffy to cough up blood.
+
+[[File:Luffy Defeats Bellamy at Dressrosa Palace.png|thumb|left|210px|Luffy defeats Bellamy with one blow.]]
+
+In spite of Luffy's pleas to not fight, Bellamy refused to back down and Luffy eventually decided to finish their fight, knocking out Bellamy in the same manner as he did at Jaya. Luffy then yelled out Doflamingo's name in anguish.{{Qref|chap=779|page=11-16|ep=720|Luffy defeats Bellamy.}}
+
+Luffy then returned to the palace rooftops and resumed his battle with Doflamingo. As they clashed, Luffy stumbled upon Law's body, which was covered in blood. When Luffy tried to speak to Law, he was unresponsive and Doflamingo stated that he was dead. Luffy refused to believe Doflamingo, who proceed to taunt Luffy by mocking Law's last words, stating he claimed that the Straw Hats could create miracles. Luffy screamed out in rage as Doflamingo prepared to end his game.{{Qref|chap=780|page=9-15|ep=|Luffy fights with Doflamingo and finds Law's unconscious body.}}
+
+Doflamingo then informed Luffy that his Torikago is shrinking and in about one hour, it will destroy everything in Dressrosa. Luffy declared that he will stop it by defeating Doflamingo. As Luffy charged at his opponent, Law suddenly appeared in front of the latter and used Gamma Knife to damage Doflamingo's internal organs. Doflamingo grabbed onto Law's face, but Luffy kicked him away with Jet Stamp. As Doflamingo lied injured at Law's feet, Trebol attempted to attack Law only to be kicked away by Luffy. Law used Counter Shock on Doflamingo and collapsed from exhaustion. However, Doflamingo stood back up, revealing that he can use his string powers to fix his internal injuries. Doflamingo attempted to stomp on Law's head, but Luffy quickly intervened.{{Qref|chap=781|page=3-19|ep=|Luffy and Law continue fighting Doflamingo, with Law getting defeated.}}
+
+Doflamingo and Luffy battled intensely using [[Haki/Busoshoku Haki|Busoshoku]] and [[Haki/Haoshoku Haki|Haoshoku Haki]]. Though Luffy's first attacks were blocked, he managed to exploit an opening and punch Doflamingo repeatedly, ending with Gomu Gomu no Eagle Bazooka. However, Doflamingo evaded the Eagle Bazooka and kicked Luffy using Athlete's Thread, sending Luffy crashing into the ground, right into Trebol's trap. Trebol held Luffy down so that Doflamingo could finish off Law once and for all. Luffy got mad at the executive and attempted to hit him with a Busoshoku Haki-imbued fist. However, the attack had no effect, despite Luffy thinking Trebol was a Logia. Law then told Luffy to stop attacking Trebol, and Trebol left a trapped Luffy to go to Law. Luffy witnessed Law wounding Trebol and was caught in the explosion Trebol created.{{Qref|chap=782|page=2-19|ep=|The fight with Doflamingo and Trebol continues, with Trebol getting wounded by Law.}}
+
+[[File:Luffy Saves Law from Trebol's Explosion.png|thumb|210px|Luffy saves Law from Trebol's explosion.]]
+
+However, Luffy managed to escape the explosion and carried Law with him. Luffy then threw Law down towards Robin and her group on the Flower Field, telling them to help Law. Not willing to let Law get away, Doflamingo shot at Robin with Tamaito, despite Luffy kicking him with Gomu Gomu no Hawk Whip. However, Doflamingo's bullet was deflected by Cavendish. Luffy then told him to take Law and the others out of the Flower Field. Cavendish initially refused, but Luffy told him that he entrusted their lives to him, making Cavendish think that Luffy was his fan. Luffy then resumed his battle against Doflamingo, and hit the Shichibukai with Busoshoku Haki-imbued fists, sending him flying off the roof. However, Doflamingo laughed it off, saying that Luffy's attacks were quick but lacked power. He then attacked Luffy with Overheat, sending Luffy flying. Doflamingo mentioned to Luffy how he had followed the young pirate's career before kicking Luffy into the palace wall, causing a large chunk of it to fall away. However, Luffy quickly got back up and continued fighting, attacking with Gomu Gomu no Grizzly Magnum. Doflamingo easily avoided his attack and exploited the opening it left, kicking Luffy into the ground. Doflamingo then taunted Luffy about the shrinking Torikago and how it would kill all his friends, all because the Straw Hats stepped foot on Dressrosa. Luffy became enraged at Doflamingo for hurting his friends and prepared to activate [[Gomu Gomu no Mi/Gear 4 Techniques|Gear 4]].{{Qref|chap=783|page=2-19|ep=|Luffy ensures Law's safety and activates Gear 4.}}
+
+[[File:Gear 4 Infobox.png|thumb|left|250px|Luffy using Gear 4]]
+
+Luffy activated Busoshoku Haki in his left arm and blew into it, inflating the muscles and exponentially increasing his arm's size. He continued blowing until Boundman was activated. In this form, Luffy's entire torso became massive and he could only bounce, not stand. Doflamingo mocked his form, but Luffy revealed that he had subdued beasts with this form. Luffy then sunk his arm into his body and hit Doflamingo with Gomu Gomu no Kong Gun, which sent Doflamingo flying far away into the streets. Luffy then sunk his legs into his body and flew toward Doflamingo. With precision, Luffy speedily maneuvered behind Doflamingo and dropkicked the Shichibukai using Gomu Gomu no Rhino Schneider, sending Doflamingo crashing through several buildings. An enraged Doflamingo then flew up to the sky and Luffy rose to meet him, attacking Doflamingo with Gomu Gomu no Culverin Cannon. However, Doflamingo managed to avoid the attack and kicked Luffy with Athlete. However, Luffy's rubber managed to absorb the blunt attack despite being covered in Busoshoku Haki, and Luffy shook Doflamingo off. Luffy then used Culverin Cannon again, but this time he changed its direction several times to follow Doflamingo, and eventually succeeded in punching Doflamingo in the face.{{Qref|chap=784|ep=|page=6-19|Luffy overwhelms Doflamingo with Gear 4.}}
+
+Luffy then flew toward Doflamingo, knowing that Gear 4 was about to end. He attacked Doflamingo with both fists, but Doflamingo countered by summoning strings from the ground. Doflamingo revealed his Devil Fruit awakening powers to Luffy, shocking the Straw Hat, who wondered if Doflamingo was even a Paramecia anymore.{{Qref|chap=785|ep=|page=2-8|Luffy encounters Doflamingo's Awakened abilities.}}
+
+Twenty minutes later, Luffy continued battling against Doflamingo's strings as he listened to Riku's speech to the citizens of Dressrosa. Doflamingo turned much of the town into string to attack Luffy, but Luffy evaded the string, pulling his head and arms into his body as he attacked Doflamingo with Gomu Gomu no Leo Bazooka, sending the Shichibukai crashing into the palace mountain.{{Qref|chap=785|ep=|page=16-19|Luffy seemingly defeats Doflamingo.}}
+
+Luffy noticed that the Torikago remained active, meaning that Doflamingo was not utterly defeated. Luffy quickly flew to the palace mountain and attempted to finish Doflamingo off. However, before he could reach him, his Gear 4 wore off and he was completely exhausted. Gatz arrived and helped Luffy up and revealed that all the gladiators from the colosseum were there to aid Luffy. Luffy asked Gatz to give him 10 minutes to recover and Gatz proceeded to take Luffy to safety. They were then attacked by Burgess but were saved when Sabo kicked Burgess away.{{Qref|chap=786|ep=|page=2-17|Luffy is forced out of Gear 4 and is protected from Burgess by Sabo.}}
+
+[[File:Luffy Intercepts Rebecca's Attack.png|thumb|210px|Luffy intercepts Rebecca's unwilling attack.]]
+
+With Sabo holding Burgess back, Luffy assured him that he will defeat Doflamingo once his Haki recharges. Sabo then entrusted Gatz to Luffy's safety.{{Qref|chap=787}} As Gatz ran away with Luffy, Law suddenly used Room to teleport to their location. With three minutes left for Luffy to recharge, Law took over protecting him. Luffy then lay on the ground near Law as his Haki regenerated.{{Qref|chap=788}} Eventually, Luffy's Haki fully recharged, and with the help of Law and his Shambles, Luffy prevented Rebecca from being forced to cut down Viola and confronted Doflamingo once more.{{Qref|chap=789|ep=|page=18-19|Luffy intercepts Rebecca's attack and confronts Doflamingo again.}}
+
+Doflamingo attacked both Luffy and Rebecca with his strings, but Law saved Rebecca, so he turned his attention solely to Luffy. Doflamingo then turned an entire portion of the town into string to attack Luffy with a thousand "Flap Thread" string arrows.
+
+Doflamingo immobilized Luffy and taunted him by saying that all the slaughter could have been avoided had the people of Dressrosa just accepted their manipulation. This enraged Luffy to the point where he instantly reactivated Gear 4 and broke the strings holding him, taking the remainder of the fight into the skies above.
+
+[[File:Luffy Defeats Doflamingo With Gomu Gomu no King Kong Gun.png|thumb|left|200px|Luffy finishes off Doflamingo with King Kong Gun.]]
+
+After once again saying Luffy stood no chance against him due to his "commoner's blood", Doflamingo attempted to trap him in his Spider's Net. As Luffy enlarged his right arm and readied his final attack, Doflamingo unleashed 16 Godthreads in a last ditch effort to kill Luffy. Despite this, Luffy's King Kong Gun broke through and slammed him into the ground, destroying several buildings and shattering his trademark sunglasses.{{Qref|chap=790}}
+
+This time, Luffy's attack successfully defeated Doflamingo and the Torikago collapsed. While still in mid-air, Luffy deflated and started falling. Law saved him by instantly teleporting him to the ground. Having passed out from injury and exhaustion, Luffy's head was placed onto Rebecca's lap as the latter began to cry in happiness.{{Qref|chap=791}}
+
+====After Doflamingo's Defeat====
+
+[[File:Fighters Resting at Kyros's House.png|thumb|210px|Luffy and his crewmates rest at Kyros' house.]]
+
+After Doflamingo's downfall, Luffy and his group went to the palace, but later went to Kyros' old house to rest and recover.{{Qref|chap=794}} Three days after Doflamingo's defeat, Luffy continued his recovery as he heard about the rumor about Rebecca's father. He was not pleased with the rumor even after Kyros explained that he started it. Bartolomeo then entered the house, revealing that the Marines were mobilized to pursue the Straw Hats. He also explained that he and the other gladiators planned an escape route for them. Luffy then ran out of the house with the others, but suddenly stayed behind, saying that he still had something left to do.{{Qref|chap=796}}
+
+Zoro then told Luffy to hurry with his business and they will be waiting for him at the eastern port. Luffy then dashed to the royal palace and called out Rebecca. Once Luffy found Rebecca, he asked her if she was okay with Kyros leaving her. Rebecca answered "no" and Luffy offered to take her to him. Luffy then took Rebecca and made his way to the hill where Kyros' house is located. After dropping off Rebecca there, Luffy ran towards the eastern port.{{Qref|chap=797}}
+
+Luffy reached the eastern port just when Issho was about to attack his allies with the all the rubble from Dressrosa. Luffy then attacked the Admiral with a Haki-imbued Gear 3 attack, pushing him back. Luffy declared that he grew tired of running away from an Admiral and prepared for a fight.{{Qref|chap=798}}
+
+[[File:Luffy Punches Issho.png|thumb|left|210px|Luffy punches Fujitora.]]
+
+As they clashed, Luffy announced every single one of his attacks and where he was aiming before striking. Fujitora wondered if Luffy was taking pity on him due to his blindness. Luffy declared that he would not attack without saying anything, given that his opponent was blind. Fujitora laughed, explaining that they were supposed to be sworn enemies and no one is supposed to fight an admiral like that. Annoyed and slightly angered, Fujitora blew Luffy with his gravity ability. Hajrudin caught Luffy and the Straw Hats, Law, and Luffy's other allies quickly fled across a bridge leading to a gigantic ship in the distance. As Fujitora prepared to bombard the all the nearby ships with floating rubble, the citizens of Dressrosa arrived to "chase" after the pirates. Not wishing to harm the citizens, Fujitora halted his attack, allowing his targets to get away.
+
+Luffy and his allies eventually reached Orlumbus' flagship, the Yonta Maria. After boarding the ship, the following pledged their allegiance to Luffy: Cavendish of the Beautiful Pirates (including Suleiman), Bartolomeo of the Barto Club, Sai of the Happo Navy, Ideo of the XXX Gym Martial Arts Alliance (including Blue Gilly, Abdullah, and Jeet), Leo of the Tontatta Tribe, Hajrudin of the Giant Warrior Pirates, and Orlumbus of the Yonta Maria Grand Fleet.{{Qref|chap=799}}
+
+[[File:Straw Hat Grand Fleet Celebrates.png|thumb|210px|The newly-formed Straw Hat Grand Fleet celebrates their victory over the Donquixote Family.]]
+
+When Luffy was asked to drink a sake cup to complete the agreement for an alliance, Luffy declined, much to the others' shock. He did not wish to become someone great and powerful, but someone who is free, as well as not take away the freedom from his fellow allies. Once Luffy explained that they can do whatever they want, the allies decided to forge the alliance anyway, forming the Straw Hat fleet. To Luffy's surprise, Sai, Bartolomeo, Leo, Cavendish, Ideo, Orlumbus, and Hajrudin sat down and drank their sake cups, and Zoro ended up drinking the rest of the sake in what was supposed to be Luffy's cup. Afterwards, they held a feast to celebrate their victory over Doflamingo. As the group left Dressrosa, a multitude of pirates who had suffered great blows to their business ventures because of Doflamingo's defeat came after the Yonta Maria Grand Fleet, seeking to bring down Luffy. However, Fujitora dropped the rubble from Dressrosa on the enemy ships as a final thanks to Luffy for what he had done in the kingdom, while Kyros and Rebecca watched from afar and officially began their new life as a family together.{{Qref|name=c800}}
+
+After the feast, each of the leading allies received Luffy's vivre card and parted ways. Bartolomeo then brought the Straw Hats, the samurais, and Law to his ship, the Going Luffy-senpai. After Zoro noticed the Straw Hats' increase in bounty from a newspaper, Bartolomeo proudly showed Luffy's group their new wanted posters.{{Qref|chap=801}}
+
+==References==
+{{References}}
+{{Monkey D. Luffy Tabs Bottom}}
+[[es:Monkey D. Luffy/Historia/Nuevo Mundo]]
+[[Category:Character Subpages]]
+{{Monkey D. Luffy Tabs Top}}
+
+==Whole Cake Island Saga==
+===Zou Arc===
+====Encounter with the Mink Tribe====
+During a hail storm, Luffy learned that the Barto Club does not have a [[navigator]], lack experience in sailing, and they usually called a granny who gives them useless advice. Therefore, Luffy, the other Straw Hats, the samurais, and Law needed to protect the ship. After one week of traversing through the dangers of the New World, the ship finally arrived at [[Zou]]. Luffy was astonished to see that Zou is an island on the back of giant elephant that is over 1000 years old.{{Qref|chap=802|page=3-5, 12-17|ep=747|ep2=751|Luffy, his crew, and his allies make their way to Zou.}}
+
+After finding the Thousand Sunny, the Barto Club bid Luffy's group farewell. Proceeding to search for Sanji's group, they climbed the giant elephant's left hind leg with a dragon that Kanjuro conjured. After the samurais explained that they were also searching for their ninja comrade, [[Raizo]], Luffy and the others saw something dropping towards them.{{Qref|chap=803|page=2-5, 12-13|ep=752|Luffy, his crew, and his allies begin ascending the elephant's leg.}}
+
+[[File:Luffy Surveys Mokomo Dukedom.png|thumb|left|210px|Luffy surveys the Mokomo Dukedom.]]
+
+The thing that was falling towards them happened to be a monkey. The monkey hit Kin'emon and Kanjuro, causing them to off the dragon. Despite being separated from the group, the samurais assured the Straw Hats that they were alright and will catch up to them eventually. The rest of Luffy's group considered turning back for them, but after they saw the dragon struggling to climb, they decided to continue towards the top. Once they reached the top, the dragon turned back into a drawing and the group went on to explore the island. They discovered a village and Luffy ran ahead of the group, searching for Sanji, Nami, Brook, and Chopper.{{Qref|chap=804|ep=753}}
+
+<div style="float: right">[[File:Luffy Fights Roddy.png|thumb|210px|Luffy clashes with Roddy.]]</div>
+
+Luffy later went to the Whale Forest and got attacked by a bull mink called [[Roddy]] for trespassing. They clashed until [[Wanda]] and [[Carrot]] arrived and stopped them. After [[Pedro]] called off the guardians, Luffy got reacquainted with the [[Heart Pirates]] and explained that Law was on the island as well. Wanda then explained to Luffy about a recent attack on Zou before offering to take him to Sanji's group, much to his excitement.{{Qref|chap=805|ep=754}}
+
+While riding Wany, Wanda told Luffy about the climate on Zou and how the sea water from [[Zunesha]]'s eruption rain is filtered and sent across the country via a system of aqueducts. She and Carrot also explained that that rain also drops plenty of fish, providing them with a good food source. As they travel, they went past some wooden stockades used for torturing prisoners. Luffy asked her about the pirate she mentioned earlier, and she told him about Jack, explaining that his obituary was in the paper, since he was believed to be killed during a raid on a Marine escort. She added that his death wasn't confirmed, so he might still be alive. Right after Law teleported the rest of Luffy's friends close to their location, Wanda led them into Right Belly Forest. Luffy was overjoyed to be reunited with Nami and Chopper. Nami embraced Luffy as she told him what happened to Sanji.{{Qref|chap=806|ep=755}}
+
+[[File:Rightflank Fortress.png|thumb|left|210px|Luffy and the Straw Hats arrive at Right Belly Fortress.]]
+
+While having a feast with the Mink Tribe, Luffy told Zoro not to be rude to the minks. He was then happy to see Brook again. Brook explained that Momonosuke was safe but refused to leave his room. He also warned Luffy not to mention samurai or the Wano Country. Before he could explain the reason, he was interrupted by canine minks. After Luffy told Chopper that Law was with his crew, Nami asked him what to do about Sanji. Since Sanji had left a letter, Luffy was not too worried, much to Nami's chagrin. Luffy then listened to Nami and Chopper's story about how they escaped the Big Mom Pirates before listening to Wanda's story about how Nami's group saved the Mink Tribe. After hearing that Prince Inuarashi awakened from his coma and wanted to meet Zou's benefactors, Luffy and his group went to meet him. On the way, Wanda began to explain to them about Jack's attack on Zou in more detail.{{Qref|chap=807|ep=756}}
+
+During her explanation, Wanda revealed that Jack was searching for a Wano ninja known as Raizo. After Wanda finished with her recollection, Brook explained to his crew the reason why they should not mention samurai or the Wano Country. When Luffy blurted out the ninja's name, Nami, Usopp, and Brook swiftly beat him up. They then arrived at the duke's home where they were introduced to Sicilian, who expressed his gratitude to the crew. After entering the duke's home, they heard about a weapon Jack used against the Mink Tribe.{{Qref|chap=808|ep=757|ep2=760}}
+
+<div style="float: right">[[File:Audience with Inuarashi.png|thumb|210px|Luffy and the Straw Hats meet Inuarashi.]]</div>
+
+After hearing that the weapon was made by Caesar, Luffy became angry. Inuarashi then changed the topic of their conversation to how he once met Shanks. Luffy was about to talk more about him, but the duke suddenly fell asleep since dusk arrived.{{Qref|chap=809|ep=758|ep2=760}}
+
+After Wanda finished recalling the devastation caused by Jack and the Mink Tribe's salvation, Luffy promised to make Jack and Kaidou pay one day. Wanda expressed her doubt about Jack being dead, as she saw how powerful he was and how he fought. The Straw Hats then decided to visit Nekomamushi and the Guardians and they traveled to the Whale Forest with Wanda and Carrot. On the way, Nami and Brook began to explain to the rest of the group what happened when Big Mom's ship arrived at Zou two days before Luffy's group's arrival.{{Qref|chap=811|ep=761|ep2=762}} Specifically, they informed the rest of the crew of Big Mom's upcoming [[Tea Party]], which would host a political wedding between Sanji, the third son of the [[Vinsmoke Family]], and the 35th daughter of the [[Charlotte Family]], [[Charlotte Pudding|Pudding]]. They also explained that Sanji, after ensuring the safety of Nami, Brook and Chopper, chose to leave with the Big Mom Pirates in order to settle things with his family.{{Qref|chap=812|chap2=813|ep=763|ep2=764}}
+
+[[File:Journey to Nekomamushi.png|thumb|left|210px|The Straw Hats go off to see Nekomamushi.]]
+
+After hearing about the circumstances surrounding Sanji's departure, Luffy was initially excited at the prospect of having another crewmate. However, when Brook told him that they would become subordinate members of Big Mom's hierarchy if Sanji married her daughter, Luffy became displeased at the idea. Despite this, when Chopper explained the possibility of Sanji severing ties with them in order to avoid this exact scenario, Luffy became worried that Sanji might quit the Straw Hats, which he considered even worse than sailing under Big Mom. Luffy then decided to find Sanji, although his crew objected to confronting Big Mom without a plan. After arriving at the Whale Forest, Pedro then brought Luffy to Pekoms. When Luffy questioned him about the arranged marriage, Pekoms revealed that Sanji's father and Big Mom arranged the wedding to finalize an alliance between their families, and that the Vinsmoke Family is a family of killers.{{Qref|chap=814|ep=764|ep3=765}}
+
+[[File:Luffy Throttles Pekoms.png|thumb|210px|Luffy visits Pekoms and gets angry when the mink says Sanji will likely not return.]]
+
+Pekoms proceeded to tell them about a mysterious organization known as [[Germa 66]], commanded by the Vinsmokes and headed ultimately by Sanji's father. Luffy then stated that he did not care and told Pekoms that he wanted the Big Mom Pirates to be his underlings, not the other way around. Shocked and furious at this statement, Pekoms reminded Luffy of Big Mom's power and status. Once he calmed down, Pekoms explained the reason why Sanji could not refuse the invitation—if he did, he would receive the decapitated head of someone close to him. Luffy then asked him how the Big Mom Pirates knew so much about Sanji and Pekoms replied that it was because of the power that all [[Four Emperors]] hold. Pekoms went on to say that the marriage, instead of making the Straw Hats Big Mom's subordinates, would automatically result in Sanji leaving the Straw Hats and joining the Big Mom Pirates—a revelation to which Luffy did not take kindly. Pekoms said that he will return to the Big Mom Pirates once he recovered; Luffy then told Pekoms to also take him to the tea party to find Sanji, ignoring Pekoms' objections.
+
+As he ran outside, he found Zoro listening in on the earlier conversation. Luffy assumed that Zoro was also worried about Sanji, much to Zoro's annoyance. They then met Nekomamushi, who then gave them a warm greeting. Law arrived and his introduced his crew to Luffy. Law was then shocked to be informed that Sanji went to Big Mom. Luffy said that he will bring Sanji back and told him not to attack Kaidou until he returns. Law then explained that Kaidou might be pursuing them as they speak and Zou could be at risk. After the minks felt touched by Law's concerns, Nekomamushi decided to party with Luffy and his group.{{Qref|chap=815|ep=765|ep2=766}}
+
+====Revelations and a New Alliance====
+
+[[File:Raizo Is Safe.png|thumb|left|210px|Inuarashi and Nekomamushi reveal that Raizo is safe.]]
+
+The next morning, Luffy and his group heard a bell ringing and realized that Kin'emon and Kanjuro had arrived. They quickly rushed to find them, fearing what would happen if the Mink Tribe meets the samurai. The Straw Hats managed to intercept Kin'emon, Kanjuro, and Momonosuke just as they arrived at Kurau City and tried desperately to keep them hidden. However, as Nekomamushi and Inuarashi were fighting, Kin'emon and Kanjuro revealed themselves. Contrary to what the Straw Hats expected, the Mink Tribe welcomed the samurais and revealed that Raizo is safe. The Straw Hats were stunned to learn that the minks knew about Raizo all along and went to great lengths to keep him hidden despite the abuse they suffered.{{Qref|chap=816|ep=767}}
+
+After Momonosuke stopped Inuarashi and Nekomamushi from continuing their quarrel, Kin'emon revealed that Momonosuke was not his son but was actually the son of [[Kouzuki Oden]], which surprised Luffy as Momonosuke and Kin'emon looked alike. However, Luffy still did not took Momonosuke seriously. Inuarashi and Nekomamushi then took the Straw Hats, Law, and the samurais to Raizo, and Luffy and the other male pirates were excited to meet him, thinking he would be like a stereotypical ninja. When they met Raizo at a secret room inside the whale-shaped tree, Luffy and his crewmates were shocked by Raizo's appearance, but still begged him to perform various tricks. Raizo refused until the pirates started sulking, which caused him to use some of his ninja arts, and the pirates were immediately entranced.{{Qref|chap=817|ep=768|ep2=769}}
+
+Luffy, Usopp, and Chopper then accompanied Kin'emon, Kanjuro, and Raizo as they stood outside the Whale Tree, expressing their sorrows as they saw the state Zou was in after Jack's attack. When Robin deciphered the red [[Poneglyph]] hidden in the Whale Tree, Nekomamushi called them back in. Inuarashi then explained to the Straw Hats about the four Road Poneglyphs and they listened in anticipation as he revealed how they can lead to Laugh Tale. When Nekomamushi revealed that Kaidou and Big Mom each possessed one Road Poneglyph, Luffy became more eager to fight them. Usopp was delighted to hear that they can copy the information on the Poneglyphs using gyotaku, but Luffy was not interested in that approach, much to Usopp's chagrin. The Straw Hats were then surprised when Nekomamushi revealed that Momonosuke's ancestors created the Poneglyphs. However, the samurai explained that Momonosuke never inherited the knowledge of the Poneglyphs due to the execution of Lord Oden at the hands of Kaidou and the shogun of Wano. The Straw Hats also learned that Oden was part of Roger's crew and had been on Laugh Tale with him as well as the Beasts Pirates' objective in obtaining the secret that Oden knew.{{Qref|chap=818|ep=769|ep2=780}}
+
+The samurai explained Oden's will to open Wano Country to the world and they went on a journey to gather allies in order to fight Kaidou and the shogun of Wano. Kin'emon then requests Luffy's assistance, but Luffy declined, saying that Momonosuke should make the request himself. Momonosuke then declared his will to fight Kaidou and protect those dear to him. He bowed and humbly asked for Luffy's help. Seeing Momonosuke's resolve, Luffy accepted the request and formed an alliance with the samurai and the Mink Tribe.{{Qref|chap=819|ep=770|ep2=772}}
+
+[[File:Luffy and Momonosuke Hear Zunesha.png|thumb|210px|Luffy and Momonosuke hear Zunesha's voice.]]
+
+Right after leaving the secret room, Luffy learned that Inuarashi and Nekomamushi traveled with Oden and had been on the ships of both Whitebeard and Roger. He also learned that the remnants of the Whitebeard Pirates were defeated and then forced into hiding by the Blackbeard Pirates one year after the Summit War of Marineford. The alliance decided to split up to accomplish different tasks and meet up again at Wano. Nami, Chopper, and Brook chose to accompany Luffy in his mission to rescue Sanji. Robin asked Luffy to make a copy of the Poneglyph in Big Mom's possession. However, before they could start their operation, they felt Zou shaking and heard Zunesha crying.{{Qref|chap=820|ep=772|ep2=773}}
+
+As everything shook around them, Luffy heard Zunesha's voice. However, Luffy's own voice cannot reach it. After Momonosuke revealed that he can hear the elephant's voice as well, Luffy urged him to give the elephant a command, which was to drive Jack away. After Jack's fleet has been sunk, Luffy prepared to disembark Zou.{{Qref|chap=821|ep=773|ep2=774}}
+
+[[File:Sanji Retrieval Team Heads Out.png|thumb|left|210px|Luffy and the Sanji Retrieval Team prepare to depart Zou.]]
+
+He then went to check up on Pekoms and was shocked to see that the house he was resting in collapsed. He was relieved when Pekoms revealed that he used his Devil Fruit powers to save himself from further injury. Luffy then carried Pekoms on his back and departed from Zou with the Sanji Retrieval Team (which also included Pedro). Everyone, except the Straw Hat members left behind, were shocked when Luffy jumped off Zunesha with his party.{{Qref|chap=822|ep=776}}{{-}}
+
+====Journey to Whole Cake Island====
+
+[[File:Carrot Joins Sanji Retrieval Team.png|thumb|210px|Carrot convinces Luffy to let her join their team.]]
+
+As they sailed towards [[Whole Cake Island]] on the [[Thousand Sunny]], Luffy scolded [[Nami]], [[Tony Tony Chopper|Chopper]], and [[Brook]] for acting less energetic. Nami pointed out that they were still recovering from the shock of Luffy's stunt at [[Zou]]. The group on the Sunny were then surprised to see [[Carrot]] had snuck aboard the ship. After she begged them not to turn back, Luffy allowed her to come along. When the crew got hungry, Luffy, in Sanji's absence, insisted on preparing a meal himself after Nami was going to charge them money for the food.{{Qref|chap=823}}
+
+While cooking, Luffy and the rest of the Sanji retrieval team learned from a newspaper about the [[Blackbeard Pirates]]' attack on the Revolutionary Army's headquarters on [[Baltigo]]. Luffy was shocked to see what his [[Monkey D. Dragon|father]] looks like and also worried for [[Sabo]]'s life. [[Pedro]] assured Luffy that if the revolutionaries were defeated, it would have been mentioned in the newspaper. Luffy then realized that he forgot to turn off the stove, causing a fire. After passing through a storm, Luffy presented his dish, which his group did not enjoy in the least. Luffy then admitted that he used up all the food they had and his group found themselves in a food shortage crisis.{{Qref|chap=824}}
+
+===Whole Cake Island Arc===
+====Entering Totto Land====
+
+[[File:Luffy Gets Fish Poisoned.png|thumb|left|210px|Luffy gets severe poisoning after eating a fish's skin.]]
+
+A few days later, the group was famished from the lack of food and overheated as they passed through boiling waters. They were saved from starvation when Luffy managed to catch a gigantic fish. Luffy immediately started eating the fish and consumed the fish's toxic skin, which led to Luffy being incapacitated by food poisoning. After they entered Big Mom's waters, the group on the Sunny was approached by a ship belonging to [[Germa 66]].{{Qref|chap=825}}
+
+The Straw Hats were approached by two of Sanji's siblings, [[Vinsmoke Yonji]] and [[Vinsmoke Reiju]]. Reiju proceeded to suck the poison out of Luffy through his mouth, causing him to be revived almost instantly. Luffy thanked Reiju for saving him, as Reiju explained that the [[Vinsmoke Family]] had been searching for Sanji since he left them as a child. Luffy wanted Reiju to give Sanji back to the crew, but Reiju leaped back onto her ship, and she and Yonji sailed away.{{Qref|chap=826}}
+
+[[File:Luffy and Chopper Eat a Cafe.png|thumb|210px|Luffy and Chopper eat an entire café at Cacao Island.]]
+
+The group later docked at [[Cacao Island]], an island close to Whole Cake Island. After seeing buildings made of chocolate, Luffy and Chopper went ahead to explore the island. When they ate a café, a policeman confronted them and was about to arrest them. The owner of the café, [[Charlotte Pudding]], arrived and came to their defense, saying that they were hired to dismantle the café. After she saved Luffy and Chopper, the team accompanied her to her home where she offered them food. While conversing with her, Luffy accidentally revealed his name.{{Qref|chap=827}}
+
+The Sanji retrieval team was then shocked to learn that the woman they were conversing with was Sanji's betrothed, who in turn, was surprised to discover that the group was from the Straw Hat crew. After calming down, Luffy and the team listened as Pudding explained more about the Charlotte Family and her thoughts about Sanji. Luffy and the others was shocked to hear that Sanji turned her down. Pudding then showed them a secret route to Whole Cake Island and told them where to meet her while promising to bring Sanji to them. The Sanji retrieval team then left in a hurry when guards arrived for Pudding and quickly returned to the Thousand Sunny. Pekoms was nowhere to be seen and they found a message telling them to turn back. Luffy decided to continue forward, saying that things got interesting.{{Qref|chap=828}}
+
+[[File:Sanji Retrieval Team Battles a Centipede.png|thumb|left|210px|The Sanji retrieval team battles a giant centipede.]]
+
+After leaving Cacao Island, Luffy wanted to go rescue Pekoms, but Pedro dissuaded him, saying that the mink would be all right. The team sailed on Pudding's route and reached the next [[Jam Island|island]], but Nami decided to stay away from it. Luffy quickly steered the ship starboard, causing the helm to burst into flames, much to Nami's chagrin. Luffy later wanted to go into the kitchen to cook again, but Nami quickly stopped him. A giant aquatic centipede then attacked the Thousand Sunny, and the team began battling it.{{Qref|chap=829}}
+
+The team later battled a swarm of giant ants before getting trapped in a frozen sea of syrup as night fell. As they worked to unfreeze the sea, Pedro revealed that the giant ants had once eaten his own ship, and Luffy wondered what he did there in the past. Pedro then explained that he once traveled with Pekoms as a pirate and came to Totto Land searching for Poneglyphs, revealing that his journey met with defeat. However, Pedro was fine with coming back to help the Straw Hats. He told Luffy that since Inuarashi and Nekomamushi showed him the Road Poneglyph on Zou, they must believe that he can follow in [[Gol D. Roger]]'s footsteps, as he was the only other stranger to see it, and so they needed to acquire Big Mom's Road Poneglyph. He then offered to sneak in and steal it while the others rescue Sanji. Luffy agreed to this proposal as the ants returned. The next day, the team reached Whole Cake Island.{{Qref|chap=830|page=11-17|ep=790}}
+
+====The Perils of the Seducing Woods====
+
+[[File:Luffy Meets His Reflection.png|thumb|210px|Luffy confronts his physical reflection.]]
+
+After docking at the southwestern coast of Whole Cake Island, the team split into two groups, with Pedro and Brook departing to find Big Mom's Road Poneglyph. Right after Luffy's group disembarked on the island, Luffy saw what appeared to be Sanji in the nearby forest. Luffy, Chopper, and Carrot ran after him with Nami following them, but he somehow disappeared. Luffy, Chopper, and Carrot entered the woods to continue searching, although they were often distracted by the sweet environment. The team was nearly eaten by a talking crocodile, and Nami attempted to get everyone to turn back, but Luffy intently pressed on the search for Sanji. They also encountered a man with a gigantic head whose body is buried into the ground. Suddenly, Luffy encountered Big Mom's 8th daughter, [[Brûlée]], who was disguised as another version of himself and talked and acted simultaneously with him just like [[Mira Mira no Mi|a mirror reflection]]. The two got angry at each other and started fighting, matching each other's blows exactly, and they told the others to go ahead and look for Sanji.{{Qref|chap=831}}
+
+Nami, Chopper, and Carrot returned to where Luffy was still fighting Brûlée as they were being chased by [[Randolph]]. Brûlée went with them while Luffy ran in the opposite direction. Luffy attempted to tell them that the real him was not with them, but Brûlée stifled him before he could say anything.{{Qref|chap=832}}
+
+As night fell over Whole Cake Island, Luffy gathered multiple, bound fake versions of Sanji, Pudding, Nami, Chopper and Carrot into the center of a clearing in the Seducing Woods. Luffy exclaimed that he found all of them, but that they were all acting strangely. He then asked whose idea it was to begin multiplying.{{Qref|chap=834}} Luffy then discovered the real Nami among the fakes and quickly untied her. Luffy realized they did not multiply on purpose as she berated his logic and explained to Luffy about what happened during the encounter with Brûlée. While interrogating a buried man named [[Pound]], they learned about a toll that the citizens of Totto Land must pay to Big Mom as well as the Emperor's Devil Fruit power, which enables her to give life to many things. The man then revealed that he was one of Big Mom's husbands, who was discarded after having two daughters. Big Mom's tenth son, [[Charlotte Cracker]], appeared and confronted the group.{{Qref|chap=835}}
+
+[[File:Luffy Fights Cracker.png|thumb|left|210px|Luffy saves Pound from Cracker.]]
+
+As Luffy and Nami confronted Cracker, they were suddenly ambushed by [[Randolph]] again, but Cracker knocked him over in anger. Luffy and Nami watched as Cracker argued with Brûlée and the guards of the Seducing Woods. Brûlée showed a captured Carrot and Chopper trapped in her mirror before shattering the mirror into pieces. Luffy was worried but Chopper revealed that he and Carrot remained unharmed. When Cracker tried to kill Pound, Luffy blocked his sword. He then kicked Cracker's arm, forcing him to free Pound. Luffy battled Cracker, but was sent flying into a tree homie, and he got up and prepared to give his all against Cracker.{{Qref|chap=836}}
+
+Nami asked to Luffy to retreat, but he refused and tried to attack Cracker with Elephant Gun. After blocking the attack, Cracker easily overwhelmed Luffy with his swordsmanship, Devil Fruit abilities, and Busoshoku Haki, sending Luffy flying through several tree homies despite Luffy using Haki himself. Luffy returned and attacked Cracker with Hawk Gatling, but Cracker countered it with his Haki-imbued shields, which Luffy stated were harder than any Busoshoku Haki he had faced before. Cracker slammed Luffy into the ground and drew closer to him, berating Luffy for wanting to take Sanji away from a royal lifestyle. Luffy grew angry at Cracker for claiming that Sanji would tell him and the other Straw Hats that he never wanted to see them again. Luffy then activated Gear 4 and managed to send Cracker flying with Kong Gun.{{Qref|chap=837}}
+
+While Cracker was on the ground, Luffy used another Kong Gun and shattered Cracker's biscuit armor. The real Cracker emerged from it, cutting Luffy's right arm with Pretzel. Cracker revealed his true Devil Fruit abilities to Luffy as he created multiple biscuit soldiers, which Luffy attacked. However, Cracker had them advance as he leaped out from behind them to attack Luffy, barely missing his head.{{Qref|chap=838}}
+
+[[File:Luffy Defeats Cracker.png|thumb|210px|Luffy defeats Cracker.]]
+
+The battle lasted for eleven hours, and Luffy adopted a strategy of fighting, running, and eating Cracker's biscuit soldiers. This made Cracker increasingly exasperated, and Luffy was determined to chip away Cracker's stamina and go to Sanji.{{Qref|chap=841}}
+
+Cracker soon produced more biscuit soldiers and sent them charging at Luffy. Nami used Rain Spark and softened the soldiers, which Luffy then devoured. As Luffy was reaching his limit, he used another variation form of Gear 4 called Tankman: Full Version. When Cracker tried to pierce Luffy with his sword, Luffy sucked Cracker into his body and sent him flying into Sweet City.{{Qref|chap=842}}{{-}}
+
+====Sanji's Rejection and Big Mom's Retaliation====
+
+[[File:Luffy Refusing to Fight Back Against Sanji.png|thumb|left|200px|Luffy refusing to fight Sanji.]]
+
+After Cracker's defeat, Luffy laid on the ground, exhausted from the battle. He then rested on top of King Baum's head alongside Nami as they traveled to Big Mom's castle. On the way, Luffy returned to his normal size and they encountered the Vinsmoke carriage and saw Sanji again. Excited, Luffy leaped onto the carriage and asked Sanji to return with him. In response, Sanji kicked Luffy off the carriage and told him to leave. Luffy refused to listen, so Sanji volunteered to handle Luffy himself.{{Qref|chap=843}} As Sanji approached Luffy, he further insulted the latter before kicking him in the face. Luffy withstood the attack and remained on his feet. Sanji continued the confrontation by repeatedly kicking Luffy until he finally collapsed (and lost a tooth). After Sanji returned to his family's carriage, Luffy got back on his feet and yelled to Sanji, saying that he knew that Sanji never meant what he said. Luffy declared that he would wait for Sanji and would gladly starve to death if he does not return. Luffy went on saying that he would not eat any food unless it is made by Sanji's hands.{{Qref|chap=844}}
+
+[[File:Big Mom's Army Defeats Luffy.png|thumb|210px|Luffy is defeated by Counter and Cadenza.]]
+
+After the Vinsmoke Family left, Luffy and Nami soon saw the weather changing into a massive storm as an army marched towards their location. Luffy refused to run and hide, so he fought the army head on.{{Qref|chap=845}} As the battle raged on, Luffy managed to defeat most of the army before he was overwhelmed by [[Charlotte Opera]]'s cream, which scalded his skin, and he raced to attack Opera. However, [[Charlotte Mont-d'Or]] put Luffy into the setting of one of his books, preventing Luffy from seeing the real world. This prevented Luffy from seeing two Big Mom Pirates members, [[Charlotte Counter]] and [[Charlotte Cadenza]], from rushing at him, and he was punched from the front and the back with Cream Punch, sending him crashing down. The Big Mom Pirates headed back to Sweet City, and one of them tried to carry Luffy. Luffy tried holding onto the ground in order to stay at his spot, but Counter stomped on his head.{{Qref|chap=846}}
+
+[[File:Luffy and Nami Are Held Captive.png|thumb|left|210px|Luffy and Nami held captive by Big Mom.]]
+
+Luffy and Nami were then imprisoned inside a book. Inside the prisoner library, Big Mom spoke to them through a Den Den Mushi. Luffy shouted at her to let him go. Big Mom laughed at his liveliness and said that she thought he had broken his promise to battle her due to not bringing his entire crew. Luffy replied that he still intended to fulfill that promise, but he was only there to get Sanji back, though he would still fight her if she showed up. Big Mom replied by telling Luffy that he was nothing compared to her and that she could have him killed without even needing to show up. Big Mom said that if they gave up on rescuing Sanji, she would free them once the wedding was complete and warned them that if they interfered with her plans, she would give them hell. Big Mom recalled the time Luffy gave her treasure including the legendary box known as the Tamatebako and explained that she had taken a liking to the box that she would forgive the Fish-Man Island incident altogether and planned to open the Tamatebako during the wedding ceremony. Luffy shouted at her to be quiet, saying the wedding would not happen and asked to speak to his friend, Pudding. Big Mom laughed incredulously about the Straw Hats being friends with the bride-to-be and then inquired about Lola. Big Mom recounted on how Lola running away from an important political marriage ruined her plans to become Pirate King. Luffy replied that Lola did not need to be a pawn in Big Mom's rise to power and challenged the Emperor again, saying he would get Sanji back and defeat her in the end.{{Qref|chap=847}}
+
+Sometime after the conversation, Pudding came to the Prisoner Library and requested to talk to Luffy and Nami, and she entered their cell via an opening created by a bookmark. Pudding apologized for the harm her siblings had inflicted on them, and apologized for not meeting them on the coast like they agreed. She revealed that Sanji had proposed to her, but stated that she knew he did not truly want to marry her and so she would not marry him. She then whispered to Luffy and Nami, saying with a sinister expression that she would kill Sanji during the wedding ceremony and that Luffy and Nami would not leave alive. Pudding then left their cell with tears while telling them goodbye and insulting them.{{Qref|chap=848}}
+
+[[File:Luffy Races Through Whole Cake Chateau.png|thumb|210px|Luffy chokes Counter while racing throughout the Whole Cake Chateau to get to Sanji.]]
+
+Shocked and angry at what Pudding said, Luffy then struggled to break free, determined not to die, even if it meant tearing off his arms.{{Qref|chap=850}} Before Luffy could further injure himself, Jinbe arrived at the Prisoner Library and took down Opera with a single punch. Luffy and Nami were overjoyed as Jinbe prepared to free them.{{Qref|chap=851}} Jinbe then released Luffy and Nami by burning the book they were imprisoned in. Luffy then collapsed from hunger but quickly got back up as Big Mom's soldiers were charging into the Prisoner Library. Luffy dashed out of the Prisoner Library and went on a rampage throughout the castle, searching for Sanji. During the rampage, Luffy strangled Counter while demanding Sanji's whereabouts.{{Qref|chap=852}}
+
+Luffy continued to run through the hallways, calling for Sanji, until Reiju grabbed him and hid him in the infirmary. Reiju then informed him that Sanji was already aware of Pudding's deception. She also mentioned that she tried to convince Sanji to leave, but he was worried about the chefs at the Baratie and the Straw Hats. Relieved that Sanji was not being deceived, Luffy jumped out of the castle and headed back to the place where he promised to wait for Sanji.{{Qref|chap=853}} Dazed and fatigued, Luffy began his journey through Sweet City in the rain.{{Qref|chap=854}} He later made it back to the promised place, where he fell asleep while he waited patiently for Sanji.{{Qref|chap=855}}
+
+[[File:Luffy Punches Sanji.png|thumb|left|210px|Luffy punches Sanji to stop him from lying about his obstacles to rejoining the crew.]]
+
+Luffy woke up when he smelled the bento box Sanji was carrying. Sanji gave the box to him and Luffy happily ate the food. When Luffy once again asked Sanji to leave with him, Sanji explained his reasons why he could not. Luffy responded by punching Sanji and demanded him to tell the truth. Sanji broke down in tears, saying that he wanted to return to the crew but did not want to leave his family to die. Luffy then gave Sanji his support, saying that they would ruin the wedding together.{{Qref|chap=856}}
+
+Luffy and Sanji were later contacted by Chopper's group through a mirror shard. After Luffy explained his intent to ruin the wedding ceremony, Jinbe explained to Luffy more about Bege, such as his backstory and him plotting against Big Mom. Jinbe proposed to Luffy about forming an alliance with Bege, and Luffy agreed to meet him.{{Qref|chap=857}}
+
+====The Wedding====
+
+[[File:Straw Hat Pirates Meet Fire Tank Pirates.png|thumb|210px|The Sanji Retrieval Team meets with the Fire Tank Pirates.]]
+
+Once at Bege's hideout, Luffy and Sanji were greeted by Vito, who asked them to take a bath since his boss does not like to meet with dirty people. After Luffy and Brook had their bath, they raided Bege's fridge for milk (with Luffy regaining his lost tooth and Brook's cracked skull healing). Luffy and his team soon met Bege and the negotiations were hectic with Luffy spotting Caesar Clown among Bege's crew and wanting to attack Bege for hurting Pekoms. The brawl was broken up when Jinbe pointed out that the group share a common enemy in Big Mom. Reluctantly, Luffy asked Bege about his plan and the latter responded that he already had a perfect one prepared.{{Qref|chap=858}}
+
+Bege proceeded to explain the details, including informing Luffy that he would be the bait to distract Big Mom's subordinates once Bege triggers one of her tantrums. Despite Nami's and [[Charlotte Chiffon|Chiffon]]'s protests, Luffy agreed excitedly, stating that he already had a plan for how to make his entrance at the ceremony. Luffy, Bege, and Caesar then agreed that their alliance would come to an end once Big Mom was dead and all groups had made their escape. As the meeting adjourned, Luffy asked Bege for a favor.{{Qref|chap=||chapter = 859|text = The new alliance concludes its discussions on the plot to assassinate Big Mom.}} Luffy requested Bege to place a mirror inside the wedding cake so he could enter the venue from there, taking everyone by surprise. Planning to take advantage of Brûlée's power, Luffy rounded up a bunch of animals from the Seducing Woods and had her turn them into Luffy duplicates.{{Qref|chap=863}}
+
+[[File:Luffy and Duplicates Emerge from Wedding Cake.png|thumb|left|210px|Luffy and his animal duplicates burst out of the wedding cake.]]
+
+Bege took the alliance members to the tea party in his castle, and Luffy slept for the first time in three days.{{Qref|chap=861}} After the wedding ceremony began, Jinbe had difficulty waking Luffy up but eventually managed to do so with food. The team then prepared to charge into the venue once they heard the signal. Right after Katakuri's attempted assassination on Sanji failed, multiple duplicates of Luffy emerged from the wedding cake.{{Qref|chap=862}}
+
+As chaos erupted at the wedding venue, Luffy identified himself when Big Mom called out to him. Luffy attempted to attack the photo of Carmel, but his attempt was thwarted by Katakuri, who immobilized Luffy with his Devil Fruit power. Jinbe came to Luffy's aid and freed him using black tea. When Jinbe officially declared to Big Mom that he was leaving the Big Mom Pirates and joining the Straw Hats, Luffy was worried that Big Mom would take away Jinbe's lifespan. However, Luffy was delighted to see that Big Mom's power had no effect on him due to having no fear towards Big Mom and cheered when he toasted a cup of sake to signify his departure from her.{{Qref|chap=863}}
+
+[[File:Luffy Shows the Broken Portrait.png|thumb|210px|Luffy shows Big Mom the broken portrait of Mother Carmel.]]
+
+Big Mom then tried to attack Luffy and Jinbe with Prometheus, but the two evaded the attack. Luffy was then overjoyed to see Brook destroying the picture of Carmel. However, Big Mom did not start screaming after three seconds like they planned. During the ensuing conflict, Bege pretended to pin Luffy down to avoid suspicion. When Brook was decapitated, his head rolled towards them, but he still survived. Brook then whispered to Luffy that Big Mom was in a state of confusion on what to be mad about and their best chance was to show her the broken photo of Carmel again. Bege questioned if there is any point with the plan, but when they were approached by Katakuri, Bege noticed that he foresaw a horrific future and became confident again that the plan will work out. While Bege confronted Katakuri, Luffy grabbed Carmel's broken portrait, preparing to show it to Big Mom.{{Qref|chap=864}} Katakuri then went after Luffy and pinned him down with his Devil Fruit powers. However, Luffy was still able to stretch his arms and showed Carmel's broken portrait to Big Mom, causing her to start her strange scream. Luffy then shielded his ears from Big Mom's voice.{{Qref|chap=865}}
+
+After putting on earplugs, Luffy watched as Bege, Vito, and Gotti fired their KX Launchers at Big Mom. However, Big Mom's scream detonated the rockets before they could reach her, shocking Luffy and his allies. With the assassination attempt a failure, Caesar flew into the venue with the escape mirror and Bege signaled Luffy to retreat. Before they could [[Mirro-World|escape into the mirror]], Big Mom's scream shattered it, leaving them trapped in the venue. Luffy then watched in amazement as Bege transformed into a giant fortress.{{Qref|chap=868}}
+
+Luffy then marveled at the fortress as he and his group fled to it. After all the alliance members and the Vinsmoke Family successfully retreated inside, Bege went on to explain to his allies about the dire situation they were in. Luffy then showed concern when Bege bled as his fortress sustained damage from Big Mom's attacks.{{Qref|chap=869}} He tried rushing out to attack Big Mom, but was held back by his crew. They were intent on not fighting Big Mom, and Bege hatched an escape plan. The Vinsmoke Family went out to cover for the alliance, but when Reiju was overwhelmed, Luffy and Sanji went out and blocked Big Mom's attack, with Luffy doing so against Sanji's orders.{{Qref|chap=870}}
+
+[[File:Big Mom Blocks Gear 4.png|thumb|left|210px|Luffy clashes with Big Mom.]]
+
+As Sanji dragged Luffy away, Big Mom taunted Luffy by using his previous threats to her before calling him spineless. In response, Luffy activated Gear 4 and tried to strike Big Mom, who easily blocked his attack. Before falling back, Luffy told Big Mom that he would be coming after her after Kaidou is defeated. Before they could escape, Luffy, Sanji, and the Vinsmoke Family were subdued by the Charlotte Family. Big Mom was going to execute them, but the Tamatebako dropped to the base of the Whole Cake Chateau and exploded, causing the castle to topple over.{{Qref|chap=871}}{{-}}
+
+====Fleeing From Big Mom====
+
+[[File:Big Mom Attacks Straw Hat Group.png|thumb|210px|Big Mom attacks the Straw Hats as they try to escape.]]
+
+As the castle collapsed, Luffy's group, Bege's crew, and the Vinsmoke Family got away. The Sanji Retrieval Team and the Fire Tank Pirates rendezvous at the northwest part of Whole Cake Island, where Luffy and Bege agreed to go their separate ways.{{Qref|chap=872}} After Brook and Chopper separated from the group to retrieve the Shark Submerge, the rest head for the Thousand Sunny. As they approached the Seducing Woods, Luffy was surprised to see King Baum alive and stitched back together. Nami then revealed that she still possessed part of Big Mom's Vivre Card and used it to control King Baum again, forcing him to transport the fleeing team. However, before they reached the Seducing Woods, a crazed Big Mom (while riding on Zeus) caught up to them.{{Qref|chap=873}}
+
+[[File:Luffy Attacks Prometheus.png|thumb|left|210px|Luffy unsuccessfully attacks Prometheus.]]
+
+Using Napoleon in its sword form, Big Mom unleashed an air slash that cut off a part of King Baum. Luffy noted that the attack was similar to Dorry and Brogy's combination attack. As Big Mom prepared to attack again, Luffy prepared to fight, but Nami interrupted him and diverted Zeus' attention by using thunderclouds, causing the cloud homie to veer off-course and drop Big Mom. When Luffy and his group reached the Seducing Woods, Big Mom ordered the tree homies to stop the Straw Hats, but King Baum charged through them. Luffy and his group were later forced to jump off King Baum when Prometheus attacked and burned King Baum for his betrayal.{{Qref|chap=874}} As the Sanji Retrieval Team continued with their escape, Jinbe explained about Big Mom's eating disorder to Luffy as she resumed her pursuit. Prometheus caught up to them and Luffy attacked the fire homie to avenge King Baum, but he was unable to harm the living flames with Haki punches. After Jinbe stunned Prometheus with blasts of water, several Big Mom Pirates caught up to their captain and clashed with the Sanji Retrieval Team. Along the way, Luffy stopped Carrot from separating from the group. The team pulled out of the conflict quickly, knowing they could not split up there. When Zeus ate one of Nami's weather eggs and grew massively and became stormy, Nami took the opportunity to summon a massive lightning bolt that struck the Big Mom Pirates pursuing them.{{Qref|chap=875}}
+
+Nami's attack left Big Mom laying at the bottom of a crater. To the Straw Hats' shock, Big Mom was barely affected and continued to move. She ate through the ground as she moved back up, and the team started running again. They were then approached by Pudding and Chiffon. Luffy was angry to see Pudding again as she tried to tell Sanji about their mission to make a cake. To Luffy's confusion, her mood swings as she went from being in love with Sanji to wanting to kill him and back. Chiffon took the lead as she petitioned for Sanji to help them make a cake to satiate Big Mom's eating disorder, and Sanji readily agreed to assist them. Big Mom then got back on her feet and unleashed another devastating air slash, and the two groups parted ways with Sanji heading to Cacao Island with Pudding and Chiffon while Luffy and his group continued fleeing to the Thousand Sunny. Pudding used her Devil Fruit powers to send memories flooding into the souls in the homies, allowing the Straw Hats to make it to the coast without trouble.{{Qref|chap=876}}
+
+[[File:Luffy vs. Katakuri.png|thumb|210px|Luffy clashes with Katakuri to get the Sunny back.]]
+
+The Sanji Retrieval Team made it back to the ship, but they got into a conflict with Perospero and Katakuri, who were onboard. Luffy was also surprised to find Chopper and Brook trapped in candy. Perospero sent a spiked candy iron maiden at the Straw Hats, but Luffy destroyed it with a Red Hawk. Upon reaching the ship, Luffy clashed against Katakuri. After Perospero trapped the ship in candy, Luffy watched in shock as Pedro attempted to take out Perospero with a massive suicidal explosion.{{Qref|chap=877}}
+
+As the team completed preparations for their getaway, Katakuri once again made his move and subdued Carrot when she tried to attack him. Luffy then grabbed Katakuri and dragged him into the Mirro-World. Once there, Luffy smashed the mirror to the Sunny and prepared to continue his fight with the Sweet Commander.{{Qref|chap=878}}
+
+====A Fierce Clash====
+
+[[File:Katakuri vs. Luffy Elephant Gun.png|thumb|left|210px|Luffy and Katakuri clash inside the Mirro-World.]]
+
+With the Sunny fleeing from Big Mom and her fleet, Luffy and Katakuri commenced their fight, with Katakuri claiming that he had outmatched Luffy in both speed and power. After Luffy attacked with Hawk Gatling, Katakuri countered with several mochi tendrils hardened into fists, before proceeding to warn Luffy that anything Luffy can do, he could do better. Luffy then asserted that rubber would never lose to mochi, but his subsequent Hawk Stamp was dodged and Katakuri kicked him into a wall. Luffy then tried using Elephant Gun, but Katakuri created an even larger fist with mochi and pushed Luffy into the wall with tremendous power, overwhelming Luffy.{{Qref|chap=879}}
+
+With Luffy lying on the floor, Katakuri then ordered Brûlée to find another mirror on the Sunny and use the portal to set the Sunny on fire. After [[Charlotte Joscarpone|Joscarpone]] and [[Charlotte Mascarpone|Mascarpone]] arrived with a mirror, Luffy rushed towards them, but Katakuri stopped him and reminded him of his promise to fight one-on-one. Katakuri then resumed attacking Luffy, warning him not to lay a hand on his younger brothers and sisters. Luffy successfully dodged the attacks and made contact with Nami through a mirror shard, ordering her to break all the mirrors on the Sunny so that he can focus solely on fighting Katakuri.{{Qref|chap=880|ep=}}
+
+Luffy showed concern for his group when he heard that Big Mom sunk the Thousand Sunny. While the Big Mom Pirates were puzzled by the mirrors leading to the Sunny breaking one by one, Luffy was contacted by his team after they survived Big Mom's assault. As Luffy distanced himself from the nearby Big Mom Pirates, his group told him to find a mirror connecting to Cacao Island so they could meet him there. Luffy was then further assaulted by Katakuri and Luffy covered his mouth to prevent his team from knowing that he was sustaining injuries. In a brief moment, Luffy told his team to hurry on to Cacao Island. As Katakuri prepared to kill him, Luffy declared that he did not plan on dying.{{Qref|chap=881}}
+
+As Luffy continued to struggle against Katakuri, Brûlée started bragging about Katakuri's legendary strength. Luffy then tried to punch her, but Katakuri grabbed his fist and slammed him into a wall. After pondering on how he should maim Luffy, Katakuri then began to attack with his trident Mogura. In the midst of this, Katakuri noted on how Luffy dodged his strikes more so than anyone and revealed his awakened powers to trap the Straw Hat captain. As Luffy was restrained, he prepared to resort to using Gear 4.{{Qref|chap=882}}
+
+[[File:Luffy Sees Katakuri Eating.png|thumb|210px|Luffy intrudes on Katakuri's snack time.]]
+
+Before Luffy could activate his Gear 4, Katakuri prevented him from activating it by engulfing him with mochi. Growing tired of their battle making his snack time late, Katakuri turned much of the surrounding Mirro-World into mochi and piled it onto Luffy in order to suffocate him. While Katakuri was feasting on some snacks, Luffy escaped by eating through the mochi and located Katakuri inside a nearby mochi house using his Kenbunshoku Haki. He then broke into his house and saw Katakuri in the state of eating. This made Katakuri furious, and he quickly dispatched his chefs before attacking Luffy, overwhelming him with strong Busoshoku Haki. However, Luffy managed to land a kick on Katakuri's jaw, and Katakuri was incredulous when Luffy stated he had figured out his weakness. Luffy then activated Gear 4 and struck Katakuri with Kong Gun, which Katakuri blocked.{{Qref|chap=883}} Luffy gained the upper hand against Katakuri, landing several Gear 4 attacks on him. However, once Katakuri regained his composure, he resumed dodging Luffy's attacks and landed a powerful strike on Luffy, knocking him back.{{Qref|chap=884}}
+
+With Luffy losing the advantage, Katakuri went on the offensive. When Katakuri mentioned that Luffy would deflate, Luffy realized that his Gear 4 would wear out soon and retreated. His Gear 4 wore out as he was fleeing with Katakuri chasing after him. Once he came across Brûlée, he grabbed her and escaped the Mirro-World before Katakuri could catch him. Luffy and Brûlée then arrived at Nuts Island and found Big Mom rampaging there. After he was spotted by Big Mom, Luffy ran away while still carrying Brûlée. Perospero blocked Luffy's path with a Candy Wall and Luffy tried to destroy it with a Gigant Pistol, which had no effect. He then dodged an attack from Amande, jumped over the Candy Wall, and continued running with Big Mom pursuing him.{{Qref|chap=885}}
+
+Luffy then escaped from Big Mom and traveled from island to island through the Mirro-World. While hiding inside a building with the captured Brûlée, Luffy wondered on how to defeat Katakuri. He then remembered about Rayleigh's lessons and expressed an interest in seeing into the future before declaring that he would surpass Katakuri.{{Qref|chap=886}} Eventually, Luffy confronted Katakuri again, clashing with him once more.{{Qref|chap=888}}
+
+Though Katakuri pummeled him many times, Luffy kept getting back up. Luffy then calmed his mind and remembered what Rayleigh told him. He began to see into the future when he attempted to counter against a giant mochi fist. Katakuri tried to deter Luffy from continuing the battle, but Luffy refused to give up, saying that his friends were believing in him.{{Qref|chap=891}} Knowing that Luffy's Kenbunshoku Haki was improving dramatically, Katakuri tried to end the battle quickly. Just as Luffy was about to attempt to dodge his opponent's next attack, a projectile pierced his thigh, breaking his balance, allowing Katakuri the opportunity to deal a devastating blow to him.{{Qref|chap=892}}
+
+[[File:Luffy and Katakuri's Final Clash.png|thumb|left|210px|Luffy and Katakuri meet in a final clash.]]
+
+Luffy briefly cried out in pain before Katakuri kicked him into a wall. He then tried to strike Luffy again his mochi spear, but Luffy dodged it. Finally, Katakuri unleashed a barrage of mochi fists, pummeling Luffy into the floor. While lying down, Luffy thought back to his training with Rayleigh and got back on his feet. Flampe tried to shoot Luffy with her Silent Blowgun, but he dodged the shot. After Katakuri injured himself and revealed his face to Flampe while berating her for her interference, both Luffy and Katakuri unleashed a blast of Haoshoku Haki, knocking out Flampe and her subordinates. With no one meddling in their fight, Luffy resumed his battle with Katakuri.{{Qref|chap=893}} They continued to trade blows with each other and as they were getting worn out from the battle, Luffy activated another variation of Gear 4: Snakeman.{{Qref|chap=894}} With his increased speed and ability to home in on his target, Luffy was able to land more hits on Katakuri. However, Katakuri countered with his spiked mochi attacks. After trading more blows with each other, both fighters claimed that they would end the battle before engaging in a massive clash.{{Qref|chap=895}}
+
+[[File:Luffy Defeats Katakuri.png|thumb|210px|Luffy victorious over Katakuri.]]
+
+After the clash, Luffy's Gear 4 wore off and he fell into the hole created by the impact. As Luffy later climbed out of the hole, Katakuri stood and asked Luffy if he would return to defeat Big Mom. Luffy replied that he would and Katakuri collapsed and fell unconscious. With Katakuri defeated, Luffy covered his fanged mouth with his extra hat before walking away. Pekoms, while in disguise, then approached him with the captured Brûlée and told Luffy that he planned to help him escape to honor Pedro's sacrifice.{{Qref|chap=896}}{{-}}
+
+====Final Push to Freedom====
+
+[[File:Sanji Saves Luffy from Raisin.png|thumb|left|210px|Sanji rescues Luffy on Cacao Island.]]
+
+While traveling to the mirror leading to Cacao Island, Pekoms explained to Luffy about the Sulong form and his plan to help Luffy escape. While exiting the Mirro-World, Pekoms sandwiched Luffy between himself and Brûlée to hide the Straw Hat. Pekoms transformed but he was viciously attacked, causing Luffy to be exposed. Sanji then grabbed Luffy and attempted to escape through the air, but they were smashed into the ground by [[Charlotte Yuen]]. Luffy and Sanji were cornered, but they were saved by the arrival of Germa 66.{{Qref|chap=897}}
+
+As Sanji's siblings shielded them from bullets, Sanji was told to escape with Luffy, who lost consciousness. After Sanji kicked through several of the Big Mom Pirates, Brûlée revealed to them of Katakuri's defeat at Luffy's hands, causing them to become furious. In response, an enraged Oven attempted to attack Sanji and Luffy, but Ichiji repelled Oven as Sanji and Luffy fled into the air. Yuen tried to attack Sanji once more but Yonji interfered. Sanji was then shot at by several snipers, and one of them fired a missile. Niji grabbed Sanji before he was caught in the explosion and while holding onto Sanji and Luffy, Niji traveled at a high speed and took down several pirates with his sword. Niji then threw Sanji and Luffy toward the Thousand Sunny, sending them flying over the Big Mom Pirates' fleet. As the group on the Sunny sailed past the port, Sanji told his captain that their ship was within sight.{{Qref|chap=898}}
+
+[[File:Luffy Tells Jinbe to Return.png|thumb|210px|Luffy tells Jinbe to return as his new crewmate takes on the Big Mom Pirates.]]
+
+Luffy and Sanji returned to the Sunny and Chopper quickly tended to Luffy's injuries. The group was then besieged by Smoothie's fleet, but Judge came to their rescue. As the Sunny passed by Judge's castle, Judge asked Luffy why he risked his life to rescue Sanji. Instead of answering his question, Luffy thanked him. The Sunny group later saw enemy ships approaching them from the front and when the situation grew more dire, they were surprised when Wadatsumi appeared and attacked the enemy.{{Qref|chap=899}} The Sun Pirates cleared a path for the Sunny. Luffy thanked them and Aladine asked Luffy to take care of Jinbe. However, despite their efforts, the Sunny was intercepted and attacked by the Queen Mama Chanter.{{Qref|chap=900}} Wadatsumi saved the Sunny by switching it with the Sun Pirates' ship and hid the Sunny in his mouth. Wadatsumi tried swimming away, but Oven attacked him with heat waves, forcing him to spit out the Sunny. As the Sun Pirates held back the Big Mom Pirates, Jinbe decided to stay behind to help them. Luffy consented to Jinbe's decision but reminded him that as an official member of the Straw Hats, Jinbe must survive and meet up with the rest of the crew at Wano. After Jinbe joined his former crew in battle, the Sunny group sailed far away from Cacao Island.{{Qref|chap=901}}
+
+With the Big Mom Pirates unable to pursue, the Sunny group successfully escaped Totto Land. After some rest, Sanji cooked a meal for them.{{Qref|chap=902}}
+
+===Levely Arc===
+
+[[File:Straw Hats React to Bounty.png|thumb|left|210px|Luffy realizes his bounty jumped up by a billion berries.]]
+
+After Sanji realized that he received a raid suit from Niji during the escape from Cacao Island, Luffy and Chopper begged him not to throw it away. Carrot received a newspaper and the group read it. Luffy became depressed when he misread his new bounty as {{B}}150,000,000. Brook later took a closer look at the poster and told Luffy that he misread the amount. The group was then shocked to hear that Luffy's bounty actually increased to {{B}}1,500,000,000.{{Qref|chap=903|ep=878|ep2=879}}
+
+==References==
+{{References}}
+{{Monkey D. Luffy Tabs Bottom}}
+[[es:Monkey D. Luffy/Historia/Zou y Whole Cake Island]]
+[[Category:Character Subpages]]
+One Piece Wiki
+Explore
+World
+Media
+Community
+Help
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+
+Advertisement
+
+Sign In
+Register
+One Piece Wiki
+One Piece Wiki
+7,352
+pages
+Explore
+World
+Media
+Community
+Help
+
+
+English
+Monkey D. Luffy/History/Wano
+< Monkey D. Luffy‎ | History
+Sign in to edit
+Introduction
+Gallery
+Personality
+Relationships
+Abilities and Powers
+History
+East Blue
+Paradise
+Summit War
+New World
+Whole Cake
+Wano
+Final
+Non-Canon
+Misc.
+Featured Article	Ahoy! This here is the 1st Featured Article.
+"Monkey D. Luffy" has been featured, meaning it was chosen as an article of interest.
+Monkey D. Luffy
+Anime post-timeskip
+Anime pre-timeskip
+Manga post-timeskip
+Manga pre-timeskip
+Anime post-timeskip
+Statistics
+Japanese Name:
+モンキー・Dディー・ルフィ
+Romanized Name:
+Monkī Dī Rufi
+Official English Name:
+Monkey D. Luffy
+Debut:
+Chapter 1;[1] Episode 1[2]
+Affiliations:
+Straw Hat Pirates;
+Straw Hat Grand Fleet;
+Four Emperors;
+Clan of D.;
+Dadan Family (former);
+Baratie (temporary, former);[3]
+Impel Down (former);
+Ninja-Pirate-Mink-Samurai Alliance (disbanded)
+Occupations:
+Pirate Captain;[2] Emperor;[4] Senior Captain of the Grand Fleet; Prisoner (former); Chore Boy (temporary, former);[3] Bandit (former)
+Origin:
+East Blue (Goa Kingdom)[1]
+Residence:
+Foosha Village (former);
+Mt. Colubo (former);
+Rusukaina (former)
+Alias:
+Lucy (ルーシー, Rūshī?)[5]
+Luffy-tarou[6] (ルフィ太郎, Rufitarō?, English versions: "Luffytaro")[7]
+Luffy-no-Umi (ルフィの海, Rufinoumi?)[8]
+Joy Boy (ジョイボーイ, Joi Bōi?)[9]
+Epithet:
+Straw Hat Luffy (麦わらのルフィ, Mugiwara no Rufi?)[10]
+Status:
+Alive
+Age:
+7 (debut);
+17 (pre-timeskip);[11]
+19 (after timeskip)[12][13]
+Birthday:
+May 5th (Children's Day)[14]
+Height:
+91 cm (3') (debut, child)[6]
+172 cm (5'8") (pre-timeskip)[15]
+174 cm (5'9") (after timeskip)[12][13]
+Blood Type:
+F[16]
+Bounty:
+Beli3,000,000,000[17]
+Beli1,500,000,000[18]
+Beli500,000,000[19]
+Beli400,000,000[20]
+Beli300,000,000[21]
+Beli100,000,000[22]
+Beli30,000,000[23]
+Japanese VA:
+Mayumi Tanaka;
+Urara Takano (OVA)
+Odex English VA:
+Chuck Powers
+4Kids English VA:
+Bella Hudson
+Funi English VA:
+Colleen Clinkenbeard
+Live-Action Portrayal:
+Iñaki Godoy;
+Colton Osorio (young)
+Devil Fruit
+Japanese Name:
+Gomu Gomu no Mi
+(Hito Hito no Mi, Model: Nika)
+English Name:
+Gum-Gum Fruit
+(Human-Human Fruit, Model: Nika)
+Meaning:
+Rubber; Human; Nika
+Type:
+Paramecia[24]
+(Mythical Zoan)[25]
+
+Contents
+1	Wano Country Saga
+1.1	Wano Country Arc
+1.1.1	The Adventures of Luffy-tarou
+1.1.2	Tribulation at Udon
+1.1.3	Raid on Onigashima
+1.1.4	A New Dawn in Wano Country
+2	References
+3	Site Navigation
+Wano Country Saga
+Wano Country Arc
+The Adventures of Luffy-tarou
+As the Thousand Sunny continued towards Wano Country, the group was informed of the Levely through a newspaper. They later encountered an unusual weather disturbance in their direction, followed by an octopus on their ship as well as a school of huge carp on their side. After a bumpy ride across a river, the ship climbed up a waterfall. After reaching the top, they came across a whirlpool. Luffy helped his group escape but was held back by the octopus before he could leave the ship. Luffy and the Thousand Sunny later washed up on a beach at Kuri and Luffy woke up when a crab pinched his nose. He then encountered a komainu and a baboon wielding a katana.[26]
+
+Tama Takes Luffy to Her House
+Tama takes Luffy to her house after he saves her from the Beasts Pirates.
+
+While the komainu and the baboon were fighting, two Beasts Pirates scouts were riding nearby. When they spotted Luffy and the Sunny, they tried to attack Luffy, but the latter easily defeated them and saved a little girl they had captured in the process. One of the pirates ordered the baboon, known as Hihimaru, to attack Luffy, but the latter stopped the baboon with a glare. The little girl, Tama, then knocked out the enemy pirate, and the girl managed to tame Hihimaru by feeding him kibi-dango created from her own cheek. Tama explained to Luffy where he was and what had happened to her, and after taking the Sunny to a secure location, she offered to feed him as thanks. She took him to her master's house, where she made some rice dishes. After he ate, Luffy was confronted by Tama's master, who was angered that he ate the rice that she rarely got to have due to spending her life weaving kasas every day. Tama explained to her master that she gave Luffy the rice to thank him, but she then got sick due to having drank some river water that was contaminated by Kaidou's factories. Her master revealed that she had decided to continue living in Kuri to wait for Ace, who had promised to return there.[27]
+
+Luffy then informed them that Ace died, causing Tama to become upset and pass out. Hitetsu berated Luffy for saying it so directly and told him about Ace's visit as well as the destruction of Tama's village. Luffy then offered to take Tama to the town to see a doctor, and Hitetsu told him to look for his allies. After changing his clothes, Luffy took the sword Nidai Kitetsu with him, and Hitetsu tried to stop him due to fearing its curse, but was unsuccessful as Luffy left with Tama. As Komachiyo gave them a ride through the bamboo forest, Tama accused Luffy of lying and explained about the promise Ace made to her. They later entered a wasteland and Tama explained about the terrible environment created by the Beasts Pirates before falling unconscious again. Luffy later spotted Zoro saving a woman from some of Kaidou's thugs. He then reunited with his crewmate, but they were confronted by Hawkins shortly afterwards.[28]
+
+Hawkins Vs
+Luffy and Zoro facing Hawkins.
+
+Hawkins then read Luffy and Zoro's fortune, saying that they had 19% chance of surviving at the end of the month. As they prepared to fight, Zoro noticed the sword Luffy was carrying and asked to hold on to it, but Luffy decided to use it. As Hawkins' men attacked, Luffy used a punch instead of attacking with the blade. One of the giant lizards tried to bite Luffy, but he dodged it, grabbed it, and threw it at Hawkins, who caught it with his straw sword. Luffy was then surprised when Zoro attacked Hawkins with a flying slash to the face, but the damage was redirected to one of his men. After explaining about his Wara Wara no Mi, Hawkins conjured a giant straw entity. After he drew a card that made his men attack each other, Komachiyo dragged Luffy and Zoro away from the battle. Hawkins' straw figure pursued them until Zoro sliced it in two. After getting away from Hawkins, the woman that Zoro saved earlier introduced herself as Tsuru. Upon seeing Tama in critical condition, she asked the two Straw Hats to bring Tama to her tea shop so she could help her. They later arrived at Okobore Town.[29]
+
+While Tama was healed by Tsuru's medicine, Luffy ate some food. After Luffy heard Tsuru's story about Okobore Town, Tsuru was attacked by the gifter Batman. During the confusion, Tama was abducted by Gazelleman. Luffy, Zoro, Kiku, and Komachiyo quickly pursued the Gifter and they headed for Bakura Town.[30]
+
+At the town's gates, Luffy yelled out Tama's name and the group were confronted by swordsmen, but Luffy knocked them out with Haoshoku Haki. While traveling through the town, Kiku told Luffy and Zoro about the town's history. A defeated sumo wrestler was suddenly hurled towards them, but Luffy caught him with one hand. They then came across a sumo wrestling tournament where Urashima was winning matches. As Urashima's men were taking Kiku to Urashima, Luffy was amazed when Kiku sliced off Urashima's top knot with her sword.[31]
+
+Luffy Defeats Urashima
+Luffy defeating Urashima in a Sumo Match.
+
+When Urashima tried to attack Kiku in a fit of rage, Luffy intercepted him and engaged him in a sumo match. Luffy dodged his opponent's attacks and sent him flying out of the ring and crashing into a building. Many enemies then came to confront the group. Luffy fought back, demanding the boss of the town to show up. Holed'em later arrived at the scene while holding Tama hostage.[32]
+
+Luffy Punches Holed'em
+Luffy strikes Holed'em with Red Hawk.
+
+As Holed'em accused the group of being part of a group of thieves, Kiku warned Luffy not to anger Holed'em carelessly. She also informed Luffy and Zoro that Jack was the ruler of the Kuri region and attacking Holed'em would have serious repercussions. When the headliner Speed arrived with a wagon of food, Luffy and Zoro decided to steal it. Luffy quickly attacked Holed'em and grabbed Tama while Zoro struck down the Beasts Pirates escorting the wagon. Once he heard how Holed'em harmed Tama, Luffy dropped Tama in mid-air and turned around to attack Holed'em and struck him in the face with a powerful Red Hawk punch.[33] With Holed'em taken down, Luffy then grabbed Tama again and tried to ride on the back of Speed, thinking she was a horse. Speed got angry, but when Tama offered some kibi dango made from her body, she ate it and became subservient to Luffy and Tama, carrying them out of Bakura Town as they made their way to Okobore Town. They picked up Law along the way and once they arrived at Okobore Town, they delivered the food to the citizens and Luffy crushed three gifters who tried to stop them. As Tama ate an apple, Luffy promised her that she would not be hungry again. After scolding Luffy and Zoro for their reckless behavior, Law decided to take them to the ruins of Oden's castle.[34]
+
+Luffy then parted ways with Tama but decided to keep the sword he took from Hitetsu. Luffy, Zoro, Law, and Kiku rode on Komachiyo as they traveled to the castle ruins. As they approached the castle, Zoro wandered off somewhere and Kiku ran away in tears. When they reached the top of the mountain, Law showed Luffy the gravestones for the Kouzuki Family, including Kin'emon, Momonosuke, Kanjuro, and Raizo. Luffy was surprised and initially thought they were dead, but Kin'emon and Momonosuke then came out to meet him and Kiku returned to embrace Kin'emon. The group that had sailed to Wano with Luffy arrived at the ruins as well, and Law took them inside to talk. There, Kin'emon revealed that he, Momonosuke, Kanjuro, and Raizo had escaped from Orochi's takeover by traveling 20 years forward in time.[35]
+
+Luffy then listened as Kin'emon explained more about the past such as the story of Oden, the time of his execution, the rumor about Toki, and what Kin'emon's group did right after arriving at present time. Kin'emon then went over a plan to attack Onigashima, the island where Kaidou resided, in two weeks.[36] Kin'emon explained about the Fire Festival and how the decisive battle would play out. After giving the group specific tasks to do, Kin'emon gave them new clothes and summoned Shinobu to guide them. When Kaidou arrived at the Kuri region, Law alerted Luffy to his presence.[37]
+
+Kaidou Defeats Luffy
+Kaidou defeats Luffy.
+
+Seeing Kaidou above Okobore Town, Luffy rushed off with Law following him. After Kaidou destroyed Oden Castle, Luffy responded by attacking Kaidou with a Gear 3 attack.[38] The attack knocked Kaidou to the ground with an enormous crash. Luffy then proceeded to run towards Oden Castle to check on his friends, but he came across a badly injured Speed, who told him that she tried to get Tama to safety, but Kaidou intercepted and attacked them, leaving Tama's fate unknown. Law tried to tell Luffy to flee, but an enraged Luffy decided to once again engage the Emperor. Kaidou unleashed his fire breath at him, but Luffy dodged and struck Kaidou with Elephant Gatling. This dropped Kaidou to the ground again, and he entered his human form while laying down. Luffy activated Gear 4 and unleashed an aggressive barrage of attacks on him. The attacks were ineffective and Kaidou retaliated with Raimei Hakke, rendering Luffy unconscious with a single blow.[39]
+Luffy and Kid Imprisoned
+Luffy and Kid imprisoned together.
+
+Kaidou then ordered his men to imprison Luffy, deciding to break his spirit and turn him into a subordinate. As Kaidou's men surrounded Luffy, he instinctively knocked out some of them with Haoshoku Haki. On the next day, Luffy was taken to a prison at Udon and thrown into a cell next to Kid. Both Luffy and Kid swore payback against Kaidou before Luffy noticed Kid next to him.[40]
+
+Tribulation at Udon
+Luffy and Kid in Udon Prison
+Luffy working alongside Kid while imprisoned in Udon's Prisoner Mine.
+
+A few days later, both of them were competing over who could do more work at the prisoner mine. Dobon then confronted the two over the amount of kibi dango rations they acquired. He prepared to discipline them as he had his hippo put them into its mouth. However, Luffy and Kid quickly knocked out Dobon and his hippo. Luffy also picked up an injured old man and carried him on his shoulder.[41]
+
+On the next day, the old man that Luffy helped expressed his gratitude to Luffy, who then gave Hyo some of his meal tickets in an act of kindness. While Luffy was working, Raizo appeared beside him and informed him that he located the keys to Luffy's Seastone handcuffs, but it was heavily guarded. Raizo then asked Luffy to wait a little longer before vanishing. Caribou approached Luffy and tried to talk to him with the intention of allying and escaping from the prison, but Luffy rejected him, telling Caribou to go ally with Kid. Caribou began to tell Luffy about the rumors of how Kid lost an arm, until Kid appeared and interrupted him. After Kid explained his side of the story, Luffy and Kid began arguing over who would defeat Kaidou.[42]
+
+After news of Kid's escape from the Prisoner Mines was announced, Alpacaman tormented Luffy by spitting on him and questioned if he had helped Kid escape. When Luffy saw one of the guards attacking Hyougoro, he rushed to attack the guard.[43] Luffy then kicked the guard in the face and knocked him down, causing an uproar in the prison. The warden stepped in and attacked Luffy. Afterwards, Luffy continued with his defiance by trying to escape. Luffy and Hyougoro were then caught and brought before Queen, who attempted to convince Luffy to join the Beasts Pirates, only for Luffy to reject the offer.[44]
+
+Luffy and Hyougoro in the Sumo Inferno
+Luffy and Hyougoro competing in Queen's death match.
+
+Luffy and Hyougoro were sentenced to fight in death matches called the Sumo Inferno. Both of them were forced to wear collars that will behead them if they step out of the ring, but they were allowed to have their handcuffs removed for combat. As the first group of opponents attacked them, Luffy instantly knocked them out with Haoshoku Haki.[45] As he defeated more opponents, Luffy tried to learn an advanced application of Busoshoku that would allow him to emit the armament to a short distance.[46] Luffy and Hyougoro were eventually confronted by Alpacaman and Madilloman. During the fight, Luffy told Hyougoro how to dodge their attacks. When Luffy told Hyougoro about trying to learn an advanced Busoshoku Haki technique, hoping to use it to break through Kaidou's scales, Hyougoro demonstrated this technique and defeated Alpacaman with it. Luffy affirmed that this was the exact technique he wanted to learn and asked Hyougoro to teach it to him.[47]
+
+Hyougoro tried to teach Luffy, but he continued defeating opponents without making any progress. The Sumo Inferno was put on hold when night came, but Luffy and Hyougoro were left in the ring as the Beasts Pirates retired for the rest of the day. After knocking out the nearby guards with Haoshoku Haki, Luffy told Hyougoro his reason for wanting to defeat Kaidou. Afterwards, Raizo and Caribou approached the ring. Caribou told Luffy that he wanted to become his subordinate, and Luffy decided to accept his help. When Hyougoro revealed the potential allies within the prison, Luffy became eager to rally them.[48]
+
+During the night, Luffy and Hyougoro ate oshiruko that were stolen from Queen but overate and grew fat. On the next day as the Beasts Pirates gathered around the ring, Luffy and Hyougoro prepared for the next set of matches, but Queen went to turn on the Filming Pond Tanishi.[49] Luffy then witnessed the execution of Shimotsuki Yasuie. When Luffy commented that no one should laugh when someone dies, Hyougoro explained about a side effect of the SMILE fruits.[50] As his crewmates were causing chaos at the execution site, Luffy cheered for them. He was then surprised to see that Kid had been recaptured while attempting to rescue Kamazo, who was revealed to be Killer. After Queen subjugated Kid and Killer to water torture and threatened to leave them submerged until Luffy and Hyougoro die, Luffy attempted to attack Queen, but he easily caught his punch and threw it aside. As tensions between Luffy and Queen began to heat up, they heard a loud noise coming from outside the gate.[51]
+
+Luffy Saves Hyougoro
+Luffy subconsciously uses advance Busoshoku Haki to save Hyougoro.
+
+Luffy was then surprised to see an amnesiac Big Mom breaking into the prison. As Big Mom and Queen argued about oshiruko, Luffy told them to pull Kid and Killer out of the water.[52] Luffy was then surprised to see Big Mom overpowering Queen. He was relieved to see Kid and Killer saved from drowning after Queen crashed into the contraption holding them. When Big Mom did not find any oshiruko, Luffy unwittingly admitted that he ate the oshiruko that Big Mom was looking for. Big Mom directed her anger towards Luffy and pushed him and Hyougoro out of the ring. Fortunately, Luffy managed to remove the collars. Hyougoro stayed in Big Mom's path, hoping that Luffy could become stronger by fighting her. To protect Hyougoro, Luffy prepared to face Big Mom head on.[53]
+
+Luffy realized that what he did to remove his and Hyougoro's death collars was the same technique that he saw Rayleigh used to remove Camie's exploding collar on Sabaody Archipelago two years ago. However, since he used it in the heat of the moment, Luffy was not sure how to activate it at will. Luffy attempted to have his Haki flow through his hands, but Big Mom instantly sent him and Hyougoro crashing into a wall. Luffy worriedly apologized to Hyougoro as he pulled him out of the wall, and Hyougoro revealed that he used Haki just in case. Hyougoro told Luffy more about the advanced usage of Busoshoku Haki before he and Luffy were separated by Big Mom, who pursued Luffy into the neighboring Prisoner Iron Factory. After running through the Prisoner Mines, he led Big Mom back to where he started, and Queen attempted another attack on Big Mom. Afterwards, Big Mom regained her memories and fell asleep. Queen and most of his subordinates quickly took Big Mom on a ship heading for Onigashima, leaving Babanuki to lead the small remainder of the crew in the prison. With communications cut off, Luffy decided to take down Babanuki and his forces and take over the prison.[54]
+
+Luffy's Group Fights in Udon
+Luffy and his allies prepare to take over Udon.
+
+Luffy excitedly took on the Beasts Pirates rushing to attack him as he worked to advance his Busoshoku Haki at will. Babanuki then ordered the prisoners to help subdue Luffy and they obeyed his command. Luffy wondered why they were following Babanuki's orders, and they replied that they had no hope in overcoming Kaidou and Orochi, having tried and failed to rebel against them 20 years ago and losing everything in the process. Kawamatsu shouted out from inside his cell, encouraging Luffy to tell the prisoners about their hope. After Raizo freed Kawamatsu, Kiku came and forced the prisoners off of Luffy. Having reunited with Chopper and Kiku (who was revealed to have been born a boy), Luffy prepared to fight once more.[55]
+
+Luffy and his group fought against the Beasts Pirates, but they were soon cornered by prisoners who were infected by the Mummy virus. Luffy fearlessly made contact with the infected carriers and ignited the prisoners' spirit by showing that their agonizing infected situation was no different from their life as slaves in Udon and he promised them that he and his group would liberate Wano Country from Kaidou's oppression. Babanuki prepared to use an Excitement shell, but Luffy's advanced Kenbunshoku Haki enabled him to stop Babanuki in time by tangling the trunk of his elephant, causing the shell to explode inside Babanuki's body.[56]
+
+Luffy's Advanced Busoshoku Haki Training
+Hyougoro supervises Luffy's training in advanced Busoshoku Haki.
+
+After the prison takeover, Luffy's condition worsened. As Chopper worked to treat him, Luffy reunited with Tama and Momonosuke. Luffy made Momonosuke angry by calling him useless.[57] Chopper successfully developed a cure and treated Luffy and all those infected. Upon meeting the four yakuza bosses, they threatened Luffy for speaking casually to Hyougoro, but Hyougoro vouched for him.[58]
+
+As the day of the Fire Festival drew closer, Luffy continued training his Busoshoku Haki with Hyougoro supervising him.[59] Luffy eventually learned how to use advanced Busoshoku Haki, and he returned to Amigasa Village with Tama and Chopper two days before the decisive battle.[60]
+
+Raid on Onigashima
+Luffy was excited to be given a new armor by Hitetsu. He then wondered about Jinbe's fate, but he was certain that Jinbe would eventually arrive at Wano Country.[61]
+
+On the day before the raid on Onigashima, Luffy spoke with Kin'emon before the latter head out with his group. Luffy later practiced his advanced Busoshoku Haki on a tree as he expressed eagerness to fight Kaidou again.[62]
+
+On the day of the Fire Festival, the Straw Hats, Heart Pirates, and Kid Pirates arrived at Tokage Port and entered the battle with the Beasts Pirates.[63] After rescuing Kin'emon's group, the Straw Hats were informed by the Beasts Pirates of how the rebels were prevented from gathering at Tokage Port and that Kaidou formed an alliance with Big Mom. Undeterred, Luffy, Law, and Kid then destroyed a Beasts Pirates' ship together. Afterwards, Luffy was excited to see that Denjiro arrived along with all of the Ninja-Pirate-Mink-Samurai Alliance allies.[64]
+
+While Kanjuro fled to Onigashima with Momonosuke, Luffy was shocked to learn that Kanjuro was a spy working for Orochi. After Momonosuke ordered the alliance to press forward without worrying about him, Luffy was impressed and promised to rescue Momonosuke. As the alliance was attacked by a Beasts Pirates ship with long ranged cannons, Luffy was overjoyed to see Jinbe arriving and joining the battle.[65] With Jinbe officially part of the crew, the Straw Hats proceeded to take over the torii in front of Onigashima.[66] The crew then arrived at Onigashima with the rebels. After disembarking, Luffy received a Beasts Pirates disguise from Kin'emon.[67]
+
+Luffy Attacks the Beasts Pirates
+Luffy attacking Beasts Pirates upon seeing spilled food
+
+When the Kid Pirates went ahead into Onigashima, Luffy tried to follow them. While searching for Kid, Luffy became enraged when some Beasts Pirates members callously wasted some oshiruko, remembering how happy Tama was to receive some.[68] In a fit of rage, Luffy struck them with a Gear 3 attack. Zoro then found Luffy and berated him for causing a scene, but when Luffy explained his reasons, Zoro went along with him. During the ensuing chaos, the two Straw Hats were confronted by the surrounding Beasts Pirates. Apoo attacked and injured the duo with his Devil Fruit powers, forcing them to retreat. They were saved from Apoo when Kid landed a surprise attack on his former ally.[69]
+
+Ulti and Page One Stumble into Luffy
+Luffy comes across Ulti and Page One.
+
+The situation became more chaotic as a Number entered the fray. As Luffy, Zoro, Kid, and Killer ran to the castle, they were able to defend against Apoo's next attack by covering their ears.[70] As Luffy fought his way through inside Kaidou's castle, he ran into Ulti and Page One.[71] When Luffy said he was going to become the Pirate King, Ulti angrily responded that Kaidou would take that title as she headbutted him. After a brief clash, Ulti managed to send Luffy crashing into the floor, but she sensed that he was unharmed and so transformed into her pachycephalosaurs hybrid form. Luffy emerged from his crater and rushed toward Ulti and Page One, and before they could react, he grabbed hold of Ulti's horns and used them to slam her into the ground before defeating Page One with Elephant Gun. Ulti then grabbed Luffy's arms and prepared to headbutt him in her hybrid form while Luffy prepared to transform into his Gear 4, but Yamato rushed in and struck Ulti with his kanabo. Yamato then picked Luffy up and ran away as the Beasts Pirates began chasing after them, and he introduced himself to Luffy while trying to take him to a private spot.[72]
+
+Luffy Attacks Yamato
+Luffy's initial scuffle with Yamato.
+
+Luffy had no desire to meet with Yamato and so attacked him, but Yamato managed to counter his attacks before the duo engaged in a powerful and destructive clash. In the immediate aftermath of the clash, Yamato took Luffy to the attic and was able to get him to stay and talk for five minutes. As Yamato took off his mask and revealed his real appearance, he told Luffy about his devotion to Oden and asked him to fight with him to achieve the legendary samurai's dream of opening Wano's borders.[73] During their conversation, Yamato revealed to Luffy not only why he never left Onigashima (despite him wanting to do so) but also his desire to sail with Luffy's crew. They then listened to Kaidou's speech, but they fell out of the attic when the floor below them collapsed. Luffy urged Yamato to show him the way to Momonosuke before he could be executed.[74]
+
+As they fought through the Beasts Pirates, Luffy informed Yamato that Momonosuke and his retainers were alive the whole time. Luffy then removed Yamato's handcuffs and tossed them away before they detonated and caused a huge explosion that sent them flying to the Performance Stage. Even though Kaidou and Momonosuke were in sight, Luffy waited for the Scabbards to start the all-out attack.[75] During the raid, Big Mom saw Luffy and confronted him again.
+
+When Big Mom mocked Luffy of his mission to bring down Kaidou, Luffy stated his actual goal was to bring down both of them along with their followers in this all-out war. After Kaidou transformed into his dragon form and took the Scabbards with him to the roof of Skull Dome, Luffy stated to Kin'emon that he would catch up with them later.[76] After Luffy watched Sanji assist Shinobu in freeing Momonosuke, he became worried when King drove Sanji through a wall. Luffy decided to have Yamato assist Shinobu in protecting Momonosuke. Big Mom then resumed her attack on Luffy, further enraged that Luffy had interfered too much lately with all the festivities she had tried to enjoy. Luffy realized he had to deal with Big Mom first before he could deal with Kaidou.[77]
+
+Straw Hats Stand United Against Beasts Pirates
+The Straw Hats stand together against the Beasts Pirates.
+
+As the battle at the Live Stage unfolded, Luffy told Shinobu to trust Yamato. He then attempted to jump to the roof of the Skull Dome along with Zoro, but Queen prevented their advance. When the other Straw Hats arrived, the crew assembled on the Live Stage.[78] The samurai fought to open a path for the Straw Hats, but they struggled to bring one of the Numbers down, so Zoro sliced its club and Jinbe saved some samurai from the falling piece while Luffy went on to attack the Number with Gear 4. At this moment, he encountered X Drake, who struck down another of the Numbers. Afterwards, Drake offered to join forces with him.[79]
+
+Unlike Zoro, Franky, and Jinbe, Luffy immediately accepted Drake's help. As Luffy and Sanji rushed to reach Kaidou, Apoo tried to attack them, but they quickly covered their ears. When Hatcha arrived, Sanji told Luffy to ignore him, so they do not waste time with a pointless fight.[80] As they continued on, Sanji had to constantly keep Luffy from engaging in pointless fights. They were confronted by Briscola, but Jinbe arrived to aid them. After defeating Briscola, Jinbe offered to escort Luffy and Sanji to the roof.[81] The trio reached the first level of the castle, and they got past two Shinuchis along the way.[82] As they went through the third level, Sanji separated from Luffy and Jinbe. The two ran into rebels from Udon, and they built a ladder to the fourth level.[83] At the fourth level, Luffy separated from Jinbe, who decided to remain on the floor to hold back Who's-Who and his subordinates.[84]
+
+Gomu Gomu no Red Roc
+Luffy punches Kaidou.
+
+At the fifth level, Luffy found that the Mink Tribe had cleared his way to the roof. Once he arrived there, he joined up with Zoro, Law, Kid, and Killer as they prepared to fight Kaidou and Big Mom. Luffy briefly ignored the two Emperors to check up on Kin'emon and his group, who were wounded but still alive. Luffy agreed to take Wano's fate upon his shoulders and asked Law to send the Scabbards somewhere safe. After Law did so, Luffy dodged an attack by Kaidou and struck back with a new and powerful Gear 3 attack called Gomu Gomu no Red Roc that made Kaidou bleed, shocking both Emperors.[85]
+
+Kaidou then struck back by attacking with his club. Luffy managed to avoid the full brunt of the attack, but he was still grazed by Kaidou. Big Mom attempted to attack Luffy with Prometheus, but Zoro stepped in and cut the sun homie in two. Kaidou tried attacking Luffy again, but Law teleported Luffy to another spot. After Law berated Luffy for making it look like Law was taking orders from him, Luffy then challenged Law and Kid to a game of chicken when Big Mom launched an attack at the three captains. Not moving an inch, the three captains took the attack head on. They quickly recovered and attacked Kaidou together, but the Emperor transformed and joined Big Mom in the sky, ready to launch a counterattack.[86]
+
+Supernovas Confront Kaidou and Big Mom
+Luffy and the other Supernovas confronting Kaidou and Big Mom.
+
+Kaidou then used a roar to unleash several wind blades on the five members of the Worst Generation. Luffy dodged them and struck Kaidou with Gomu Gomu no Kong Rifle, which injured him. Right after Killer got struck by Big Mom's Indra, Kaidou tried to chomp on Killer, but Luffy kicked Kaidou away with Rhino Schneider. Kaidou prepared to use Bolo Breath on Luffy, but Zoro had Law teleport him to in front of Kaidou so he could defend Luffy by cutting Kaidou's flames. Big Mom unleashed Tenman Daijizai Tenjin on Luffy and his allies. Luffy got struck but was unharmed due to his body being rubber. He then got hit by Kaidou's Bolo Breath, but to Kaidou's surprise, Luffy came out unscathed, claiming that it was his guts that protected him. He then struck Kaidou with Gomu Gomu no Kong Gatling.[87] Eventually, Luffy got exhausted from the stress of using Gear 4 and reverted back, forcing Zoro to protect him from both Kaidou and Big Mom's attacks. Luffy then watched as Kaidou transformed into his Human-Beast form.[88]
+
+Luffy eventually recovered from the effects of Gear 4 and resumed fighting. Insisting that their attacks so far were being effective, Luffy kept stubbornly assaulting Kaidou and Big Mom, who repeatedly struck him away as the other Supernovas discussed a way to separate the two Emperors.[89] When Kaidou and Big Mom prepared a devastating combined attack, Luffy was able to see into the future the range and scope of the shockwave, alerting the others about it. After Zoro managed to delay the attack for an instant and Law teleported everybody to safety, Luffy attempted to punch Kaidou once more, giddily noticing that the Emperor was weakened enough to start dodging attacks instead of enduring them, thus confirming his suspicions from before. Kaidou countered Luffy's punch with a series of attacks of his own, managing to knock the Straw Hat captain out.[90]
+
+Luffy Punches Kaidou
+Luffy begins using Haoshoku Haki against Kaidou.
+
+Like their prior confrontation at Kuri, Luffy kept "glaring" at Kaidou even while unconscious, something that Kaidou noted. Luffy did not stay down for long and, in fact, was able to deduce the secret behind Kaidou's immense power and defenses after observing the Emperor's latest attack and reminiscing his own training with Hyougoro. Telling Kaidou that he was fighting for his Wano friends and would refuse to submit to him, Luffy learned how to coat his own body with Haoshoku Haki, allowing himself to defend and counterattack Kaidou's strikes without even making contact with the Emperor. Confident that he now had a reliable way to hurt Kaidou, Luffy declared to Law and an unconscious Zoro that he would defeat him.[91] After Law left the battlefield with Zoro and Zeus, Kaidou got up and, admitting that both he and Luffy were enjoying this fight, clashed once more with the Straw Hat captain.[92]
+
+Luffy Falls Off Onigashima
+Luffy falls off Onigashima defeated.
+
+However, Luffy lacked skill in the use of Haoshoku coating and was soon overpowered and defeated by Kaidou. The unconscious Luffy was thrown off the flying Onigashima and fell towards the sea.[93] As he sunk into the depths, the Kaidou disappointedly noted that Luffy was not able to become Joy Boy.[94]
+
+However, as Luffy sunk into the sea, he used the Voice of All Things to transmit a message to Momonosuke, to tell his crew that he will be back and that he will win against Kaidou. He also used it to call the Heart Pirates who were aboard the Polar Tang to come and rescue him.[95] After they brought him into the ship and pushed the water out of his lungs,[96] he awoke and began demanding meat.[97]
+
+Momonosuke's Adult Dragon Form
+Momonosuke ready to assist Luffy after becoming an adult dragon.
+
+Having reached Tokage Port, even after Luffy ate the Heart Pirates' entire stock of food, he demanded more, which they fortunately managed to procure thanks to Caribou being nearby, with months worth of provisions stored within his swamp. As he ate, he reunited with a sobbing Momonosuke, who just recently landed on the mainland thanks to Shinobu's kite, and had not long ago witnessed Kiku and Kin'emon fall before his eyes. Luffy told the boy to stop crying and to transform into his dragon form and fly him back to Onigashima.[98][99] Thanks to Caribou's provisions, Luffy regained his strength back[100] and was later amazed to see Momonosuke in his adult dragon form, thanks to Shinobu's Devil Fruit powers, asking Momonosuke to fly to Onigashima and get another chance at beating Kaidou.[101]
+
+Yamato and Luffy Attack Kaidou
+Luffy and Yamato strike at Kaidou simultaneously.
+
+Still, Luffy was angry at Momonosuke's fear of heights, which in his eyes should be over now that he has become an adult dragon. Momonosuke then gradually overcame his fear, descending towards Onigashima, with Luffy barely hanging onto his horn. They would both pass through several parts of the castle while leaving everybody in shock about a second dragon on Onigashima. When they finally reached the roof and spotted Kaidou, Luffy was quick to transform into his Gear 4: Snakeman and attack Kaidou with Jet Culverin, unknowingly striking simultaneously with Yamato, who had been stalling Kaidou the whole time; upon noticing each other, the two were happy to see each other again at last. Shortly thereafter, Kaidou transformed into his Dragon-Form, preparing to face all three of them at once, with Luffy standing above Momonosuke, confirming his name and dream of becoming Pirate King when asked by Kaidou.[102]
+
+After Momonosuke barely dodged Kaidou's attack, Luffy would then take over the first strike at Kaidou, but not before telling Momonosuke to bite Kaidou, hitting Kaidou with Elephant Gun and sending him headfirst into the ground. When Kaidou was preparing to attack Momonosuke after being bitten by the latter, Luffy came to Momonosuke's rescue, punching Kaidou while using Haoshoku infusion and sending him into the ground headfirst once again. Thanks to a hidden Mary on the roof, Luffy was able to transmit his message to all of Onigashima to declare that he would defeat Kaidou, boosting the morale of his allies and crew. As Kaidou transformed into his Human-Beast Form, the Emperor swung his kanabo and Luffy met it with his punch, both of them infusing their attacks with Haoshoku Haki and clashing with enough force to split the sky above Onigashima, revealing the full moon previously hidden above it.[103]
+
+Soon after the sky-splitting clash, Luffy told Yamato to take Momonosuke and flee, wanting a chance at defeating Kaidou 1v1. When Kaidou attempted to stop them from retreating, Luffy restrained the Emperor by wrapping his legs around Kaidou's neck. Both Luffy and Kaidou then resumed their fight, once again using Haoshoku infusion,[104][105] trading blows with each other before Luffy send Kaidou back with his Gomu Gomu no Roc Gun, simultaneously falling back. However, both quickly got up, started laughing and commented on the fight finally becoming fun.[106] To Luffy's annoyance, Kaidou would then starting to drink alcohol, although he stated that he has to become stronger as he finally acknowledged Luffy's power.
+
+Luffy kicks Kaidou
+Luffy lands a critical blow on Kaidou.
+
+When Luffy attempted to strike at Kaidou, the latter went through several stages of a special state called Shuron Hakke due to his alcohol consumption. In his Warai Jogo state, he dealt a severe blow to Luffy with Ragnaraku that created a large crack in the roof of Onigashima. Kaidou entered the Ochikomi Jogo mode in his dragon form and lamented over not being able to protect Onigashima and the time it would take to rebuild it, before using Tatsumaki Kaifu on an approaching Luffy. He then shifted to his Naki Jogo state and return to hybrid form, crying as he prepared to use Raimei Hakke on Luffy. However, Luffy was successful in dodging this attack and landed a reverse Haoshoku-infused kick on Kaidou's chin. The Emperor, still crying profusely, grabbed Luffy's leg with his tail and attempted to headbutt him. The two combatants had a headbutt clash powered by Haoshoku Haki, with their foreheads not touching. Kaidou won out the clash as Luffy remarked that Kaidou's haki was growing stronger as he was sent reeling. Kaidou then entered the final stage of Shuron Hakke, Okori Jogo and angrily fired off two Boro Breaths before he met Luffy's Gomu Gomu no Roc Gatling with Gundari Ryuseigun. However, during the flurry of attacks, Luffy blocked a swing of Kaidou's Hassaikai with Haoshoku Haki and managed to strike the Emperor's abdomen with a Haoshoku-infused kick bolstered by Gear 2 and Gear 3, seemingly damaging Kaidou significantly.[107]
+
+When Big Mom was defeated, the two pirates were in the midst of a clash of haki-infused attacks, with Luffy being pushed back. Sensing that Linlin lost her battle, Kaidou emitted his Haoshoku Haki in rage, though Luffy expressed how impressed he was that Law and Kid managed to win. Kaidou then recalled how the two first met, before entering his Naki Jogo mode and bursting into tears, though Luffy responded by entering Gear 4: Snakeman, and barraging Kaidou with Gomu Gomu no Hydra, stating that Kaidou's ambition meant nothing to him, how this was his final Gear 4, and how he wasn't stopping till he drove the King of Beasts out of Wano.[108]
+
+Kaidou Hits Luffy Head-On
+Kaidou hits a restrained Luffy.
+
+Kaidou was seemingly unable to respond to the omni-directional Hydra attack, and contemplated how such an attack should be impossible due to the innate nature of rubber, as he slowly transitioned to his Amae Jogo mode. Kaidou manages to escape the attack, using Nusubito Jogo and advanced Kenbunshoku, before transforming into his full beast form, grabbing Luffy in his mouth and flying high into the sky. He then let go of Luffy before firing a point-blank Bolo Breath straight down, which blasted the Straw Hat captain all the way through Onigashima. Thankfully, Luffy managed to only escape the attack by transitioning into his Boundman form and flying back to the top of the island. He then got above Kaidou and landed a Gomu Gomu no Over Kong Gun on the Emperor, which disrupted the Bolo Breath the dragon was preparing to fire. However, Kaidou quickly recovered, entering his hybrid form and using Satsuriku Jogo mode to floor Luffy with Hourai Hakke. With Luffy resolving to end this with one final hit, he quickly bounced back and charged at the Emperor with another Over Kong Gun, with Kaidou dashing at him whilst preparing another Hourai Hakke. However, CP0 agent Guernica suddenly appeared and locked Luffy's attacking arm by grabbing on to it and using Tekkai, allowing Kaidou to knock the Straw Hat captain down. Guernica escaped the strike, releasing just before the Emperor hit, whilst Kaidou could only attack in despair, as he relived another exciting battle being sabotaged by outside influence, just like during his duel against Oden,[109] leading to Luffy passing out and laying on ground as Kaidou descended towards the Live Floor after dealing with the Guernica. However, shortly afterwards, Luffy's body seemed to transform as he was seen smiling during the transformation.[110]
+
+Luffy Activates Gear 5
+Luffy in his Gear 5 form.
+
+Luffy was then monologuing about how he could hear his heartbeat and still stand despite being defeated by Kaidou. He then jumped into the air, being transformed into a new form, awakening his Devil Fruit while calling the new form, Gear 5. In this form, he emitted a huge blast of Haoshoku Haki, taking out several Beasts Pirates on the Live Floor, before he enlarged his arm and grabbed Kaidou in his entire dragon form, dragging him onto the rooftop. He then tightly wrapped his arm around Kaidou, swinging him around before slamming him back and forth on the surface. Kaidou then retaliated, shooting a Bolo Breath at Luffy, Luffy however grapped the ground beneath him, turning it into rubber and thus reflected Kaidou's attack at him while constantly laughing due to his Devil Fruit being awakened. Kaidou then recovered and apologized for the CP0-Agent's intervention, with Luffy accepting the apology and wanting to finish his fight with Kaidou properly.[111]
+
+While watching Luffy bouncing up and down, Kaidou told him he awakened his Devil Fruit since he was turning the ground into rubber like himself, yet he felt like the transformation was akin to that of a Zoan fruit, which confused him. Nevertheless, he bit down on Luffy and swallowed him, only for Luffy to bounce around in his insides before using Gomu Gomu no Fusen to inflate both his and Kaidou's body, causing him discomfort as the two floated up into the sky. Kaidou tried to figure out how Luffy was able to make his body being like rubber just as Luffy was about to stretch his arms through Kaidou's eyes to launch himself out of Kaidou's body using Gomu Gomu no Dasshutsu Rocket which caused additional discomfort to Kaidou. Luffy then launched himself higher into the air and made himself a giant to step on Kaidou, but Kaidou evaded and chomped down on Luffy's torso, but Luffy grabbed his head and tail and started using him like a jump rope until Kaidou used Bolo Breath to blast him far away. As Luffy recovered and ran back to him, Kaidou changed into his hybrid form and struck Luffy with Kosanze Ragnaraku, slamming his head through the roof. As Luffy pulled his head back, Kaidou remarked that their fight looked like something out of a picture book, but believed Luffy is at the end of his rope, which was confirmed when his awakened state wore off. Though Kaidou himself fell to one knee, he told Luffy that after he died, he will tell everyone how valiantly he fought, but Luffy rejected this notion and changed back, assuring Kaidou that he was not afraid of dying. Kaidou managed to slam Luffy with Hassaikai a few times before Luffy bounced off a rock at Kaidou while spinning his arms like a propeller. Kaidou tried to block his attack while also trying to figure out what Luffy's power was, claiming no one is capable of taking him down, only to get punched straight through the face by Luffy and knocked onto his back.[112]
+
+Kaidou picked himself back up and asked Luffy who he was to which Luffy answered that he is the one who will surpass him and become the Pirate King. Kaidou acknowledged that Luffy still hasn't lost his spirit and how ridiculous his power was. He admitted he has lost a lot in this war, but believed Luffy has too, only for Luffy to retort that he will take it all back. He used Gundari Ryuseigun on Luffy but got hit multiple times by Luffy as well, whose punches stretched through him again. He then noticed smoke coming from the bottom of the roof and believed that the whole castle is on fire, and everyone will burn to death, but Luffy responded that he trusts his friends to handle the problem as Kaidou fired a Kaifu attack that Luffy dodged. He then watched as Luffy grabbed a bolt of lightning with a smile on Luffy's face.[113]
+
+Luffy used Gomu Gomu no Kaminari to throw the bolt of lightning at Kaidou, but he sidestepped and slammed Luffy from the side, sending him flying far away again. Luffy used another lightning bolt to propel himself back to attack Kaidou again, but he quickly dodged the attack and struck Luffy on the head. As he did so, he told Luffy that having a strong Devil Fruit isn't enough to conquer the seas; Roger himself didn't have one yet he still became the Pirate King, and Kaidou said that such hurdles can only be overcome with Haki as he hit Luffy with Daiitoku Raimei Hakke, knocking him into the air again. However, Luffy grabbed Kaidou while being past the storm clouds and Kaidou tried to shake Luffy off, first by hitting his arm with Hassaikai, then changing into his full dragon form to hit him with Tatsumaki Kaifu and Bolo Breath. His efforts were futile, as not only did Luffy hang on, but inflated his other fist to a humongous size to finish Kaidou off with.[114]
+
+Luffy Defeats Kaidou
+Luffy is finally able to defeat Kaidou.
+
+Seeing Luffy's giant fist, Kaidou decided to take it head on as he enveloped himself in fire, which finally caused Luffy to let go of him, a move Kaidou said was the right call. He told Luffy that Oden was burned to death and ever since then, the people of Wano desperately clinged onto the hope their "savior" would come. He also told Luffy that his fist would never hit him because his fire would vaporize it. However, Luffy only retorted at Kaidou that he now knew how to actually hurt him, thanks to Hygoro's teaching at Udon, replying to Kaidou he would send him to the bottom of hell before Kaidou met Luffy's Gomu Gomu no Bajrang Gun with his Shoryu: Kaen Hakke.[115] As they clashed, Kaidou commended Luffy for coming so far but believed he couldn't change the world. He did ask, though, what kind of world Luffy wanted to create, and he answered that he wanted to make a world where his friends could eat as much as they want, as his fist tore through Kaidou's attack and punched Kaidou so hard in the face he got hurled deep into the ground in front of the Flower Capital before Luffy himself passed out mid-air from exhaustion due to the fight.[116]
+
+As Kaidou sank deeper into the ground and fell into a lava pit, Luffy exited out of Gear 5 and dropped from the sky, where he was caught by Yamato, who smiled and congratulated him and Momonosuke on their incredible feats. The impact from Kaidou landing in the pit destabilized an underwater volcano which caused it to erupt catching Kaidou and Big Mom, who had also fallen into the pit, in the resulting explosion. A bandaged Luffy smiled as he was finally declared the winner of the final battle in the skies over Wano.[117] Yamato caught Luffy as he fell, and both he and Zoro were tended to by Chopper later on, but not before he told Momonosuke to not reveal his name to the people of Wano, as he would then be treated as a hero for defeating Kaidou.[118]
+
+A New Dawn in Wano Country
+A week later, both Luffy and Zoro woke up and immediately demanded meat and booze respectively. As the crew celebrated their recovery, Luffy was shocked to see Momonosuke in his adult form for the first time, after initially not recognizing him. After the crew learned that there was going to be a massive festival to celebrate Wano's liberation, Luffy became excited to hear of it and decided to go to the baths first with his friends before partying.[119]
+
+Luffy Learns of Emperor Status
+Luffy learns of his Emperor status.
+
+As promised Momonosuke did not reveal his name to Wano, so the citizens came to know him as Joy Boy but believed he had already left the country. Luffy proceeded to enjoy the festival with his crew and the rest of the Ninja-Pirate-Mink-Samurai alliance, along with Law and Kid's crews as well. Luffy then called for a toast celebrating the end of the long fight and the festival, when suddenly Kid barged in trying to attack him. Luffy did not acknowledge his attack however, and simply wrapped his arm around his fellow Supernova as he continued to celebrate. Kid quickly shook Luffy off and showed him the day's newspaper, which contained the formal declaration of the new Four Emperors of the Sea - Shanks, Blackbeard, Luffy, and Buggy, much to Luffy's shock.[120]
+
+After Admiral Ryokugyu retreated from Wano when Shanks intimidated him with his Haoshoku Haki, Luffy, Zoro, Sanji, and Jinbe were sitting and acknowledged the Admiral's departure, Momonosuke's braveness, and the strong Haki they felt. Luffy sensed a familiarity with the Haki.[121] Yamato then approached them and stated his intention of not leaving with the Straw Hats but staying on the island for their peace of mind, since threats like Ryokugyu may appear more often with Kaidou now gone, to which Luffy reluctantly agreed. Marco flew up to say goodbye, having found a ship close by (the Red Hair Pirates) who were willing to take him home. Luffy tried to give his thanks for helping him during the Summit War of Marineford, though Marco coolly shrugged it off, instead stating how proud Ace would be if he could see Luffy now, with the Straw Hat captain grinning proudly at the praise.[122]
+
+Luffy Law and Kid at Tokage Port
+Luffy, Law and Kid at Tokage Port.
+
+Later, Robin revealed that the Ancient Weapon, Pluton, was on the island, but Luffy had no interest in acquiring it. Tama then appeared with Shinobu, having become the kunoichi's apprentice, with the girl requesting to join the crew if she was strong enough next time they met, with Luffy happily agreeing. A few days later at Tokage Port, the Straw Hats decided to depart, with Luffy, Kid and Law deciding to sail to separate islands as indicated by the three Log Pose needles. Law chose to go to northeast, with Luffy and Kid drawing lots to go east, which Luffy lost, setting the Straw Hats heading to the southeast. Kid, while expressing his annoyance at the Emperors, started talking about Buggy's new crew, Cross Guild, which now has Crocodile and Dracule Mihawk supposedly "under" him, though Luffy heavily doubting this claim. Kid goes on to explain how Cross Guild was putting out bounties for Marines, now making them the hunted. After Kid received Poneglyph markings from Law, he and Killer started talking about looking for "the man with the burn mark", which got Luffy's attention.[123]
+
+As the Straw Hats prepared to depart, Momonosuke charged at them in his dragon form before tackling Luffy as a human, and though Kin'emon started scolding the Straw Hat captain, the young shogun broke down in tears, begging Luffy to stay. Luffy then had Usopp pass him a flag, which he in turn passed on to Momonosuke. He then stated that they were waiting for Momonosuke, and knowing how childish he was on the inside, granted the shogun his Jolly Roger, telling him that in times of strife to think on their adventure and if anyone came to pick a fight, to show them the flag, as it indicates that they are also picking a fight with the Straw Hat Pirates. They then set sail, but not before Luffy gave Kin'emon, Momonosuke and Yamato an open invitation to join his crew, should they ever wish to become pirates. The Sunny and the Polar Tang set course to Mogura Port, where there is a gondola which could safely transport them to the sea. However, after Kid taunted the other two captains for taking the safe route, Luffy and Law took control of their respective ships and, despite their crews' protests, sailed it over the Koi-climbing Waterfall with the Kid Pirates,[124] with the resulting fall breaking one of the Sunny's looms.[125]
+
+References
+ One Piece Manga and Anime — Vol. 1 Chapter 1 (p. 5) and Episode 4, Luffy is first introduced.
+ One Piece Manga and Anime — Vol. 1 Chapter 2 (p. 8) and Episode 1, Luffy debuts in the present.
+ One Piece Manga and Anime — Vol. 5 Chapter 44 (p. 2-20) and Episode 21, Luffy works off his debt to Zeff.
+ One Piece Manga and Anime — Vol. 104 Chapter 1053 (p. 17) and Episode 1080, Luffy became recognized as one of the Four Emperors.
+ One Piece Manga and Anime — Vol. 71 Chapter 703 (p. 16) and Episode 633, Luffy's alias in Dressrosa is revealed.
+ Vivre Card - One Piece Visual Dictionary (Card #0001), Luffy-tarou is romanized.
+ One Piece Manga and Anime — Vol. 91 Chapter 914 (p. 7) and Episode 900, Luffy's first alias in Wano is revealed.
+ One Piece Manga and Anime — Vol. 91 Chapter 916 (p. 8) and Episode 903, Luffy's second alias in Wano is revealed.
+ One Piece Manga and Anime — Vol. 103 Chapter 1043 (p. 16-17) and Episode 1070, Zunesha declares Joy Boy's return.
+ One Piece Manga — Vol. 1 Chapter 2 (p. 3), Luffy's epithet is written in the title of the chapter.
+ SBS One Piece Manga — Vol. 4 (p. 28), Luffy's age is revealed.
+ One Piece Blue Deep: Characters World (p. 186), Luffy's profile after timeskip is revealed.
+ SBS One Piece Manga — Vol. 69 (p. 66), Luffy's age and height after timeskip are revealed.
+ SBS One Piece Manga — Vol. 15 (p. 90), Luffy's birthday is revealed.
+ SBS One Piece Manga — Vol. 10 (p. 46), Luffy's height is revealed.
+ SBS One Piece Manga — Vol. 66 (p. 162), Oda explains the blood types of the world and reveals Luffy's blood type.
+ One Piece Manga and Anime — Vol. 104 Chapter 1053 (p. 4-5) and Episode 1080, Luffy's bounty as one of the new Four Emperors.
+ One Piece Manga and Anime — Vol. 90 Chapter 903 (p. 16-17) and Episode 879, Luffy's sixth bounty after Whole Cake Island.
+ One Piece Manga and Anime — Vol. 80 Chapter 800 (p. 7) and Episode 745, Luffy's bounty is stated to have risen after Dressrosa.
+ One Piece Manga and Anime — Vol. 61 Chapter 601 (p. 12) and Episode 521, Luffy's fourth bounty after the Summit War of Marineford.
+ One Piece Manga and Anime — Vol. 45 Chapter 435 (p. 16-17) and Episode 320, The crew members' bounties for attacking Enies Lobby are revealed.
+ One Piece Manga and Anime — Vol. 23 Chapter 213 (p. 22) and Episode 128, Luffy's bounty is raised after Arabasta.
+ One Piece Manga and Anime — Vol. 11 Chapter 96 (p. 6) and Episode 45, Luffy's first bounty is put by Brannew in the wanted list.
+ SBS One Piece Manga — Vol. 30 (p. 104), Gomu Gomu no Mi is confirmed to be a Paramecia.
+ One Piece Manga and Anime — Vol. 103 Chapter 1044 (p. 4-6) and Episode 1071, The Five Elders discuss the nature of Luffy's Devil Fruit.
+ One Piece Manga and Anime — Vol. 90 Chapter 910 and Episodes 891–893.
+ One Piece Manga and Anime — Vol. 91 Chapter 911 and Episodes 893–894.
+ One Piece Manga and Anime — Vol. 91 Chapter 912 and Episodes 894–897.
+ One Piece Manga and Anime — Vol. 91 Chapter 913 and Episodes 898–899.
+ One Piece Manga and Anime — Vol. 91 Chapter 914 and Episodes 900–901.
+ One Piece Manga and Anime — Vol. 91 Chapter 915 and Episode 902.
+ One Piece Manga and Anime — Vol. 91 Chapter 916 and Episodes 902–904.
+ One Piece Manga and Anime — Vol. 91 Chapter 917 and Episode 905.
+ One Piece Manga and Anime — Vol. 91 Chapter 918 and Episodes 906–908.
+ One Piece Manga and Anime — Vol. 91 Chapter 919 and Episodes 908–909.
+ One Piece Manga and Anime — Vol. 91 Chapter 920 and Episodes 910–911.
+ One Piece Manga and Anime — Vol. 91 Chapter 921 and Episodes 911–912.
+ One Piece Manga and Anime — Vol. 92 Chapter 922 and Episodes 912–914.
+ One Piece Manga and Anime — Vol. 92 Chapter 923 and Episodes 914–915.
+ One Piece Manga and Anime — Vol. 92 Chapter 924 and Episodes 915–916.
+ One Piece Manga and Anime — Vol. 92 Chapter 926 and Episode 919.
+ One Piece Manga and Anime — Vol. 92 Chapter 928 and Episodes 920–923.
+ One Piece Manga and Anime — Vol. 93 Chapter 934 and Episodes 929–930.
+ One Piece Manga and Anime — Vol. 93 Chapter 935 and Episodes 930–931.
+ One Piece Manga and Anime — Vol. 93 Chapter 936 and Episodes 931–932.
+ One Piece Manga and Anime — Vol. 93 Chapter 937 and Episode 933.
+ One Piece Manga and Anime — Vol. 93 Chapter 939 and Episodes 935–936.
+ One Piece Manga and Anime — Vol. 93 Chapter 940 and Episode 937.
+ One Piece Manga and Anime — Vol. 93 Chapter 941 and Episode 938.
+ One Piece Manga and Anime — Vol. 94 Chapter 943 and Episode 941.
+ One Piece Manga and Anime — Vol. 94 Chapter 944 (p. 10-17) and Episodes 942–943.
+ One Piece Manga and Anime — Vol. 94 Chapter 945 (p. 14-15, 17) and Episode 944.
+ One Piece Manga and Anime — Vol. 94 Chapter 946 (p. 2-4, 9-14) and Episode 945.
+ One Piece Manga and Anime — Vol. 94 Chapter 947 and Episodes 946–947.
+ One Piece Manga and Anime — Vol. 94 Chapter 948 and Episodes 947–948.
+ One Piece Manga and Anime — Vol. 94 Chapter 949 and Episodes 948–949.
+ One Piece Manga and Anime — Vol. 94 Chapter 950 (p. 6) and Episode 950.
+ One Piece Manga and Anime — Vol. 94 Chapter 952 (p. 8, 10) and Episode 953.
+ One Piece Manga and Anime — Vol. 95 Chapter 954 (p. 6) and Episode 955.
+ One Piece Manga and Anime — Vol. 95 Chapter 955 and Episode 956.
+ One Piece Manga and Anime — Vol. 95 Chapter 959 (p. 4-7) and Episode 959.
+ One Piece Manga and Anime — Vol. 95 Chapter 955 (p. 9-10, 12, 16-17) and Episode 956.
+ One Piece Manga and Anime — Vol. 96 Chapter 974 and Episode 977.
+ One Piece Manga and Anime — Vol. 97 Chapter 975 and Episodes 978–979.
+ One Piece Manga and Anime — Vol. 97 Chapter 976 and Episodes 979–980.
+ One Piece Manga and Anime — Vol. 97 Chapter 977 and Episodes 981–983.
+ One Piece Manga and Anime — Vol. 97 Chapter 978 and Episode 982.
+ One Piece Manga and Anime — Vol. 97 Chapter 979 and Episode 984.
+ One Piece Manga and Anime — Vol. 97 Chapter 980 and Episodes 985–986.
+ One Piece Manga and Anime — Vol. 97 Chapter 981 and Episode 987.
+ One Piece Manga and Anime — Vol. 97 Chapter 982 and Episode 989.
+ One Piece Manga and Anime — Vol. 97 Chapter 983 and Episode 990.
+ One Piece Manga and Anime — Vol. 97 Chapter 984 and Episode 991.
+ One Piece Manga and Anime — Vol. 98 Chapter 985 and Episodes 993–994.
+ One Piece Manga and Anime — Vol. 98 Chapter 986 and Episode 995.
+ One Piece Manga and Anime — Vol. 98 Chapter 987 and Episodes 996–997.
+ One Piece Manga and Anime — Vol. 98 Chapter 988 and Episode 998.
+ One Piece Manga and Anime — Vol. 98 Chapter 989 and Episode 999.
+ One Piece Manga and Anime — Vol. 98 Chapter 990 (p. 10-12, 16-17) and Episode 1001.
+ One Piece Manga and Anime — Vol. 98 Chapter 991 (p. 2-9) and Episode 1002.
+ One Piece Manga and Anime — Vol. 98 Chapter 993 (p. 6-9) and Episode 1005.
+ One Piece Manga and Anime — Vol. 98 Chapter 994 (p. 6-7) and Episode 1006.
+ One Piece Manga and Anime — Vol. 99 Chapter 997 (p. 5-6) and Episode 1011.
+ One Piece Manga and Anime — Vol. 99 Chapter 998 (p. 8) and Episode 1012.
+ One Piece Manga and Anime — Vol. 99 Chapter 1000 and Episodes 1014–1015.
+ One Piece Manga and Anime — Vol. 99 Chapter 1001 and Episodes 1016–1017.
+ One Piece Manga and Anime — Vol. 99 Chapter 1002 and Episode 1017.
+ One Piece Manga and Anime — Vol. 99 Chapter 1003 and Episode 1018.
+ One Piece Manga and Anime — Vol. 100 Chapter 1008 and Episode 1024.
+ One Piece Manga and Anime — Vol. 100 Chapter 1009 and Episodes 1025–1026.
+ One Piece Manga and Anime — Vol. 100 Chapter 1010 and Episodes 1027–1028.
+ One Piece Manga and Anime — Vol. 100 Chapter 1011 (p. 5-7) and Episode 1031.
+ One Piece Manga and Anime — Vol. 100 Chapter 1013 (p. 16-17) and Episode 1033.
+ One Piece Manga and Anime — Vol. 100 Chapter 1014 (p. 2-3) and Episode 1034.
+ One Piece Manga and Anime — Vol. 100 Chapter 1015 and Episodes 1036–1037.
+ One Piece Manga and Anime — Vol. 101 Chapter 1017 (p. 6) and Episode 1038.
+ One Piece Manga and Anime — Vol. 101 Chapter 1019 (p. 4) and Episode 1041.
+ One Piece Manga and Anime — Vol. 101 Chapter 1020 (p. 16-17) and Episode 1043.
+ One Piece Manga and Anime — Vol. 101 Chapter 1021 (p. 16) and Episode 1044.
+ One Piece Manga and Anime — Vol. 101 Chapter 1022 (p. 3) and Episode 1045.
+ One Piece Manga and Anime — Vol. 101 Chapter 1023 (p. 16-17) and Episode 1047.
+ One Piece Manga and Anime — Vol. 101 Chapter 1025 and Episodes 1049–1050.
+ One Piece Manga and Anime — Vol. 102 Chapter 1026 and Episodes 1050–1051.
+ One Piece Manga and Anime — Vol. 102 Chapter 1027 and Episodes 1051–1052.
+ One Piece Manga and Anime — Vol. 102 Chapter 1030 and Episode 1055.
+ One Piece Manga and Anime — Vol. 103 Chapter 1036 (p. 17-19) and Episode 1063.
+ One Piece Manga and Anime — Vol. 103 Chapter 1037 (p. 3-16) and Episode 1064.
+ One Piece Manga and Anime — Vol. 103 Chapter 1041 (p. 13-15) and Episode 1068.
+ One Piece Manga and Anime — Vol. 103 Chapter 1042 and Episode 1069.
+ One Piece Manga and Anime — Vol. 103 Chapter 1043 and Episode 1070.
+ One Piece Manga and Anime — Vol. 103 Chapter 1044 and Episode 1071.
+ One Piece Manga and Anime — Vol. 103 Chapter 1045 and Episode 1072.
+ One Piece Manga and Anime — Vol. 103 Chapter 1046 and Episodes 1072–1073.
+ One Piece Manga and Anime — Vol. 104 Chapter 1047 and Episode 1074.
+ One Piece Manga and Anime — Vol. 104 Chapter 1048 and Episode 1075.
+ One Piece Manga and Anime — Vol. 104 Chapter 1049 and Episode 1076, Luffy finally defeats Kaidou after a long intense battle.
+ One Piece Manga and Anime — Vol. 104 Chapter 1050 and Episode 1077, The Ninja-Pirate-Mink-Samurai Alliance is declared the victors of the raid on Onigashima.
+ One Piece Manga and Anime — Vol. 104 Chapter 1051 and Episode 1078.
+ One Piece Manga and Anime — Vol. 104 Chapter 1052 and Episode 1079.
+ One Piece Manga and Anime — Vol. 104 Chapter 1053 and Episode 1080.
+ One Piece Manga and Anime — Vol. 104 Chapter 1055 and Episode 1082.
+ One Piece Manga — Vol. 105 Chapter 1059.
+ One Piece Manga and Anime — Vol. 105 Chapter 1056 and Episode 1083.
+ One Piece Manga and Anime — Vol. 105 Chapter 1057 and Episode 1085.
+ One Piece Manga — Vol. 105 Chapter 1058.
+Site Navigation
+[v · e · ?]
+Straw Hat Pirates
+[v · e · ?]
+Straw Hat Grand Fleet
+[v · e · ?]
+Dawn Island
+[v · e · ?]
+Will of D.
+[v · e · ?]
+Devil Fruit Users
+[v · e · ?]
+Haki Users
+[v · e · ?]
+Pirate Captains
+[v · e · ?]
+Super Rookie
+[v · e · ?]
+Worst Generation
+[v · e · ?]
+Four Emperors
+[v · e · ?]
+Impel Down
+[v · e · ?]
+Dadan Family
+[v · e · ?]
+Ninja-Pirate-Mink-Samurai Alliance
+[v · e · ?]
+East Blue Inhabitants
+[v · e · ?]
+Davy Back Fight
+[v · e · ?]
+Baratie
+[v · e · ?]
+Calm Belt
+[v · e · ?]
+Corrida Colosseum
+[v · e · ?]
+Prisoner Mine
+[v · e · ?]
+Individuals with Bounties
+[v · e · ?]
+Romance Dawn
+[v · e · ?]
+Early One Piece
+[v · e · ?]
+Kuja
+[v · e · ?]
+Whitebeard Pirates
+[v · e · ?]
+Pirates Festival
+Categories
+Languages
+Community content is available under CC-BY-SA unless otherwise noted.
+More Fandoms
+Fantasy One Piece
+
+
+Recent Images
+Super White Bear Color Scheme.png
+Super White Bear
+8 hours ago
+Gan Fall Color Scheme.png
+Gan Fall
+11 hours ago
+Su Color Scheme.png
+Su
+11 hours ago
+
+New images
+37,964
+images on this wiki
+Upload new image
+See all images...
+Join the Discussion!
+
+Discussions
+Others Like You Also Viewed
+Monkey D. Luffy
+Monkey D. Luffy
+Monkey D. Luffy/History/Final
+Monkey D. Luffy/History/Final
+Joy Boy
+Joy Boy
+Kaidou
+Kaidou
+Charlotte Linlin
+Charlotte Linlin
+Gomu Gomu no Mi/Gear 5 Techniques
+Gomu Gomu no Mi/Gear 5 Techniques
+Nika
+Nika
+One Piece Wiki
+One Piece Wiki
+Monkey D. Luffy/History
+Monkey D. Luffy/History
+
+Popular Pages
+Story Arcs
+Story Arcs
+Joy Boy
+Joy Boy
+Chapter 1123
+Chapter 1123
+Vegapunk
+Vegapunk
+Monkey D. Luffy
+Monkey D. Luffy
+
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+One Piece Wiki is a FANDOM Anime Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Check out Fandom Quizzes and cha
+Search this wiki
+Search all wikis
+
+
+One Piece Wiki
+Explore
+World
+Media
+Community
+Help
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Sign In
+Register
+One Piece Wiki
+One Piece Wiki
+7,352
+pages
+Explore
+World
+Media
+Community
+Help
+
+
+Monkey D. Luffy/History/Final
+< Monkey D. Luffy‎ | History
+Sign in to edit
+Play Sound
+Introduction
+Gallery
+Personality
+Relationships
+Abilities and Powers
+History
+East Blue
+Paradise
+Summit War
+New World
+Whole Cake
+Wano
+Final
+Non-Canon
+Misc.
+Featured Article	Ahoy! This here is the 1st Featured Article.
+"Monkey D. Luffy" has been featured, meaning it was chosen as an article of interest.
+Monkey D. Luffy
+Anime post-timeskip
+Anime pre-timeskip
+Manga post-timeskip
+Manga pre-timeskip
+Anime post-timeskip
+Statistics
+Japanese Name:
+モンキー・Dディー・ルフィ
+Romanized Name:
+Monkī Dī Rufi
+Official English Name:
+Monkey D. Luffy
+Debut:
+Chapter 1;[1] Episode 1[2]
+Affiliations:
+Straw Hat Pirates;
+Straw Hat Grand Fleet;
+Four Emperors;
+Clan of D.;
+Dadan Family (former);
+Baratie (temporary, former);[3]
+Impel Down (former);
+Ninja-Pirate-Mink-Samurai Alliance (disbanded)
+Occupations:
+Pirate Captain;[2] Emperor;[4] Senior Captain of the Grand Fleet; Prisoner (former); Chore Boy (temporary, former);[3] Bandit (former)
+Origin:
+East Blue (Goa Kingdom)[1]
+Residence:
+Foosha Village (former);
+Mt. Colubo (former);
+Rusukaina (former)
+Alias:
+Lucy (ルーシー, Rūshī?)[5]
+Luffy-tarou[6] (ルフィ太郎, Rufitarō?, English versions: "Luffytaro")[7]
+Luffy-no-Umi (ルフィの海, Rufinoumi?)[8]
+Joy Boy (ジョイボーイ, Joi Bōi?)[9]
+Epithet:
+Straw Hat Luffy (麦わらのルフィ, Mugiwara no Rufi?)[10]
+Status:
+Alive
+Age:
+7 (debut);
+17 (pre-timeskip);[11]
+19 (after timeskip)[12][13]
+Birthday:
+May 5th (Children's Day)[14]
+Height:
+91 cm (3') (debut, child)[6]
+172 cm (5'8") (pre-timeskip)[15]
+174 cm (5'9") (after timeskip)[12][13]
+Blood Type:
+F[16]
+Bounty:
+Beli3,000,000,000[17]
+Beli1,500,000,000[18]
+Beli500,000,000[19]
+Beli400,000,000[20]
+Beli300,000,000[21]
+Beli100,000,000[22]
+Beli30,000,000[23]
+Japanese VA:
+Mayumi Tanaka;
+Urara Takano (OVA)
+Odex English VA:
+Chuck Powers
+4Kids English VA:
+Bella Hudson
+Funi English VA:
+Colleen Clinkenbeard
+Live-Action Portrayal:
+Iñaki Godoy;
+Colton Osorio (young)
+Devil Fruit
+Japanese Name:
+Gomu Gomu no Mi
+(Hito Hito no Mi, Model: Nika)
+English Name:
+Gum-Gum Fruit
+(Human-Human Fruit, Model: Nika)
+Meaning:
+Rubber; Human; Nika
+Type:
+Paramecia[24]
+(Mythical Zoan)[25]
+
+Contents
+1	Final Saga
+1.1	Egghead Arc
+2	References
+3	Site Navigation
+Final Saga
+Egghead Arc
+Once the Sunny landed at the bottom of Wano Country's waterfall and the Straw Hats recovered, Luffy was severely beaten by Nami and placed in a cage; he apologized for his reckless actions and pleaded to be let out.[26] Later, Luffy was released and learned from the newspaper that Nefertari Vivi was missing, her father Nefertari Cobra was dead and Sabo was credited with his killing. Luffy grew angry and distressed at this, proclaiming that Sabo would never do something like that and wanting to go to Mary Geoise to rescue Vivi. However, Zoro talked him down, saying it would be foolish to attack the city and that they needed to let Vivi live her own life until they knew for sure it was necessary to act. Robin then revealed the news that Buggy was now one of the Four Emperors, which a surprised Luffy believed was a mistake. She offered to share more news regarding other people Luffy knew, but Luffy declined unless it was truly bad. Luffy then reaffirmed Sabo's innocence and revealed the dream he had shared to Sabo and Ace 12 years ago; the revelation of this dream provoked a strong response from the Straw Hats, with reactions ranging from delighted laughter to stunned silence. However, everyone supported it and expressed a drive to find the final Road Poneglyph that would allow them to reach Laugh Tale.
+
+Days later, the Straw Hats entered a bitterly cold area as they drew closer toward their next island. Luffy saw a gigantic warm eddy and then noticed something inside of it, causing Zoro to cut it open. The strong winds blew Chopper overboard and Luffy stretched out to grab him, but was swept overboard as well. The mysterious figure then emerged from the eddy, revealing herself to be a child Jewelry Bonney.[27] Luffy stretched out his other arm to grab Bonney, but they were then attacked by a giant Mecha-Shark living in the water, causing the three of them to fall into the ocean. Jinbe dove in to save them, and was forced to take them deep down to escape the Mecha-Shark. They made their way to a cave in the coast of the island, where they dried their clothes and Bonney explained to Luffy that she was a fellow member of the Worst Generation. Luffy wished to look for a restaurant to get food, but Bonney said he would not find one as this was the Future Island Egghead, which contained Vegapunk's laboratory.[28] Bonney revealed that she came here to take revenge on Vegapunk for turning her father into a mindless cyborg.
+
+Fabiriophase
+Luffy, Jinbe, Chopper, and Bonney in the Fabiriophase.
+
+Luffy, Chopper, Jinbe, and Bonney ventured into the cave and accessed Egghead's surface via a ladder, where they found themselves surrounded by futuristic machines. However, Luffy found that a lot of the creatures and food around him were nothing more than holographic illusions. Atlas, a satellite of Vegapunk, then appeared and Luffy punched her to see if she was real, causing her to get angry and punch him back. However, he landed against the Cooking Machine which could make any food on demand, which he, Chopper, and Bonney gorged on. When Jinbe asked Atlas who she was, she responded that she was Vegapunk, which Luffy and Chopper took at face value.[29] Once the group had eaten their fill, Atlas departed, and Luffy discovered a machine which gave him new clothes. The rest of the group used the machine as well, but were then approached by a police Pacifista which attacked them for using the cooking and clothing machines without paying. Luffy moved to launch a counterattack against it, but was kicked away by Bonney, who believed that the Pacifista was her father Kuma. Knowing this was not the case, Luffy rushed to save her from its laser attack.[30] Following the blast, Bonney used her Devil Fruit ability to change everyone's ages, causing the Pacifista to no longer recognize them. As they recovered, they talked with Bonney about Kuma's past and how he came into the World Government's service.[31]
+
+Vegapunk's Dream
+Luffy meets Vegapunk.
+
+Luffy's group resumed exploring Egghead, and came to the ruins of a very old mecha in a big scrap heap.[32] While trying to get it to activate, a sudden burst happened as an old man, the original Vegapunk, appeared with half of his body inside the mecha due to a failed teleportation experiment. Luffy pulled him out, and noticed that he was floating, which Vegapunk revealed was a function of the DOM Shoes they were all wearing. However, their attempts to activate this caused them to blast high into the air.[33] Following this, Vegapunk explained more about himself to the pirates, including how he split his consciousness into six satellites which included Atlas. Bonney then tried attacking Vegapunk with his Beam Saber invention, but fainted after the beam attracted a horde of bugs. Vegapunk talked to Luffy about Momonosuke and his dragon transformation, revealing it was the result of his artificial Devil Fruit creation. Luffy then asked about the mecha, and Vegapunk revealed that it was the Iron Giant, which had been built 900 years ago and attacked Mary Geoise 200 years ago. Vegapunk then asked Luffy to take him off of Egghead.[34] When Luffy asked why, Vegapunk revealed his main dream of creating a free and abundant energy source for the whole world, an energy which once powered the Iron Giant centuries ago. However, this research caused him to delve too deep into forbidden history, resulting in the World Government now looking to eliminate him. Vegapunk then noted that CP0 was now on Egghead, and reiterated his request to sail with Luffy. Luffy agreed because he liked the scientist's funny-looking head, and Vegapunk requested he take Bonney to the Labophase above the clouds before this area became a warzone, saying he would meet them up there as he suddenly disappeared into thin air.[35]
+
+Luffy Vs Lucci Rematch
+Luffy and Lucci clash after two years.
+
+As Luffy's group started heading to the requested location, they ran into Rob Lucci, who had just taken down Atlas using Rokuogan.[36] Initially ambivalent toward Lucci, Luffy became angry upon seeing what had happened to Atlas due to Atlas giving him food, and activated Gear 5 to fight the CP0 agent. Lucci countered by activating his awakened leopard Zoan form, and the two of them engaged in a fierce battle. In the midst of their sparring, Sentomaru arrived with the Seraphim S-Snake, S-Hawk, and S-Bear to counter CP0's invasion, but was struck down by Lucci while distractedly conversing with Luffy.[37] Sentomaru managed to remain conscious to prevent CP0 from assuming control over the Seraphim, and Luffy used his environment and awakened abilities to keep Lucci away from him, overwhelming the CP0 agent. Sentomaru told Luffy to go and get Vegapunk off Egghead, and Luffy joined Chopper, Jinbe, and a now-conscious Bonney as they took the Vacuum Rocket up to the Labophase, which they reached in seconds.[38]
+
+Bonney quickly raced into the Labophase, still intent on getting revenge on Vegapunk, and Luffy and Chopper raced after her to stop her. He, Chopper, and Jinbe reunited with Nami, Usopp, Sanji, Robin, and Franky, but lost track of Bonney and Vegapunk in the process.[39] Luffy and Chopper went to look for the two of them,[40] but could not find them even after searching the entire Labophase, returning to the control room with the rest of the Straw Hats, all six of the Vegapunk satellites, and undercover CP0 agent/Vegapunk ally Stussy, who had incapacitated Lucci and Kaku. Satellite Shaka noted that they had lost control over the Frontier Dome that protected the Labophase from outside attack, meaning they were unable to get out of it. He told the group to do what they could to find the main Vegapunk, and as they all dispersed, Luffy remained in the room along with Zoro to recover from his exhaustion and watch over Lucci and Kaku.[41] Originally able to hear everyone through a headset, the signal cut out and Luffy went to Shaka to find out what was going on. Shaka revealed that the camera feeds around the Labophase were being rapidly cut off, meaning there was an enemy on the loose inside the Labophase. Zoro then called for help, and Luffy and Shaka raced to him to find S-Hawk and S-Bear had arrived. The two Seraphim began attacking despite Shaka's orders, making him realize that one of the Vegapunks had ordered them to attack.
+
+Luffy attacks S-Bear
+Luffy repeatedly punches S-Bear although with no lasting damage.
+
+Now conscious, Lucci and Kaku proposed that Luffy and Zoro free them of their Seastone shackles so they could team up against the Seraphim, which the two Straw Hats found unappealing.[42] Kaku promised they would go back in handcuffs once they were finished, and Luffy believed this, forcing Zoro to explain Kaku was lying. However, Luffy ultimately agreed to free them, saying he would beat them if they tried going after his friends. Luffy activated Gear 4 and he and Lucci performed a combined attack against S-Bear, while Zoro and Kaku attacked S-Hawk.[43] Despite their powerful combined attacks, the Seraphim were able to get up little worse for wear; however, Zoro did notice that their physiologies were similar to King, who was a member of the rare Lunarian Tribe. As the battle raged on, Shaka departed to join the search for the main Vegapunk.[44] With the knowledge that the Seraphim's strength was dependent on the flames on their backs, Luffy's group moved to diminish those flames, to little initial success. S-Hawk then disappeared suddenly, and Lucci revealed that it was going to eliminate its weakest targets first. Zoro raced after it, and Luffy told Kaku to go with Zoro before turning his attention back to S-Bear.[45] At some point, Luffy approached S-Snake while calling her Hancock, and requested she undo the petrification on his friends, which she agreed to do due to her seeming affection for Luffy.
+
+York Captured
+York being held captive by the Straw Hats and CP0.
+
+By the next day, the culprit, York was eventually found and outmatched by the Straw Hat Pirates and their allies, who subdued and chained her to the ground.[46] The entire group then listened in on York's forced conversation with the five elders. After York had revealed she had been captured by the Straw Hats, surprising the elders and everyone else listening, Luffy stated while eating that he did not fully understand the situation, but was prepared to use York as a shield against the Marines, prompting Bonney to state that they were in a hostage situation.[47] Luffy then introduced himself to the Five Elders, and stated that he and his crew were Vegapunk's allies, and that if they care about York's safety, they should call off the Marine fleet at the shore, surprising everyone in the room. Just as he was about to tell the elders who is alive in the Labophase with him, Robin stopped him from telling them too much. Luffy then apologized and asked them nicely to back down, with Usopp angrily telling him to quit dreaming.
+
+Later in the Labophase, when Vegapunk talked to Nami about their next destination, Luffy and Usopp both got excited when Vegapunk stated that one of the needles Nami's log pose was pointing towards leads to Elbaf. They then made plans with Vegapunk to escape Egghead using Vegaforce-01 to carry the Sunny over the Marine fleet, and then use a Coup de Burst to finish escaping, but first, they needed to deactivate the frontier dome. When Vegapunk tasked Lilith with piloting the robot, Franky, Luffy, and Bonney went with her to the robot and the Sunny, with Lilith being happy that she finally got to leave the island and Luffy and Bonney both stating that they would miss the food, but Luffy then told her that Sanji would just cook for them, exciting Bonney. When Luffy asked Bonney why she was in such a good mood, she told him that she felt better now that she no longer wanted Vegapunk dead, with Luffy thanking her for finally stop crying, leading her to yell at him. As the group arrived at the Thousand Sunny, Luffy felt an intense presence below as Kizaru warped onto the island.[48] While Vegaforce-01 began to move the Thousand Sunny to the back of the island, with Luffy and his group being carried by it as well, Kizaru swiftly defeated Sentomaru. Kizaru wasted no time, and quickly warped up to the Labophase using his Devil Fruit. Luffy noticed this, and while his group continued to flee with the Thousand Sunny, he chose to confront Kizaru alone. The two shared a short greeting that was interrupted by Luffy instantly going for a strike against Kizaru, who blocked. Luffy then proudly declared that he and his crew were 100 times stronger than they were two years prior, with both Luffy and Kizaru starting to fight each other.[49]
+
+Luffy Grabs Borsalino
+Luffy protecting Vegapunk from Kizaru.
+
+Transforming into "Snake-Man" and barraging Kizaru with a flurry of punches, it forced Kizaru on the defensive as he attempted to block. Kizaru admitted that Luffy had become quite the opponent, and inquired as to why he would choose to help Vegapunk. While responding to Luffy asking him the opposite, Kizaru warped far away, which left Luffy wondering how far away he went. Kizaru stated that he didn't actually want to kill Vegapunk, and that Luffy needed to stay out of his way. Kizaru then warped back, kicking Luffy at the speed of light, and launching him straight through the Vegaforce-01, causing it to drop the Thousand Sunny and subsequently explode in the process. The impact didn't slow Luffy down, however, and he flew right into the Frontier Dome, causing an explosion. Luffy fell down all the way down to the lower part of Egghead, and once again had to pass through the Frontier Dome on his way back up, severely burning him in the process. Just before Kizaru could kill Vegapunk, Luffy revealed himself in his Gear Fifth form and grabbed Kizaru with his giant hand, much to Kizaru's horror.[50]
+
+Gomu Gomu no Dawn Stamp
+Luffy fighting Kizaru's clones.
+
+Luffy lifted the now calm Kizaru into the air and ignored his remarks as he revved up a throw. Luffy then flung Kizaru right out of the Labophase, and off of Egghead itself. During this short down-time, Luffy shrinks back down to his regular size. Not too much later, many orbs of light begin to appear from Kizaru, which then all form into clones of Kizaru, much to Luffy's shock. Luffy is slashed across the cheek by one of the clones, and decides to retreat a bit, allowing him to take all of the Kizaru clones out in a single attack. Before Luffy could even catch his breath, he turns around to witness Usopp, Nami, and Brook being attacked by another Kizaru clone. To make matters worse, a different Kizaru clone was attempting to shoot the fleeing Vegapunk using a laser, forcing Luffy to take the laser blast by eating it, causing him pain from burning.[51]
+
+Gomu Gomu no White Star Gun
+Luffy strikes down Kizaru.
+
+Luffy managed to shrug off the laser, and went on to battle Kizaru himself. The two traded blows equally, but Kizaru commented that fighting Luffy was not in his interests, nor was it part of his job at the moment. Luffy stated that it was his own job to keep Kizaru occupied, but Kizaru responded by simply teleporting away using his Devil Fruit ability. Luffy angrily followed him as Kizaru made his way to intercept Vegapunk and kill him before he could make it back to the Labophase. Kizaru ended up failing to kill Vegapunk, although he did prevent him from making his way back up, resulting in Vegapunk falling back down to the Fabiriophase. Luffy managed to arrive in time to prevent Kizaru from causing more damage, and Kizaru inquired on how much longer Luffy could hold his transformation for. Kizaru fired a laser as Luffy prepared an attack, but to Luffy's benefit, the laser gave him the momentum he needed to spin around and strike Kizaru in the side of the head, landing a critical blow. Kizaru was launched through a building, while Luffy himself finally gave out and fell as well.[52]
+Saturn Targets Luffy
+Luffy being targeted by Saturn.
+
+Luffy found himself completely worn out, unable to fight anymore. Jaygarcia Saturn, who had been spectating the fight between Luffy and Kizaru, decided to take advantage of this moment of weakness. Saturn went for a finishing strike on Luffy using one of his legs, but at the last second, Franky used Strong Right to punch Luffy out of the way, saving his life. Franky retracted his arm and pulled Luffy away from Saturn, who noted that it was interesting how Luffy's crew stuck together. Saturn then declared that Luffy and Jewelry Bonney's presence on the island was unexpected, but of no consequence.[53] Still worn out, Luffy asked for food and meat to replenish his stamina, but was unable to get help. However, through unknown means, he managed to get a pile of food and began eating, leading to Saturn ordering the Marines in the area to place seastone cuffs on him.[54] However, after the sudden appearance of Bartholomew Kuma, who saved his daughter and punched Saturn, the Marines reported that Luffy had vanished before they could restrain him.[55] Luffy was later found near the food dispensers by the Marines, who tried to apprehend him while he was still bloated from over-eating.[56]
+
+Gomu Gomu no Dawn Gatling
+Luffy pummels Saturn.
+
+Before the Marines could place seastone cuffs on Luffy, they were launched into the air by an explosion. Luffy then activated Gear Fifth again and used it to save Kuma and Bonney from Kizaru by punching the Admiral away. He also turned the ground of Egghead rubbery to let Sanji, Franky, Bonney, Kuma and Atlas land safely, and the Marines remarked that the island seemed to be shaking as a result of his power. Finally, Luffy jumped into the air laughing in his signature Nika pose, and the injured Vegapunk informed Bonney that Luffy was indeed Sun God Nika.[57] Luffy spotted Bonney and asked why she was crying, Bonney replied it was because she was looking for him and didn't realize that he was Nika (to which Luffy was not aware of either). Luffy then asked her what was up with the weak punch she tried throwing, she replied that she tried to use a rubbery punch like his and told him to show her how it's done and to avenge Vegapunk, who was stabbed by Saturn. Luffy was surprised to see Vegapunk injured but quickly agreed to avenge him after he was mocked by Saturn, and he then used a new move called Dawn Gatling to attack the Elder and send him flying into a building. Kizaru then attempted to kill Bonney and Vegapunk with a laser but it was blocked by Sanji, and the Admiral then grew dismayed at the situation he was in as he prepared to face off against Luffy and Sanji.[58]
+
+Gomu Gomu No Dawn Cymbal
+Luffy smashes Kizaru and Saturn together.
+
+Vegapunk told the pair he could not move lest he die from his wounds. Luffy reminded Vegapunk of their promise to him, but Vegapunk declared that he had to protect things on Egghead, and asked him to look after Bonney now that her control over the Pacifista was known to the Marines. At this point, Saturn returned in his Beast form and attacked the group with venom-coated legs. Luffy dodged and instructed Sanji to bring Vegapunk to safety over the latter's protests, only for Kizaru to impale Vegapunk. Sanji quickly hurried off to protect Vegapunk from further harm as Luffy grew to a tremendous size, grabbed Kizaru and Saturn and told the pair he would not let them escape.[59] Luffy heard Vegapunk's broadcast begin while he was still holding onto Kizaru and Saturn, although he was confused by it. Moments later, he realized that his punches had little effect on Saturn, prompting both the Elder and Kizaru to attempt attacks on him. Both attacks missed, but Luffy decided that he would continue to hold both of them back until his friends had a chance to escape Egghead. Luffy then unleashed a new attack titled Dawn Cymbal, pancaking Kizaru and Saturn together. He then flung the two away, with Kizaru crashing into a Marine ship, but Saturn somehow changed his trajectory and flew right back at Luffy. He was forced to dodge Saturn's attacks, and was left dumbfounded as Magic Circles began to appear all around his adversary.[60]
+
+Sun Saw
+Luffy reunites with Dorry and Brogy.
+
+Luffy then witnessed the rest of the Five Elders appear from the circles before him in their Awakened Zoan Forms, while Luffy dodged Saturn's attack he noted the Sandworm was burrowing underground. When the Sandworm swallowed him, Dorry and Brogy arrived and decapitated it, freeing Luffy, who was overjoyed to see them again.[61] Luffy and the Giants were both both glad to see each other after two years and they were also surprised to see his Gear 5 appearance, remarking that it was identical to a God in Elbaf. They explained the current situation to Luffy and how it was time to escape from Egghead, Dorry blew his Viking horn, signaling this message to his crew. Topman Warcury then arrived, and stated that escape was impossible and used a roar burst of Haoshoku Haki, that stripped off Luffy’s eyes, hat, shoes, cuffs, and his scar's (placing them back afterward). Warcury questioned why the Giant's decided to help Luffy and went on the offensive but was then knocked away by the Giants and Saturn intervened stating they would be erased from history along with Luffy and proceeded to fire venom balls at them. Luffy then grabbed a nearby tree and chipped away at it using his teeth, turning it into a baseball bat. He then painted it, put the number 56 on it , and put on a baseball helmet to knock the venom balls back at the Elders, which to his surprise, caused an explosion. Luffy then told the Giant's that it was time to run as the Elders were immortal and they would keep coming back no matter what attack they use.[62]
+
+Luffy Attacks Warcury
+Luffy attempts to attack Warcury.
+
+As the trio began to make their escape once more, Ju Peter used one of his abilities to make his large mouth similar to a vortex, causing Luffy and his allies to be stopped and potentially sucked in. In response, Luffy broke a nearby building, and proceeded to throw it straight into Ju Peter's mouth, effectively neutralizing him for the time being. However, the exertion caused Luffy to run out of stamina, resulting in him returning to his regular form. To Luffy's luck, Brogy offered him some of their Hákarl, which effectively revitalized him in seconds. Just as Luffy regained his strength, Warcury made a reappearance in the form of a charge. In response, Luffy attempted to use Gomu Gomu no Red Roc, striking Warcury's head. To Luffy's detriment, he found Warcury's skin to be exceptionally durable, resulting in his hand being hurt.[63] As the three ran, Warcury's flames begun to catch up to Dorry and Brogy, Luffy enters Gear 5th form again and tries to stop Warcury. Brogy warned Luffy that attacking Warcury would not work, only for him to strike Warcury, leading Luffy to hurt his hand once more, forcing them to flee.[64][65]
+
+Bonney And Luffy Become Nika
+Luffy and Bonney transform.
+
+To their luck, Warcury and Ju Peter eventually abandoned their pursuit and left to deal with more important matters, allowing the three to escape undeterred.[66] After running for quite some time, the trio managed to finally arrive at the Giant's ship, leaping on just as it was preparing to depart Egghead. Luffy almost immediately expressed his approval of the ship, although he was also concerned about the status of Usopp and Chopper, whom he expected to be there. In order to regain his strength, Luffy quickly ate a pre-made meal for him by the ship's cook, asking the cook to make even more for later. During this time, Marcus Mars used his ability to chase after the ship, firing an energy beam, and catching part of the ship on fire. Mars would go on to declare that none of them would escape alive. Due to the apparent threat, Luffy transformed back into his Gear 5 form and encountered Bonney, asking her for assistance. She began to discount her abilities compared to his, but Luffy responded by giving her words of encouragement, allowing Bonney to realize her potential. Bonney used her ability to transform into a similar form to Luffy's, growing to the size of a giant and gaining similar features.[67]
+
+Gomu Gomu No Dawn Balloon
+Luffy uses Gomu Gomu No Dawn Balloon to blast Mars away.
+
+Luffy expressed his excitement about the upcoming fight, and Bonney's new abilities, inspiring the Giants, and terrifying the Marines in the process. Unfortunately, Mars decided to make his move at the same moment, firing an energy beam at Luffy, and burning him. Luffy quickly ordered his allies to strike him as hard as they could, while he grabbed ahold of Mars. Luffy used his abilities to balloon his torso, but was still met with severe pain as his allies used Haki to strike him from behind. Despite this, Luffy shoved Mars into his chest as the former prepared his attack. Using his own strength, and that of his allies, Luffy used Gomu Gomu No Dawn Balloon to blast Mars far into the distance, sending him flying out of sight. Moments later, Peter would make another attempt to prevent escape by sucking up the Giant's ship. Luffy struck Peter to stop the attack, but was unable to prevent Warcury from running by. Warcury jumped off the coastline in an attempt to stop the ship, but suddenly, the Iron Giant made a surprise appearance by punching Warcury away, shocking Luffy.[68]
+
+Liberating Nika Punch
+Luffy and Bonney overwhelm Saturn.
+
+The Iron Giant would then turn to Luffy, although he was confused when it addressed him as Joy Boy. The robot declared its intention to fight for Luffy, and moved to face the Elders in his steed. Luffy would later be shocked as the Giant's weapons failed, resulting in it being damaged. To make matters worse, Saturn used the moment to leap onto the Giant Warrior Pirates' ship, declaring that he refused to let Bonney and Kuma escape him.[69] Saturn quickly went on the attack, using his legs to attempt to stab the Giants and Bonney. Luffy quickly leaped to Bonney's defense, preventing Saturn from harming her while she made her recovery. After a few moments, Bonney was restored to full strength, and declared her own intention to defeat Saturn. Saturn mocked her abilities, but Luffy joined her at her side. The two unleashed a flurry of punches strong enough to blow holes through Saturn's body, knocking him back off of the ship. While this occurred, Vegapunk's pre-recorded message to the world continued and neared it's end, as Luffy laughed cheerfully unaware that Vegapunk informed everyone that the fate of the world would be in the hands of whoever was able to find the One Piece.[70]
+
+Straw Hats And Giants Celebrate
+Luffy is forced to celebrate, despite being incapacitated.
+
+Moments later, Luffy looked back to the Iron Giant to find it severely damaged, due to attacks from the Elders. The Iron Giant apologized to Luffy for mistaking him for Joy Boy, before asking for his name. Luffy shouted his name to the Giant, who immediately took notice of the "D." in it. The Iron Giant then undid a knot somewhere on its body, resulting in a massive burst of Joy Boy's Haki suddenly being unleashed upon the entire island. Luffy was left completely shocked as the Haki forced most of the Five Elders back to Mary Geoise, knocked out most of the Marines, and made escape a much easier task. At the same time, the Sunny landed near Luffy, who was questioned by his crew on what had happened, although he simply stated that he had no idea.[71] After taking in the situation, Luffy yelled back a thank you to the Iron Giant, and laughed when he got no response, as the machine was no longer powered. Moments later, Luffy's stamina ran out again, and he dropped back down onto the Sunny, where he was cradled by a concerned Nami. At the same time, the Giants announced that they were heading out. While partying, Brogy picked up Luffy for the celebration, but the pirate weakly begged for them to wait for him to regain his strength.[72]
+
+References
+ One Piece Manga and Anime — Vol. 1 Chapter 1 (p. 5) and Episode 4, Luffy is first introduced.
+ One Piece Manga and Anime — Vol. 1 Chapter 2 (p. 8) and Episode 1, Luffy debuts in the present.
+ One Piece Manga and Anime — Vol. 5 Chapter 44 (p. 2-20) and Episode 21, Luffy works off his debt to Zeff.
+ One Piece Manga and Anime — Vol. 104 Chapter 1053 (p. 17) and Episode 1080, Luffy became recognized as one of the Four Emperors.
+ One Piece Manga and Anime — Vol. 71 Chapter 703 (p. 16) and Episode 633, Luffy's alias in Dressrosa is revealed.
+ Vivre Card - One Piece Visual Dictionary (Card #0001), Luffy-tarou is romanized.
+ One Piece Manga and Anime — Vol. 91 Chapter 914 (p. 7) and Episode 900, Luffy's first alias in Wano is revealed.
+ One Piece Manga and Anime — Vol. 91 Chapter 916 (p. 8) and Episode 903, Luffy's second alias in Wano is revealed.
+ One Piece Manga and Anime — Vol. 103 Chapter 1043 (p. 16-17) and Episode 1070, Zunesha declares Joy Boy's return.
+ One Piece Manga — Vol. 1 Chapter 2 (p. 3), Luffy's epithet is written in the title of the chapter.
+ SBS One Piece Manga — Vol. 4 (p. 28), Luffy's age is revealed.
+ One Piece Blue Deep: Characters World (p. 186), Luffy's profile after timeskip is revealed.
+ SBS One Piece Manga — Vol. 69 (p. 66), Luffy's age and height after timeskip are revealed.
+ SBS One Piece Manga — Vol. 15 (p. 90), Luffy's birthday is revealed.
+ SBS One Piece Manga — Vol. 10 (p. 46), Luffy's height is revealed.
+ SBS One Piece Manga — Vol. 66 (p. 162), Oda explains the blood types of the world and reveals Luffy's blood type.
+ One Piece Manga and Anime — Vol. 104 Chapter 1053 (p. 4-5) and Episode 1080, Luffy's bounty as one of the new Four Emperors.
+ One Piece Manga and Anime — Vol. 90 Chapter 903 (p. 16-17) and Episode 879, Luffy's sixth bounty after Whole Cake Island.
+ One Piece Manga and Anime — Vol. 80 Chapter 800 (p. 7) and Episode 745, Luffy's bounty is stated to have risen after Dressrosa.
+ One Piece Manga and Anime — Vol. 61 Chapter 601 (p. 12) and Episode 521, Luffy's fourth bounty after the Summit War of Marineford.
+ One Piece Manga and Anime — Vol. 45 Chapter 435 (p. 16-17) and Episode 320, The crew members' bounties for attacking Enies Lobby are revealed.
+ One Piece Manga and Anime — Vol. 23 Chapter 213 (p. 22) and Episode 128, Luffy's bounty is raised after Arabasta.
+ One Piece Manga and Anime — Vol. 11 Chapter 96 (p. 6) and Episode 45, Luffy's first bounty is put by Brannew in the wanted list.
+ SBS One Piece Manga — Vol. 30 (p. 104), Gomu Gomu no Mi is confirmed to be a Paramecia.
+ One Piece Manga and Anime — Vol. 103 Chapter 1044 (p. 4-6) and Episode 1071, The Five Elders discuss the nature of Luffy's Devil Fruit.
+ One Piece Manga and Anime — Vol. 105 Chapter 1058 (p. 2-3, 5) and Episode 1086.
+ One Piece Manga and Anime — Vol. 105 Chapter 1060 (p. 3-10, 16-19) and Episodes 1088–1089.
+ One Piece Manga and Anime — Vol. 105 Chapter 1061 (p. 2-8, 12-13) and Episodes 1089–1090.
+ One Piece Manga and Anime — Vol. 105 Chapter 1062 (p. 7-15) and Episode 1091.
+ One Piece Manga and Anime — Vol. 105 Chapter 1063 (p. 2-9) and Episode 1092.
+ One Piece Manga and Anime — Vol. 105 Chapter 1064 (p. 10-12) and Episode 1094.
+ One Piece Manga and Anime — Vol. 105 Chapter 1065 (p. 18-19) and Episode 1095.
+ One Piece Manga and Anime — Vol. 106 Chapter 1066 (p. 15-17) and Episode 1096.
+ One Piece Manga and Anime — Vol. 106 Chapter 1067 (p. 2-12) and Episodes 1097–1098.
+ One Piece Manga and Anime — Vol. 106 Chapter 1068 (p. 6-9, 11-12) and Episodes 1098–1099.
+ One Piece Manga and Anime — Vol. 106 Chapter 1068 (p. 16-17) and Episode 1099.
+ One Piece Manga and Anime — Vol. 106 Chapter 1069 (p. 2-4, 6-17) and Episodes 1099–1100.
+ One Piece Manga and Anime — Vol. 106 Chapter 1070 and Episodes 1101–1102.
+ One Piece Manga and Anime — Vol. 106 Chapter 1071 (p. 9, 13-14) and Episode 1102.
+ One Piece Manga and Anime — Vol. 106 Chapter 1073 (p. 9) and Episodes 1102–1106.
+ One Piece Manga and Anime — Vol. 106 Chapter 1074 (p. 7-11) and Episode 1106.
+ One Piece Manga and Anime — Vol. 106 Chapter 1075 (p. 3, 5-6, 13-15) and Episode 1108.
+ One Piece Manga and Anime — Vol. 106 Chapter 1076 (p. 3-9) and Episode 1109.
+ One Piece Manga and Anime — Vol. 107 Chapter 1077 (p. 4-9) and Episode 1110.
+ One Piece Manga and Anime — Vol. 107 Chapter 1078 (p. 7-9) and Episode 1111.
+ One Piece Manga — Vol. 108 Chapter 1090.
+ One Piece Manga — Vol. 108 Chapter 1089.
+ One Piece Manga — Vol. 108 Chapter 1090.
+ One Piece Manga — Vol. 108 Chapter 1091.
+ One Piece Manga — Vol. 108 Chapter 1092.
+ One Piece Manga — Vol. 108 Chapter 1093 (p. 2-3, 10-14).
+ One Piece Manga — Vol. 108 Chapter 1094 (p. 10, 15-17).
+ One Piece Manga — Vol. 108 Chapter 1095 (p. 5-6).
+ One Piece Manga — Vol. 109 Chapter 1103 (p. 6,9).
+ One Piece Manga — Vol. 109 Chapter 1104 (p. 9).
+ One Piece Manga — Vol. 109 Chapter 1105 (p. 13).
+ One Piece Manga — Vol. 109 Chapter 1106 (p. 2, 12-15).
+ One Piece Manga — Vol. 109 Chapter 1107 (p. 9-14).
+ One Piece Manga — Vol. 109 Chapter 1108 (p. 9-13).
+ One Piece Manga — Vol. 109 Chapter 1109 (p. 3, 8-15).
+ One Piece Manga — Vol. 109 Chapter 1110 (p. 4-7, 13, 16-17).
+ One Piece Manga — Chapter 1111 (p. 8-13, 14-18).
+ One Piece Manga — Chapter 1112 (p. 12-16).
+ One Piece Manga — Chapter 1114 (p. 10, 14-15).
+ One Piece Manga — Chapter 1115 (p. 4).
+ One Piece Manga — Chapter 1117 (p. 13).
+ One Piece Manga — Chapter 1118 (p. 6-7, 9-13).
+ One Piece Manga — Chapter 1119 (p. 6-7, 9-13).
+ One Piece Manga — Chapter 1120 (p. 11-16).
+ One Piece Manga — Chapter 1121 (p. 3-4, 7-17).
+ One Piece Manga — Chapter 1122 (p. 8-13, 15).
+ One Piece Manga — Chapter 1123 (p. 3-5, 17).
+Site Navigation
+[v · e · ?]
+Straw Hat Pirates
+[v · e · ?]
+Straw Hat Grand Fleet
+[v · e · ?]
+Dawn Island
+[v · e · ?]
+Will of D.
+[v · e · ?]
+Devil Fruit Users
+[v · e · ?]
+Haki Users
+[v · e · ?]
+Pirate Captains
+[v · e · ?]
+Super Rookie
+[v · e · ?]
+Worst Generation
+[v · e · ?]
+Four Emperors
+[v · e · ?]
+Impel Down
+[v · e · ?]
+Dadan Family
+[v · e · ?]
+Ninja-Pirate-Mink-Samurai Alliance
+[v · e · ?]
+East Blue Inhabitants
+[v · e · ?]
+Davy Back Fight
+[v · e · ?]
+Baratie
+[v · e · ?]
+Calm Belt
+[v · e · ?]
+Corrida Colosseum
+[v · e · ?]
+Prisoner Mine
+[v · e · ?]
+Individuals with Bounties
+[v · e · ?]
+Romance Dawn
+[v · e · ?]
+Early One Piece
+[v · e · ?]
+Kuja
+[v · e · ?]
+Whitebeard Pirates
+[v · e · ?]
+Pirates Festival
+Categories
+Community content is available under CC-BY-SA unless otherwise noted.
+More Fandoms
+Fantasy One Piece
+
+
+Recent Images
+Super White Bear Color Scheme.png
+Super White Bear
+8 hours ago
+Gan Fall Color Scheme.png
+Gan Fall
+11 hours ago
+Su Color Scheme.png
+Su
+11 hours ago
+
+New images
+37,964
+images on this wiki
+Upload new image
+See all images...
+Join the Discussion!
+
+Discussions
+Others Like You Also Viewed
+Monkey D. Luffy
+Monkey D. Luffy
+Joy Boy
+Joy Boy
+Monkey D. Luffy/History
+Monkey D. Luffy/History
+Straw Hat Pirates
+Straw Hat Pirates
+Vegapunk
+Vegapunk
+Emet
+Emet
+One Piece Wiki
+One Piece Wiki
+Jaygarcia Saturn
+Jaygarcia Saturn
+Monkey D. Garp
+Monkey D. Garp
+
+Popular Pages
+Story Arcs
+Story Arcs
+Joy Boy
+Joy Boy
+Chapter 1123
+Chapter 1123
+Vegapunk
+Vegapunk
+Monkey D. Luffy
+Monkey D. Luffy
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+One Piece Wiki is a FANDOM Anime Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Search this wiki
+Search all wikis
+
 
 
 
