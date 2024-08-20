@@ -1,3 +1,9 @@
+Generate random missions:
+Random place
+Random enemie
+Sometimes random allies
+
+
 This part of the team adventure database:
 
 Jaden's Cards:
