@@ -10740,3 +10740,327 @@ Join Fan Lab
 Search this wiki
 Search all wikis
 
+Mash:
+Mashle Wiki
+Explore
+World
+Characters
+Media
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Mashle Wiki
+Mashle: Magic And Muscles Wiki
+566
+pages
+Explore
+World
+Characters
+Media
+Community
+
+
+in: Subpages, Characters, Male Characters, and 3 more
+Mash Burnedead
+16
+Sign in to edit
+Profile
+Plot
+Image Gallery
+Mash Burnedead
+Anime
+Manga
+Anime
+Japanese Name	Romanized Name
+マッシュ・バーンデッド	Masshu Bāndeddo
+Alias
+Mushroom Head
+Characteristics
+Age
+15 (Debut)
+16
+Gender
+Male
+Hair Color
+Black
+Eye Color
+Yellow
+Height
+171 cm
+Weight
+66.5 kg
+Birthday
+November 11th
+Professional Information
+Affiliation
+Easton Magic Academy
+Occupation
+Student
+Status
+Alive
+Relationships
+Family
+Media
+Manga Debut	Anime Debut
+Chapter 1	Episode 1
+Japanese VA	English VA
+Chiaki Kobayashi
+Reo Osanai (baby)	Aleks Le
+Ezio Vivolo (Italian Dub)
+
+
+Mash Burnedead is the main protagonist of the Mashle series. He is a first-year student at Easton Magic Academy and a member of Adler dorm who was abandoned when he was a child due to lacking a magic mark, meaning that he is unable to use magic.
+
+Regro Burnedead found him and raised him outside the big city, hiding Mash from society and teaching him self-defense. They lived a peaceful life together until one day, Mash heads to the city for some cream puffs. While there, he gains the attention of Brad Coleman due to the absence of a mark, and he goes to his house to find him. Once there, Brad injures Regro, and after an "intense" fight with Mash, they accord that Mash will go to the magic school in order to maintain their peaceful life. Mash agrees and, in that process, he sets his goal to become a Divine Visionary.
+
+
+Contents
+1	Appearance
+2	Personality
+3	Equipment
+4	Powers and Abilities
+4.1	Weaknesses
+5	Relationships
+6	Battles
+7	Trivia
+8	Reference
+Appearance
+Mash is a pale-skinned (with a slight tan) young man of average height with black hair that is styled in a bowl-cut with bangs swept to the right, yellow eyes, a fake magic mark made by Brad Coleman was placed over his left cheek in the form of a lightning bolt (the mark was removed in Chapter 162), he possesses a muscular build and he is often seen wearing a stoic and blank expression on his face.
+
+He is seen wearing two different outfits:
+
+He wears the standard Easton Magic Academy school uniform of a white shirt, black trousers, red tie, brown shoes and black cloak.
+When training, he often wears a black skin-tight under-armor bodysuit with a pair of white shorts over it and he is mostly seen barefoot.
+Personality
+Mash is generally a kind and quiet boy who is often seen displaying little to no emotion and sporting a stoic, dispassionate expression regardless of his circumstances. However, if he sees someone hurting his family or friends, he gets incredibly angry.
+
+He is also extremely innocent and obedient, which leads to him being abused and taken advantage of by others, but thanks to his strength he can twist out of almost every situation. Aside from his outright innocent thought process, he is incredibly blunt as he says things that would be considered rude to others, without a care in the world. He usually combines his bluntness with a sharp sense of wit. He firmly believes in his abilities so much so he downright told the headmaster himself he would "knock the stuffing out of [him]" with his fist. He makes this behavior even more evident throughout his school life, especially his encounter with Carpaccio Luo-Yang, in which he boldly stated that he never met anyone stronger than him with a look of boredom.
+
+While he is blunt, Mash is open to finding a peaceful solution to conflict. He doesn't particular find fighting stronger opponents very exciting despite his incredible strength; he wishes he could simply live his life without worry and just go home.
+
+Mash is shown to be very simple-minded and hates studying, having poor academic performance. Mash is unable to handle too much information at once and will overload.
+
+Equipment
+Mash's wand
+Mash wielding his wand.
+
+Iron Wand (鉄の杖 Tetsu no Tsue): Mash's "wand" is an extremely heavy rod. According to a wand shop owner, not in a thousand years has anyone with strength or Magic have been able to lift it. Mash is able to forcibly change the shape of his wand with his incredible strength. The wand is sturdy enough to withstand Mash's inhuman strength and its mass seems to increase depending on the shape it takes.
+
+Wrist Weights: Mash is constantly seen wearing magic wrist weights to limit his strength. According to his foster father Regro Burnedead, Mash's muscles went out of control, which is why he told him to never take them off.
+
+Cream Puffs: Mash always carries cream puffs (his favorite food) on him.
+
+Powers and Abilities
+Mash muscles
+Mash stopping Abyss Razor's blade with his muscles.
+
+Muscles Magic (マスクルズ 魔法, Masukuruzu Mahō): Mash was born without a magic mark, so he cannot cast spells. Instead, he uses muscle-based techniques to compensate for his lack of magic power. Through his impressive control over his own muscles, Mash is capable of clenching his abdominal muscles to prevent potential blades in his body from being taken out.
+
+The feats he accomplishes with his non-magical techniques are impressive enough to make people believe he's actually using magic. Mash's control over his muscles increased further after his training with Meliadoul Amy, allowing him to perform even greater feats, such as stopping Doom's blade with his ocular muscles, by clenching his eyelids.
+
+Big Bang Dash (ビッグバンダッシュ, Biggu Ban Dasshu): Classified as Hamstring Magic. Mash adopts a starting position and starts to run at an inhuman speed.
+Ballista Knuckle
+Mash punching Silva Iron with his Ballista Knuckle technique.
+
+Ballista Knuckle (バリスタナックル, Barisuta Nakkuru): Classified as Triceps Magic. Mash crosses his fingers then folds them into a fist and runs at an inhuman speed at his opponent to punch them.
+Hell Fall (へル・フォール, Eru Fōru): Classified as Erector Spinae Magic. Mash grabs the enemy, flips them around and pile drives them into the ground.
+Guillotine Kick (ギロチンキック, Girochin Kikku): Classified as Quadriceps Magic. Mash buries the enemy up to their neck by grabbing them from below and dragging them down, then winds up and kicks them in the face.
+Hurricane Rush (ハリケーンラッシュ, Harikēn Rasshu): Classified as Full Muscles Magic. Mash twists his body and folds his right hand into a fist. He then pushes forward and pummels his opponent with a series of blows that sends them slamming into walls.
+Special Art Body Substitution Jutsu
+Mash disrobes himself in a split second.
+
+Special Art Body Substitution Jutsu: Mash quickly takes off his uniform so fast that the clothes do not realize they have been removed and thus remain in human form.
+Barbarian Shot (バーベアリアンショット, Babearian Shotto): Classified as Brachioradialis Magic. Mash thrusts a target with his iron wand in cue stick form with immense force.
+Barbarian Punch (バーベアリアンパンチ, Babearian Panchi): Classified as Deltoid Magic. Mash punches his opponent with immense force.
+Python Choke (パイソンチョーク, Paison Choku): Classified as Biceps Magic. Mash chokes his opponent by locking his bicep around their neck causing them to pass out and hallucinate from hypoxia.
+Big Three Dragon Dead Lift (): Classified as Erector Spinae Magic. Mash digs his hands into the ground and proceeds to lift a huge portion of it.
+Bio-Mechanics Cannon: Pronation (): After fully understanding the mechanisms of his muscles, Mash punches his target with full force. This amount of strength is capable of creating multiple large holes in Innocent Zero's castle.
+Mash Burnedead Unlimited Physical Mode
+Mash during his Unlimited Physical Mode.
+
+Unlimited Physical Mode (アンリミテッドフィジカルモード, Anrimiteddo Fijikaru Mōdo): Classified as Full Muscles Magic. Mash removes his wrist weights, unleashing his true muscle strength. In this form, Mash becomes fast enough to create afterimages of himself.
+Unlimited Hammer (アンリミテッドハンマー, Anrimiteddo Hanmā): Mash strikes down his opponent with both arms.
+Punch Squared (スクアッドパンチ, Sukuaddo Panchi; Lit. Squared Punch): Classified as Unlimited Biceps Magic. While in his Unlimited Physical Mode, Mash punches a target twice then repeatedly punches them with the number of punches each turn is the last amount squared.
+Weakness Mode
+Mash's Weakness Mode
+
+Weakness Mode (ウイークネス モード, Uīkunesu Mōdo): A "state of perfect lethargy". In this mode, Mash is able to utilize the contraction of his muscle fibers. This allows his body to become as flimsy as paper, making it extremely difficult to hit. It is even able to avoid Doom's attacks at 100% power. The greater the gap between contraction and a state of rest, the greater the kickback. Doom says it is a flawless state of offense and defense.
+Gaia Burst (ガイアバースト Gaia Bāsuto): Classified as Finger Extensor Magic. An extremely powerful flick that is even capable of dispersing dark magic. The technique is named after Gaia, the greek primordial goddess of the earth.
+Divine Punishment (天誅 Tenchū; Lit. Heaven's Punishment): Mash adopts a starting position and starts to run at an inhuman speed and then throws a powerful punch right into his opponent's face.
+Galaxy Crash (ギャラクシー・クラッシュ, Gyarakushī Kurasshu): Classified as Whole Body Magic. Mash performs a powerful suplex on a target, crushing the ground underneath.
+Sports Expert: Mash is incredible knowledgeable of many techniques used in different kinds of sports, such as feints. He also knows how to perform advanced gymnastic techniques. He utilises those skills in tandem with his Iron Wand, giving him an edge in battle.
+
+Mash strength
+Mash's abnormal strength.
+
+Immeasurable Strength and Speed: Mash possesses a truly insane amount of physical power where he is able to lift extremely heavy weights with immense speed in many different ways and block powerful magic spells by simply swiping his hand. He can also throw objects at high speed and power with excellent accuracy. Mash is inhumanly strong even with his wrist weights on, which prevent him from using his full strength. At full power, Mash becomes fast enough to generate afterimages with his movements. Mash became immensely more powerful after undergoing muscle training in a mindscape guarded by an enigmatic god, who seemingly transferred all the effort to Mash's physical body.
+
+Mash Rapid Punches
+Mash's rapid punching.
+
+Flight: Another feat of Mash's inhuman speed and muscle strength is the ability to "fly" by moving his legs fast enough to propel him mid-air. He originally did this while holding a broomstick between his legs to make everyone think he could actually ride one.
+Fire Generation: Mash is able to create a firestorm by rubbing a stick against the ground with great speed, intensity and friction.
+Tornado Generation: By breakdancing, Mash is able to create a tornado that forces air directly upwards using the full strength of his muscles to intensify the air pressure.
+Lung Control: Using the power of his lungs, Mash is able to suck in specific objects by taking a deep breath or shoot small projectiles at the speed of a bullet by spitting. He can also hold his breath for long periods of time to survive underwater.
+Immense Durability: Mash's body is extremely durable, capable of taking much more damage than normal humans. His durability is even greater than that of a goddess as seen in his battle against Carpaccio Luo-Yang. It was revealed that Innocent Zero created him as a body to withstand enormous magic capacity.
+
+Immense Endurance: In addition to his offensive power, Mash possesses incredible endurance, able to keep on fighting, despite severe injuries. He is able to continue his fight with Domina Blowelive despite having a large piercing wound on his torso, which was inflicted to him by the latter. Astonishingly, Mash is capable of moving around and launching a kick at a target even after having his heart ripped out of him, albeit only for a short duration of time.
+
+Inhuman Reflexes: Mash can react to spells and any other attack at extreme speed. By touching a wall behind him, Mash is able to perceive Margarette Macaron's movements by taking advantage of the fact, that the sound that they generate travels faster from the ground to the wall behind him, ultimately allowing him to dodge their attack. According to Kaldo Gehenna, to pull off such a feat would require otherworldly reflexes.
+
+Inhuman Senses: During his fight with Doom, Mash demonstrated his incredible senses as he weighed Doom and his mirrors clones in order tell which one was real.
+
+Weaknesses
+Studying: Although Mash is a terrifyingly powerful combatant, he's academically incompetent. Mash's main salvation comes from hands-on exam which usually require combat ability. During a mock exam, his results were: Magical Linguistics at 30 points, Magical History at 10 points, Potions at 3 points, Magical Mathematics at 10 points. After extensive studying sessions, Mash was able to barely pass the end-semester exams with around 50 points on all subjects.
+
+Relationships
+Regro Burnedead: Regro is Mash's adopted father who care for each other like any father and son.
+Cell War: Cell War is a clone of Mash Burnedead made from his DNA by Innocent Zero.
+Lemon Irvine: Lemon developed a massive crush on Mash after he helped her escape the maze during the entrance exam.
+Finn Ames: Mash is Finn's dormmate who sees him as a true friend and has gone to great lengths to protect him from bullies.
+Lance Crown: Lance first met Mash while he was attempting to study and subsequently challenged him to a battle for a coin. After Mash defeated him, they became friendly rivals with a deep respect for each other's abilities.
+Tom Knowles:
+Dot Barrett: Dot is one of Mash's friends where Dot has "main character syndrome" and believed that Mash is his rival until Mash helped him in a duel against a bigoted classmate. Dot is jealous of Mash's ability to attract girls (Lemon for example).
+Abyss Razor: Abyss respects and sympathizes with Mash since he is also an outsider to the magical community because of his Evil Eye. He figured out that Mash doesn't have magic when his Evil Eye had no effect on him.
+Rayne Ames:
+Wahlberg Baigan:
+Battles
+Mash Burnedead vs Brad Coleman
+Mash Burnedead vs Claude Lucci
+Mash Burnedead vs Lloyd Cavill
+Mash Burnedead vs Farman Cregos
+Mash Burnedead vs Lance Crown
+Mash Burnedead vs Silva Iron
+Mash Burnedead vs Abel Walker (initial)
+Mash Burnedead vs Olore Andrew
+Mash Burnedead vs Abyss Razor
+Mash Burnedead vs Rayne Ames
+Mash vs Abel Walker (rematch)
+Mash vs Cell War (initial)
+Mash vs Orter Mádl
+Mash Burnedead vs Carpaccio Luo-Yang
+Mash vs Kaldo Gehenna
+Mash vs Margarette Macaron
+Mash vs Cell War (rematch)
+Mash vs Orter Mádl
+Mash vs Lévis Rosequartz
+Mash vs Domina Blowelive
+Mash vs Doom
+Mash vs Innocent Zero (finale)
+Trivia
+In the official English translation, Mash’s second name was originally written as ‘Vandead’. However, it was later changed when series creator Hajime Komoto clarified that it was spelt ‘Burnedead’.
+Mash loves cream puffs, but he also enjoys fruits and meats.
+Mash has a name for almost all of his muscles and these names include:
+Kevin
+Mike
+Tom
+Kim
+Yamada
+Hikari
+Koji
+Satomi
+The barbell that Mash uses weighs 4.6 tons.[1]
+Mash prepares a protein shake every day at 3pm based on homemade ground bean powder.
+Mash is clueless in matters of attraction and romance due to his sheltered upbringing.
+At the age of 5 months, Mash already had a great ability to build things, because every time that Domina Blowelive broke any structure with his powers, Mash could fix everything quickly. In fact, he was such a talented carpenter that he was skilled at DIY and crafts to the point of building entire furniture (this is mentioned in Chapter 82 of the manga).
+Mash's character design is based off the protagonist of a One-Shot called Hakaishin Shivasaki-kun.
+Fanbook Stats:
+Blood type: O
+Dominant Hand: Right
+Foot size: 26.5cm
+Good Subjects: Things that can be solved by muscles
+Bad Subjects: Things that cannot be solved by muscles
+Hobbies: Muscle training, making cream puffs
+Favorite Food: Cream puffs
+Favorite word: Quadriceps femoris
+Favorite type of opposite sex: "I'm not sure because I grew up in the woods"
+Dislikes: Difficult explanations
+Frequently visited school spots: Training rooms, dormitory kitchen
+E.g. of spending money: Ingredients for cream puffs, protein
+How to spend holidays: Muscle training, making cream puffs
+Mash plays koala snot darts with Abyss Razor.
+Mash occasionally keeps in touch with Domina.
+Lemon Irvine sewed Mash's apron.
+Timetable:
+7:55 - Wake up
+7:56 - Get dressed
+7:57 - Muscle training
+7:58 - Breakfast
+7:59 - Change clothes
+8:00 - Second sleep
+8:30 - Class
+12:20 - Lunch break
+13:10 - More lessons
+15:00 - Training & Protein shake time
+15:10 - End of school (Enjoys tea time with friends)
+18:30 - Dinner
+22:30 - Sleep
+Mash's character is most likely a reference to Harry Potter due to sharing the same lightning bolt motif. However, the only difference is that Harry has his lightning bolt scar on his forehead while Mash has his lightning bolt mark on the left side of his cheek.
+Mash shares the birthday of 11/11 with his father.
+Reference
+ https://twitter.com/mashle_official/status/1376474024209870848
+
+
+Categories
+Community content is available under CC-BY-SA unless otherwise noted.
+
+Popular Pages
+Mash Burnedead
+Mash Burnedead
+List of Characters
+List of Characters
+Innocent Zero
+Innocent Zero
+Rayne Ames
+Rayne Ames
+Orter Mádl
+Orter Mádl
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+Mashle Wiki is a FANDOM Anime Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Search this wiki
+Search all wikis
+
