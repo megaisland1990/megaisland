@@ -1,4 +1,4 @@
-Refer to this for character information, power and history!
+
 Team Adventure Database: 
 
 Ash:
@@ -7995,3 +7995,2748 @@ Chopper jumps to Robin's defense.
 Later, Chopper, Nami, and Usopp attempted to leave the Labophase while carriying Robin in a pod with them.[235] When Sanji informed them of the incoming Buster Call, Chopper panicked, but continuing to treat Robin.[236] Shortly after Chopper spotted the Giant Warrior Pirates, namely Oimo and Kashii and was happy to see the two again.[237] Afterward, Chopper and the others caught wind of Vegapunk's pre recorded message being signaled across the island, questioning where came from and why it started now.[238] The group discussed how they could cover the distance needed to avoid crashing sunny to land on sea, shortly after, Jaygarcia Saturn climbed to the crews location to Chopper's shock.[239]
 
 Upon arriving in the Labophase, Saturn instantly recognized Robin, and moved to kill her. On Nami's order, the Straw Hats jumped to her defense as Saturn attempted to attack.[240] Chopper and The Straw Hats were brushed aside by Saturn, but the others were caught in Robins Spider Net while Chopper remained in Guard Point. After Saturn left, Nami pointed out to the group that the clouds they were on begun to extend with Brook and Usopp realizing that it was done by Edison so their ship could reach the sea.[241] Chopper noticed that the cloud's ceased extending, leaving enough room for the ship to land but was quickly horrified when the Elder Nusjuro caught up to their location.[242] While Atlas sacrificed herself to hold off Nusjuro, Chopper clung to Jinbe as they blasted off.[243]
+
+
+Lucia:
+Mermaid melody Wiki
+Mermaid melody Wiki
+Explore
+Lost? Start Here!
+Mermaid Melody Aqua
+Info & Rules
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Mermaid melody Wiki
+Mermaid Melody Wiki
+834
+pages
+Explore
+Lost? Start Here!
+Mermaid Melody Aqua
+Info & Rules
+Community
+
+
+in: Characters, Anime Characters, Protagonists (Anime), and 3 more
+Lucia Nanami
+1
+View source
+MM Aqua Logo
+The manga sequel Aqua has been announced! Looking for information? Click here!
+
+Anime
+Manga
+Clothes
+Gallery
+Lucia Nanami
+Mermaid
+Human
+Idol
+Super Idol
+Princess
+Mermaid
+Profile
+Name:
+Lucia Nanami
+Japanese:
+七海 るちあ
+Romaji:
+Nanami Ruchia
+Race:
+Mermaid
+Age:
+13 (Start of Manga / Anime episodes 1 - 12)
+14 (Book 5 / Anime episodes 13 - 91)
+15 (End of Series)[1]
+Mid 30s (Aqua, unconfirmed)
+Birthdate:
+Monday, July 3rd, 1989
+Birthplace:
+North Pacific Ocean
+Physical Information
+Personal Information
+Relationships
+Production Information
+Voice Actors/Actresses
+
+Lucia Nanami (七海 るちあ Nanami Ruchia) is the main protagonist of the anime Mermaid Melody Pichi Pichi Pitch. She is the first mermaid princess introduced in the series and is the princess of the North Pacific Ocean.
+
+
+Contents
+1	Plot
+1.1	Season 1
+1.2	Season 2
+2	Personality
+3	Appearance
+3.1	Forms and Aspects
+4	Appearance in
+4.1	Anime
+5	Abilities
+5.1	List of songs sung by Lucia
+6	Transformations
+6.1	Idol
+6.1.1	Gallery
+6.1.2	Videos
+6.2	Super Idol
+6.2.1	Videos
+7	Etymology
+8	Trivia
+9	References
+Plot
+Season 1
+Lucia is the Mermaid Princess of the North Pacific Ocean, keeper of the Pink Pearl, and the main character of the story. Lucia goes up to land to search for a boy she had saved seven years ago. She is unaware of the danger in the marine world and of her real mission until she is told of them by her "older sister" Nikora Nanami. She is characterized by her simplicity and naivete, but with having a strong will, typical traits of shōjo manga heroines.
+
+Lucia soon falls in love with Kaito Domoto, the boy she had saved seven years ago. However, Kaito is unaware of this and is in love with Lucia's mermaid form.
+
+Later on, after Lucia meets Hanon Hosho and together they befriend Rina Toin together, Rina gets suspicious of Kaito, seeing he had a strange power she couldn't recognize. Soon after, it is revealed in the anime that Kaito is a child belonging to the Panthalassa, which is why he had his powers. When the Princesses reached Gaito's castle and defeated him, Kaito was finally sure Lucia was the mermaid he longed for all his life, later achieving a romantic relationship with her.
+
+Season 2
+Kaito decides to leave Japan and move to Hawaii where he used to surf with his adoptive father and try to find himself, due to reading a letter his aunt had given him earlier on in the series and needing to clear his thoughts after the ordeal with Gaito. When exchanging their goodbyes, he informs Lucia of the necklace he still wore, which previously held Lucia's pearl, and how it reminds him that he'd always be by Lucia's side and vice versa. After Kaito's departure, Lucia leaves crying and bumps into Rihito Amagi who tries to comfort her and would later on try to befriend her.
+
+Lucia soon finds out through a phone call that Kaito had disappeared and tries to look for him. Sara informs her that he's still alive through a vision in her spirit form. When he returns to Japan, Kaito reveals that he has forgotten his memories of her, as well as Hanon and Rina; however, he remembered everyone else which suggested it wasn't a coincidence. Seira, a mermaid of the Indian Ocean and Sara's successor, was about to be born as well, waiting to meet Lucia. When her time of birth finally came, Michel seized his chance and absorbed Seira into his body causing her birth to be delayed. Sara begged of Lucia to retrieve all the pieces of her heart contained in Mikeru's feathers.
+
+Personality
+Lucia has undergone quite a bit of character development throughout the series. She is known for having a very upbeat personality and being generally optimistic. She also has a hobby of making handmade jewelry. Within the first arc of the series, it is very rare not to see her display a bright smile on her face. Lucia has a very loving and caring heart, which has proven useful in bring out the good in everyone.
+
+Lucia was shown to have incredible willpower and determination. In the first season, she never stopped trying to have Kaito realize she was the mermaid he was searching for. Although she tried to get the job somewhat quickly at first, she ended up taking a slower, more cautious approach throughout the first season, which proved to be the better path. At the climax of the first season, after Kaito finally was sure he knew Lucia's identity, she was able to finally enjoy an unconditional romantic relationship. Later on, when Kaito lost all memories of her in the second season, she did everything she could to restore those memories, ultimately being successful after some time. She also went out into a blizzard to deliver a bento box that she had promised to give, which almost costed her life.
+
+Lucia's willpower and determination is one side that brings out her strength, but when she has friends' supporting her, she becomes nearly unstoppable. Being the main protagonist and also indirectly being seen as the "leader" of the Mermaid Princesses, she has been targeted by her foes far more than the rest. For instance, she was isolated and banished to an unknown dimension by Gaito, where she was forced to challenge her own heart. Early in season two, she fell into a trap set by the Black Beauty Sisters, but managed to escape using her willpower and Sara's assistance. Later, she was captured again and trapped in Mikeru's dimension in episode 67. With the help of Sara, Seira, and her fellow mermaid princesses singing with her, she was able to escape yet again. She also fought to the bitter end trying to save Seira from harm up until Mikeru absorbed her. Even afterwards, she would slowly but steadily gather Seira's heart fragments one by one until Seira was finally reborn in the penultimate episode.
+
+Lucia is also quite clumsy, something that her lover, Kaito, has acknowledged himself. This is proven when she struggles to properly perform some of her chores that Nikora gave her around the hotel. She has also overslept sometimes, as well as having had a few accidents going up and down the stairs. Her sense of direction has shown to be rather lackluster. Furthermore, Lucia has shown to be rather naïve. Some examples are not knowing the consequences of losing her pearl, and not being aware of the troubles at sea until Nikora informed her. Throughout the countless days, battles, and lessons she went through with her friends, she would slowly shed her naïve side and prove that she has what it takes to be a Mermaid Princess.
+
+Throughout most of the first season, Lucia also displayed a slight jealous side of her that would often come out in her relationship to Kaito. Due to Kaito's popularity in school, she had to face stiff competition from many other girls that also showed interest in him. At times, she has misjudged and misunderstood situations presented around him, usually causing her to get angry. It would usually take a firm, but truthful explanation from Kaito to actually have Lucia understand that she had misjudged him.
+
+In the second arc of the series however, she is much more depressed due to her struggle of having to deal with the pain and loneliness of being forgotten by a loved one. She also had to deal with the pain of failing to complete her mermaid duties revolving around Seira. Having to deal with these issues in a short time frame deeply wounded her. This pain was so deep that her jealousy was very rarely shown. However, she was shown to cry a lot more than usual. Despite the setbacks, no matter the situation, she never gave up hope. Through her tears and her friends' moral support, Lucia steadily used this pain to grow and mature deeply, while maintaining her kind heart and unwavering determination. She also mellowed drastically, having the will to walk away from her loved one to fulfill her mermaid duties.
+
+Appearance
+Lucia has dirty blond hair in her human form and bright blonde hair in her mermaid and idol form. She also has brown eyes in her human form but blue eyes while as a mermaid or an idol. She usually wears a shell locket that contains her pearl.
+
+In her every day outfit she seems to wear either a white and red shirt with a denim skirt and knee-high boots. Other she seems to wear the same outfit with the only difference being her shirt, which instead has big black and pink stripes.
+
+In her Idol form as well as her Princess form she wears different kinds of outfits which include fluffy pink skirts.
+
+Forms and Aspects
+As a mermaid, Lucia has to transform into a human in order to stay on land. When facing a sea demon, she transforms into her idol form, Pink Pearl Voice, and uses her voice as offensive attack. The Sea Demons and enemies are frequently injured by the frequency of her voice as well as emotions the song contains, which generally have the subject of hope and love.
+
+Lucia’s mermaid form is the same as every other mermaid princess, with a bracelet around one of her upper arm and double pearl bracelet around one of her wrists and her tail. Lucia's mermaid princess form is first revealed in chapter 6 of the manga and episode 13 of the anime. Her hair is loose and barely in pigtails, the tips of which have been loosely curled. There are also glittering pearls and flower petals strewn throughout her hair. She wears lacy elbow length gloves, and her dress has three bows in the center as well as three layers of cloth, all centered in the front. Lucia appeared two more times in this form, in chapter 14 and chapter 19 of the manga with minor differences, such as adding a choker of laces and changing the petal flowers into roses.
+
+Lucia’s mermaid form and her human form contrast the most out of all the mermaid princesses. She has shoulder length dark blonde hair and brown eyes while on land, and long lighter blonde hair in pigtails and light blue eyes as a mermaid. She's mostly seen wearing a pink and red sailor style school uniform (short sleeves for summer and long sleeves for winter). In the manga her hair is darker than in the anime.
+
+When facing enemies, Lucia transforms into her idol form, Pink Pearl Voice. In her idol form, she sings with the rest of the mermaid princesses to defeat the enemies by singing songs that convey their true emotions. Her first outfit is complete with a pink dress with short skirt, lacy pink gloves, and boots. Lucia, along with Hanon and Rina, gains her second outfit in episode 28 after the trio was upgraded by the sea goddess, Aqua Regina. Her second outfit is very noticeably different from her first one. Her dress now is complete with a double layer and a long pink bow on the back. Her gloves and her boots now have a second layer. She also gains accessories such as a jeweled headpiece, a more intricate bracelet, and pink accents alongside the top part of her dress. It should be noted that their transformations are somewhat based off of the general format of their school uniform. Like all the other mermaid princesses, Lucia’s second transformation is more powerful than the first one and enables her to defeat the Black Beauty Sisters with her new songs.
+
+Appearance in
+Anime
+Appears in every episode of season 1 and season 2.
+
+Abilities
+Like the rest of the mermaid princesses, Lucia needs her pearl in order to transform into her idol form. Her pearl is also needed in order to summon Aqua Regina. When in her idol form, her voice was transmitted by a microphone like object called the E-pitch, in order to defeat the enemies. Her voice is shown to be very powerful. She is also shown wearing Aqua Regina's outfit in the last volume of the manga. Her hair is loose. She also holds Aqua Regina's staff. Legend of Mermaid was a song that she would sing as child, so this is one of her image songs.
+
+Her character songs are 'Splash Dream, 'Legend of Mermaid and 'Koi wa Nandarou'. She ends attack songs with the phrase 'Love Shower Pitch' in both the anime and manga followed by 'Encore wa ika ga' which can be translated as 'How about an encore'?
+
+List of songs sung by Lucia
+Promised Land
+Legend of Mermaid
+Koi wa Nandarou
+Ever Blue (Backing Role)
+Star Jewel (Backing Role)
+Super Love Songs!
+Daiji no Takarabako
+Splash Dream
+Kizuna
+Kodou
+Mizuiro no Senritsu (Backing Role)
+Mother Symphony
+Sekai De Ichiban Hayaku Asa Ga Kuru Basho
+Nanatsu no Umi no Monogatari
+Kibou no Kaneoto
+Transformations
+Pink Pearl Voice! (ピンクパールボイス！ Pinku Pāru Boisu!) is used by Lucia to transform into an idol. Her first transformation happens in the first episode when Kaito throws his pendant (with her pink pearl inside) towards her. This caused her to transform without use of the phrase and it the only exception in the series.
+
+Sonic Wiki Zone
+Know something we don't about Sonic? Don't hesitate in signing up today! It's fast, free, and easy, and you will get a wealth of new abilities, and it also hides your IP address from public view. We are in need of content, and everyone has something to contribute!
+
+If you have an account, please log in.
+
+Sonic Wiki Zone
+Sonic Wiki Zone
+Explore
+Game Titles
+Game features
+Media
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Sonic Wiki Zone
+20,682
+pages
+Explore
+Game Titles
+Game features
+Media
+Community
+
+
+in: Featured Article, Shadow the Hedgehog, Playable characters, and 10 more
+This is a Sonic Wiki Zone Featured Article
+English
+Shadow the Hedgehog
+View source
+Main page
+History and app.
+History and app.
+(IDW)
+History and app.
+(Sonic Prime)
+Relationships
+Misc.
+Gallery
+This article is about the video game character. For other uses, see Shadow the Hedgehog (disambiguation).
+Shadow the Hedgehog
+SXSG art Shadow 04
+Shadow the Hedgehog, from Sonic X Shadow Generations.
+Appearances
+First appearance
+Sonic Adventure 2
+Game appearances
+Sonic Adventure 2: Battle
+Sonic Pinball Party (mentioned)
+Sonic Battle
+Sonic Heroes
+Sega Superstars
+Sonic Gems Collection
+Shadow the Hedgehog
+Sonic Riders
+Sonic the Hedgehog (2006)
+Sonic Rivals
+Sonic and the Secret Rings
+Mario & Sonic at the Olympic Games
+Sonic Rivals 2
+Sonic Riders: Zero Gravity
+Super Smash Bros. Brawl (cameo)
+Sega Superstars Tennis
+Sonic Chronicles: The Dark Brotherhood
+Sonic Unleashed (mentioned)
+Sonic and the Black Knight
+Mario & Sonic at the Olympic Winter Games
+Sonic at the Olympic Winter Games
+Sonic & Sega All-Stars Racing
+Sonic Free Riders
+Sonic Colors (Nintendo DS)
+Sonic Generations (console/PC)
+Sonic Generations (Nintendo 3DS) (cameo)
+Mario & Sonic at the London 2012 Olympic Games (Wii)
+Mario & Sonic at the London 2012 Olympic Games (Nintendo 3DS)
+Sonic Adventure 2 (2012)
+Sonic Jump (2012) (cameo)
+Sonic & All-Stars Racing Transformed
+Sonic Dash
+Mario & Sonic at the Sochi 2014 Olympic Winter Games
+Sonic Jump Fever
+Super Smash Bros. for Nintendo 3DS and Wii U (cameo)
+Sonic Runners
+Mario & Sonic at the Rio 2016 Olympic Games
+Sonic Runners Adventure
+Sonic Forces: Speed Battle
+Sonic Forces
+Sega Heroes
+Super Smash Bros. Ultimate (cameo)
+Team Sonic Racing
+Sonic Racing
+Mario & Sonic at the Olympic Games Tokyo 2020
+Sonic at the Olympic Games (2020)
+Sega Streaming Theater Sonic Edition (cameo)
+Sonic Dash+
+Sonic Speed Simulator
+Sonic Frontiers (mentioned)
+The Murder of Sonic the Hedgehog
+Sonic Prime Dash
+Sonic Superstars (cameo)
+Sonic Rumble
+Shadow Generations
+Appearances in other media
+Archie Comics
+Sonic X
+Sonic Boom
+Sonic Comic
+Sonic Forces digital comic
+IDW Publishing
+Team Sonic Racing One-shot
+Team Sonic Racing Overdrive
+Cover stories (2021)
+Sonic the Hedgehog (film series)
+TailsTube
+Sonic Prime
+Otherworld Comedy (2023)
+Sonic & Friends
+Calendar Comedy (2024)
+Sonic X Shadow Generations: Dark Beginnings
+Real-world designer(s)
+Creator(s) (real-world)
+Kazuyuki Hoshino
+Shiro Maekawa[1]
+Takashi Iizuka[2]
+Yuji Uekawa
+Artist(s)
+Yuji Uekawa
+Voice actor(s)
+English
+David Humphrey (2001-2004)
+Ryan Drummond (briefly, Sonic Adventure 2)[3]
+Jason Griffith (2005-2010)
+Kirk Thornton (2010-present)
+Japanese
+Kōji Yusa
+Other languages
+Benoît DuPac (French)
+Claudio Moneta (Italian, 2013-present)
+Klaus Lochthove (German, 2011-2019, 2024)
+Manuel Gimeno (Spanish)
+Maurizio Merluzzo (Italian; 2011 - 1st voice)
+Riccardo Lombardo (Italian, 2011 - 2nd voice)
+TBA (German, 2024-present)
+Biographical overview
+Age
+Ageless[4] (created 50 years ago)
+Creator
+Gerald Robotnik †
+Black Doom †
+Birthplace
+Space Colony ARK
+Relative(s)
+All Black Arms †
+Black Doom (biological father)
+Nickname(s)
+The Ultimate Lifeform
+The Ultimate Hedgehog
+Fake Hedgehog
+Black Wind
+Project Shadow
+Black Hedgehog
+The Black Blur[5]
+Faker
+Species
+Hedgehog[6]/Black Arms
+Physical description
+Gender
+Male
+Height
+100 cm (3 ft 3 in)[6]
+Weight
+35 kg (77 lb)[6]
+Fur
+White, black, crimson
+Skin
+Tan
+Eyes
+Red
+Attire
+Air Shoes
+Limiter Rings
+White gloves with black and red-tongued cuffs
+Alignment and character traits
+Alignment
+Neutral
+Affiliation(s)
+Eggman Empire (formerly)
+United Federation
+Guardian Units of Nations
+Team Dark
+Resistance (formerly)
+Likes
+Maria Robotnik
+Team Dark
+Dislikes
+Fools[4]
+Anyone who opposes him
+Dr. Eggman
+Deception
+When others insult him
+When someone gets in his way
+Wasting time
+Losing
+Powers and abilities
+Skills
+Doom Powers
+Immortality
+Immense speed
+Superhuman strength
+Superhuman durability
+Superhuman jumping
+Absolute stamina
+Extreme acrobatic skills and reflexes
+Indomitable will
+Hand-to-hand combat skills
+Weapon and firearm combat skills
+Vehicle intuition
+Extreme Gear riding skills
+Grinding
+Telekinesis
+Harnessing Chaos Emerald energy
+Chaos Boost transformation
+Chaos powers
+Hero Shadow and Dark Shadow transformations
+Super transformation
+Hyper-go-on usage
+Moves and techniques
+Air Boost
+Air Ride
+Attack
+Black Tornado
+Boost
+Cartwheel
+Chaos Blast
+Chaos Boost
+Chaos Control
+Chaos Snap
+Chaos Spear
+Chaos Upper
+Color Power
+Crouch
+Crouch (grinding)
+Dash Boost
+Double Jump
+Drop Dash
+Fire Somersault
+Grab
+Grind Step
+Guard
+Homing Attack
+Jump Dash
+Kick
+Kick Dash
+Light Speed Attack
+Light Speed Dash
+Punch
+Quick Step
+Shadow's All-Star Move
+Skydiving
+Slide
+Somersault
+Speed Up
+Spin Attack
+Spin Dash
+Spin Jump
+Stomp
+Trick Action
+Wall Jump
+Ability type
+Speed
+I am the ultimate life form, Shadow the Hedgehog. I will crush anyone who stands in my way!
+— Shadow the Hedgehog, Sonic Battle 
+Shadow the Hedgehog (シャドウ・ザ・ヘッジホッグ Shadō za Hejjihoggu?) is a character that appears in the Sonic the Hedgehog series. He is an anthropomorphic hedgehog/Black Arms hybrid who resembles Sonic the Hedgehog in many ways[7] and serves as his arch-rival and occasional ally. Shadow was created as the "Ultimate Life Form" (究極生命体 Kyūkyoku Seimeitai?) by Prof. Gerald Robotnik by using the DNA of Black Doom and is the final result of Project Shadow. His purpose was to provide ways to develop a cure for incurable deadly illnesses, more specifically for Gerald's granddaughter Maria Robotnik, who he had a great bond with. However, he was eventually captured following his creation and put into stasis by G.U.N. when he was deemed as a threat to humanity.
+
+Fifty years later, Shadow was released by Dr. Eggman in order to assist him in his plan to conquer the earth. Initially, Shadow worked with him but secretly sought to destroy the planet in order to avenge Maria, who had been killed by the G.U.N. military, but was persuaded to save it from Gerald's doomsday plans. In the process, Shadow lost his memories and as such, sought to uncover the truth of his past, during which he met Black Doom and the Black Arms; in the end, Shadow regained his memories, uncovered the truth, and thwarted Black Doom's agenda and saved the world. From there, he continued his mission to protect humanity for the sake of Maria.
+
+Shadow is sharp-witted, always on edge, and has a strong sense of purpose, always willing to accomplish his goals by any means,[8] and always serious. Essentially a dark version of Sonic, Shadow can match him in both speed and skill, and can use Chaos Control with a Chaos Emerald to warp time and space.[9][7] While preferring to work alone and not one of his closest friends, he has helped Sonic and his allies when needed.
+
+
+Contents
+1	Concept and creation
+2	Appearance
+3	History
+3.1	Past
+3.2	Sonic Adventure 2
+3.3	Sonic Heroes
+3.4	Shadow the Hedgehog
+3.5	Team Sonic Racing
+4	Personality
+4.1	IDW Publishing
+5	Powers and abilities
+5.1	IDW Publishing
+5.2	Equipment
+5.2.1	IDW Publishing
+5.3	Transformations
+5.3.1	Super Shadow
+5.3.2	Hero Shadow
+5.3.3	Dark Shadow
+5.3.4	Chaos Boost
+5.3.5	Color Powers
+6	Weaknesses
+6.1	IDW Publishing
+7	Relationships
+8	In other media
+8.1	Sonic Prime
+8.2	Paramount
+8.3	IDW Publishing
+9	Reception
+10	Quotes
+11	Trivia
+12	Gallery
+13	Notes
+14	References
+15	External links
+Quick Answers
+fandom logo
+What is Shadow the Hedgehog's height and weight?toggle section
+What is Shadow the Hedgehog's quill color?toggle section
+What color are Shadow the Hedgehog's eyes?toggle section
+What is Shadow the Hedgehog's alignment?toggle section
+Fandom Trivia
+quiz imageQuiz
+How well do you know Shadow the Hedgehog?
+3 questions
+Check out more quizzes at Fandom Trivia
+Concept and creation
+Sonicshadow
+Shadow and Sonic, along with a Hero, Dark and neutral Chao, from Sonic Adventure 2: Battle.
+
+After the success of Sonic Adventure, it was hoped that a sequel would be for the Dreamcast what Sonic the Hedgehog 2 was for the Sega Mega Drive/Sega Genesis. In 1999, a portion of the team responsible for the new Sonic Adventure title traveled to work at Sega of America.[10] It was led by director Takashi Iizuka, while Yuji Naka remained in Japan to work on other properties, including Phantasy Star Online. With the team in place, brainstorming soon began on what form Sonic Adventure 2 would take.
+
+Early on, it was decided that one of the main themes of the game would be the dichotomy between good and evil. To explore this, the creators came up with new characters that would both assist Dr. Eggman and challenge the established cast of heroes: one would become Rouge the Bat, while the other would become Shadow. Takashi Iizuka was the one to first conceive the idea of Shadow, coming up with the idea of a dark, anti-hero figure who resembled Sonic in shape, but not in personality.[2] His role as a dark hero rather than a rival was inspired by American comic book anti-heroes such as Spawn, which were popular at the time.[10] While creating Shadow, there was a proposal to create a character that was as cool as or better than Sonic.[1] Several early designs of Shadow ranged from having long spines with tufts of fur in front of his eyes, to having capes, shades or even a missing eye. Shiro Maekawa was the one who came up with Shadow's final design and considers himself to be Shadow's creator. He has stated that there are times where he feels a stronger bond with Shadow than his real relatives.[1]
+
+Shadow-the-Hedgehog-Character-Sketches
+Some of Shadow's concept designs next to his final design.
+
+When being designed, the character's original name was "Terios"[11][note 1], derived from the Old Greek word "τέλειος" (telios) which can be roughly translated as "final" or "making dreams come true",[12] possibly chosen in reference to Gerald's reason for creating the Ultimate Lifeform. According to Kazuyuki Hoshino, Shadow's red stripes were inspired by Kabuki makeup.[13] Shadow appears to also have partially been inspired by the character Vegeta from the Dragon Ball franchise, as an early sheet of concept artwork presented in the Sonic the Hedgehog 25th Anniversary Art Book uses "Vegeta" as a keyword describing Shadow. However, this has since been refuted by Takashi Iizuka.[14]
+
+Once Sonic Adventure 2 was announced, the identity and nature of Shadow was a heavily guarded secret. The character was first shown to the public in the first game trailer for Sonic Adventure 2; however, his name was not revealed. GameSpot described what little was shown as Anti-Sonic - similar in appearance, but with darker skin, more angled eyes, and a fearsome scowl instead of Sonic's trademark grin.[15]
+
+When Shadow seemingly died in Sonic Adventure 2, there rose a huge fanbase for Shadow to appear in more games, after being disappointed by his "death." This let Takashi Iizuka input Shadow as a playable character in Sonic Heroes and even star in his own game, Shadow the Hedgehog.[16] In fact, Takashi Iizuka said that they maintained the mystery around the character of Shadow the Hedgehog and had wanted to feature him in his own game since he was introduced.[17] For the Shadow the Hedgehog game, after feeling that it would be inappropriate to give Sonic's character a gun as fans had requested in mailings,[18] Yuji Naka believed that by focusing on Shadow for his own game, they could use his different identity from Sonic to build upon the Sonic brand.[19]
+
+Appearance
+Sonic Art Assets DVD - Shadow The Hedgehog - 1
+Shadow the Hedgehog, from Sonic Art Assets DVD.
+
+Shadow is a black-furred anthropomorphic hedgehog. He has red eyes, a patch of white fur on his chest, a black nose, a tan muzzle, and small, triangular ears with tan canals. He also has six quills on his head, four of which curve upwards while the other two curve downwards, two spines on his back, and a short, pointy tail. He has red stripes on each of his head quills, around the edges of his eyes, and on his arms and legs.
+
+For attire, Shadow wears white gloves with black cuffs and red tongues, and Air Shoes which, like his gloves, have black cuffs and red tongues. Shadow also wears Limiter Rings, one on each of his wrists and ankles.
+
+Following the Black Arms incident, the red paint on the front of Shadow's Air Shoes has been scratched off, and his eyes have become more red-orange in color.
+
+For a list of Shadow's alternate outfits, see Shadow the Hedgehog/Miscellaneous#Outfits.
+History
+Note: This is an abbreviated look at Shadow the Hedgehog's history, focusing primarily on his most recent mainline adventures. For a complete history of Shadow, see Shadow the Hedgehog/History and appearances. For his history in the IDW comics and Sonic Prime, see Shadow the Hedgehog/History and appearances (IDW) and Shadow the Hedgehog/History and appearances (Sonic Prime).
+Past
+Shadow's origin dates back many years ago to "Project Shadow", a secret government-sanctioned project under Professor Gerald Robotnik, Doctor Eggman's grandfather, aboard Space Colony ARK. The project's goal was to create "The Ultimate Lifeform" as a weapon for the United Federation, however Gerald planned to use the project's results to find a cure for his dying granddaughter Maria. The name "Shadow" was coined for two reasons: one being an irony that a shadow cannot be created, that immortality was impossible[20] and serves as a metaphor of "unreal things";[21] while the other one came from Maria who said shadows could "teach people the way to the light".[21]
+
+At some point Gerald made a deal with Black Doom, leader of the Black Arms, whose DNA would be used to create Shadow the Hedgehog in exchange for the seven Chaos Emeralds being delivered to him when the Black Comet returned to Earth in 50 years. Gerald meanwhile created the Eclipse Cannon, a laser which could harness the powers of the Chaos Emeralds to potentially destroy the Black Comet upon it's return.
+
+Upon awakening, Shadow began his life on the ARK and he formed a bond with Maria and helping the researchers. At some point, the details of Project Shadow were leaked to G.U.N.. Fearing Gerald's true involvement with the Black Arms, the government then ordered G.U.N. to raid the ARK and shut down the project.[20] During the raid, Gerald was captured and all the researchers involved with Project Shadow were killed, as well as Maria, who asked Shadow that he give all the people on Earth a chance to be happy, just before activating Shadow's escape pod where he was helplessly ejected towards Earth. Shadow's pod was recovered by G.U.N, and he was placed in suspended animation on Prison Island, where Gerald was forced to continue his research under government supervision. Gerald began to secretly brainwash Shadow,[22] modifying his memories so he believed he was meant to destroy humanity. Gerald also secretly kept a diary, in which he encouraged anyone who found it and desired mass destruction to release Shadow. Gerald was soon incarcerated and executed, while Shadow remained in stasis until he was discovered by Doctor Eggman.[20]
+
+Sonic Adventure 2
+This section requires an expansion.	
+Sonic-Icon-Sonic-CD
+Sonic Heroes
+This section requires an expansion.	
+Sonic-Icon-Sonic-CD
+Shadow the Hedgehog
+This section requires an expansion.	
+Sonic-Icon-Sonic-CD
+Team Sonic Racing
+During the Dodon Pa incident Shadow and his team joined Dodon Pa's Grand Prix alongside Dr. Eggman and his team. However, Team Dark's true intentions for joining the Grand Prix was to investigate Dr. Eggman.[23] As Eggman began gaining the lead, Shadow's team decided to work with the other teams to keep Eggman from winning the race. After passing the finish line ahead of Eggman alongside Sonic, the two hedgehogs had a rematch.[24]
+
+When Sonic asked Shadow if he was working with Dr. Eggman, Shadow replied that he joined the Grand Prix in order to stop any evil schemes Eggman had planned. After another race, they agreed that they had to watch out for both Dodon Pa, whose motivations for hosting the Grand Prix were unknown, and Eggman. Soon after, Shadow learned that Eggman and Dodon Pa were seemingly working together. Later, Eggman sent hundreds of Eggpawns after the racers. Shadow eventually learned that Dodon Pa was using the Grand Prix to gather information for his corporation's top secret Ultimate Energy Engine, to use for philanthropic purposes. Soon after, Eggman kidnapped Dodon Pa and brought him to the Final Fortress, incorporating the engine into his Death Egg. Shadow and co. successfully rescued Dodon Pa and destroyed the unstable engine, defeating Eggman.
+
+Personality
+Shadow profile SG
+Shadow's profile, from the Xbox 360 version of Sonic Generations.
+
+Being Sonic's polar opposite personality-wise,[5] Shadow is, bluntly put, a brooding loner. He usually acts with a cool and businesslike indifference, only occasionally showing his vulnerable side. He is rarely seen with others for an extended period of time and usually distances himself from essentially everyone. He is usually blunt and does not speak much, but he always knows exactly what to say in combat. However, Shadow never bluffs; if he makes a threat, he has every intention of carrying it out. Tying into this attitude, the Japanese script has his self-pronoun be the more humble "boku", with his pronoun for others switching between either "kimi" or "omae" depending on his mood.
+
+As the most violent and merciless character in the series at times,[5] Shadow's ruthlessness and aggression leads to enemies never treating him lightly. Alongside his dark and violent demeanor, Shadow can be smug and stubborn. He usually treats others in a very callous manner, throwing in his opinion no matter how cold-hearted it is and not caring for whatever the response is. Shadow is also shown to have a sharp wit; during the Space Colony ARK incident, after being called a faker by Sonic, he replied that the latter was not worth being considered his fake.[25]
+
+Just like how Shadow's motivations are never simple to understand, he spends as much time grappling with his own inner demons as he does with his rival, Sonic.[5] In the past, Shadow has had a degree of mental instability, in particular post-traumatic stress disorder. This was demonstrated by his instances of post-traumatic flashbacks to Maria's face prior to and during the events of the Black Arms incident, though it could be argued that the instances of the latter game were simply an effect of his amnesia. On one occasion, at the time of the Space Colony ARK incident, seeing police sirens flashing caused him to intensely flash back to the massacre aboard Space Colony ARK and in particular Maria's death. Shadow was soon able to overcome this in the Black Arms and the Emerl incidents, during which he chose to move on from the past yet keep Maria in his heart. In fact, his personal journey since being awoken by Eggman has had him confront the shackles of his past, such as ties, fate, and memories. Since then, it appears as though he is reaching a point where he can "do as his heart desires" in his own way.[26]
+
+Shadow originally had disdain for humanity, being a misanthrope, but rarely attacked them outright, merely looking at them as a distant observer. During the events of the Space Colony ARK incident, Shadow was planning to destroy the planet both ordered by Gerald Robotnik through brainwashing, and as revenge for the death of his only friend, Maria Robotnik. Shadow eventually moves past his hatred for humanity by remembering his promise to Maria. Now Shadow seeks to protect humanity and those on earth to honor Maria's dying wish despite their original misgivings.
+
+During the many incidents that Shadow takes part in, he pursues his foes with a relentless, unwavering determination. He will usually go to any length to accomplish something he desires or feels should be a certain way, no matter what the cost. Before the War to Take Back the Planet, it is heavily implied that Shadow ruthlessly massacred an entire mercenary band known as the Jackal Squad not only in an extremely dismissive, nonchalant manner (as he did not even remember the incident a few months later), but also seemed slightly proud, mocking the mercenary defense squad by saying they themselves needed a defense squad. He also demonstrated rather coarse language during the Black Arms incident.
+
+Shadow possesses a strong sense of identity; after falsely being told by Rouge that he was not the Ultimate Lifeform due to a lab report, he stated to her that, even if his memories were fake, he was still Shadow the Hedgehog.[27] These qualities make him rarely susceptible to being manipulated by others.
+
+Since when did you become someone who secretly works for everyone's peace?
+...I'm not interested in peace or whatever. I don't care what happens to others. I just don't like it when fools do whatever they please on this planet. Whether it's the doctor or anyone else, including you. Don't get me wrong.
+— Sonic the Hedgehog and Shadow the Hedgehog, Sonic Channel 
+In Shadow's own words, he is not interested in peace, nor does he care about what happens to others. In truth, he simply does not like it when foolish people do whatever they please. While this may make it seem like Shadow stands firmly in opposition to villainy, he is actually very indiscriminate about who he faces, as he chooses to stand against anyone who he condemns for being "foolish", be they villains like Dr. Eggman or heroes like Sonic. He similarly does not want thanks for the help he provides when he does something heroic, believing that showing gratitude is a waste of time.[26] However, the grim and uncaring disposition he puts on is not entirely accurate considering the lengths he goes to save others including even sacrificing his own life. In contrast to his words, Shadow acts in a way that ultimately protects others. Deep down he cares about those around him, only hiding his more caring side to keep himself shielded and distant. Despite his apathetic nature, he does feel sympathy for others, and since reforming himself at the end of the Space Colony ARK incident, he has fought for the greater good, most noticeably to prevent letting other people experience past tragedies, specially the ones that he has been through.[28] Due to being given a "soul" identical to Maria's, he is afraid of his power and has never used it recklessly or to cause suffering.[29] Once, he also saw himself as a weapon since he was created as one, thus causing him to believe that he and other weapons would eventually have to be destroyed to achieve world peace.[30]
+
+Shadow is often depressed about the loss of Maria, which is why he keeps to himself, but his relationship with her is obvious as he goes to great lengths to protect the planet and keep her dream of peace and prosperity alive. He also maintains a strong bond with his teammates, Rouge andOmega, proving that while his attitude makes him seem like a careless person, he does have compassion, more than he otherwise lets on. Still, Shadow brushes off most kindness or sympathy that is sent his way; during the Neo Metal Sonic incident, when Rouge showed concern for Shadow when he saw a broken android of himself, suspecting Team Dark's Shadow might be an android too, Shadow curtly brushed her concern away. During the Black Arms incident, after Sonic suggested some "friendly competition", Shadow bluntly rejected his offer.[31] At times, however, Shadow is shown to appreciate genuine care; at the climax of the Space Colony ARK incident, after Amy Rose made him remember his promise to Maria, Shadow openly decided to keep his promise to protect the planet both to Maria and her. Another instance is during the aborted Solaris incident, when Rouge told him that she would always be by his side, he acknowledged her.
+
+Shadow fast friends bio
+Shadow's bio for Fast. Friends. Forever.
+
+Despite the fact that Shadow often fights for the greater good, he is considered an anti-hero for the most part due to his morality and means to his desired end goals. He does whatever is necessary to get what he wants or feels is right, though this enthusiasm causes him to take risks and jump into situations without fully thinking them through.[32] While not necessarily evil, Shadow's cold-hearted, determined personality has sometimes entailed the dangerous purity of turning himself into an enemy of Sonic.[26] Alongside Rouge, he has also taken prize money and jewels upon winning in the second EX World Grand Prix, and the two disregarded the opening and closing ceremonies for the event, showing up late without a third teammate and, at the end of the EX World Grand Prix, walking off right away with what turned out to be dummy versions of the prize money and gems.[33] Regardless, Shadow does have his moments of selflessness and heroism; he nearly sacrificed his life at the end of the Space Colony ARK to save the earth, and helped Silver uncover the truth of the Solaris Project after saving Sonic from him in an aborted timeline.
+
+In spite of Shadow's serious and no-nonsense attitude he is occasionally willing to spend time doing leisurely activities or social events like celebrating Amy's birthday at a murder mystery party on the Mirage Express. He even got Amy a present along with participating in the murder mystery event. Shadow has also competed in a variety of racing and sports competitions, having a strong competitive spirit.
+
+IDW Publishing
+Best described as a grim anti-hero, Shadow has a strong sense of purpose and pursues his goals by any means necessary. He possesses a willingness to do whatever it takes to achieve these goals once he has set his sights on them, including using lethal force. This natural vehemence, however, tends to blind him with anger and make him prone to reckless decisions.[34][35] It can also cause him to hold grudges, to the point where, if the object of his grudge is in sight, he is blinded to everything else; after being bested by Starline at the White Park Grand Chateau, Shadow decided to chase after him while ignoring not only Rouge and Tails being captured, but also an avalanche that would have injured or even killed everyone else. However, Shadow ultimately worked with Sonic to try to stop the avalanche.[36] He also does not tend to take others into consideration, and sometimes his desire for revenge overwhelms his own sense of safety. Being an anti-social lone wolf, Shadow is generally not in favor of team-ups either; although he may occasionally cooperate with others, it is typically for his own reasons and does not guarantee that he is willing to follow orders.[34][37] He also often leaves without saying goodbye or thanks.[38][39]
+
+ShadowsOwnReasons
+Shadow talking with Rouge, from Sonic the Hedgehog #9.
+
+Shadow is sharp-witted, brooding, arrogant, and always seems to be on edge. He usually acts with a cool and business-like indifference, preferring to stay quiet and only speak when it is necessary to achieving his goals without opening up to anyone while staying focused on his intended target. When push comes to shove, however, Shadow can quickly become enormously aggressive and extensively ruthless. He also does not tend to hold back against anyone, especially against those who get in his way.[35] Additionally, he is stubborn and prideful to the point of foolhardiness and never runs away from a fight; while he and Sonic were defending Sunset City from a horde of Zombots, Sonic ran off to burn his Metal Virus infection into remission while advising Shadow to do the same should he get infected, only for Shadow, who considered running to be a coward's tactic (and believed himself to be wholly immune to the Metal Virus), to continue fighting, which sealed his fate upon being infected by the virus.[40]
+
+Powers and abilities
+Sonic v Shadow Boss ARK Race
+Shadow matching Sonic in abilities, from the console/PC version of Sonic Generations.
+
+Said to be Sonic's equal in almost every ability,[41][42][43] Shadow can easily rival the blue hedgehog's various physical skills.[44][45][46] His abilities and skills in combat are an extremely powerful force to be reckoned with, and he is a match for even the most powerful foes in the series. He similarly never willingly holds back his immense strength, making him a brutal fighter. On his own, Shadow has been able to take down G.U.N.'s various combat mechs, Dr. Eggman's battle robots, Black Doom and his empowered state, and even deities. To best put his skills into perspective, Shadow was capable of defeating even Sonic while he had Diablon for support, as seen in some of the scenarios during the Black Arms incident. He even managed to best Emerl in combat after the latter had acquired all seven Chaos Emeralds as a power source[47] (although Emerl quickly surpassed him afterward).
+
+Like many of his associates, Shadow is able to move at super speed. Said to possess "ultimate speed,"[48] Shadow is able to match the speeds reached by Sonic,[44][45][46][49] who is able to reach light speed. Although Shadow's Air Shoes have been credited as the source of his speed,[50][51] his powerful body allows him to easily rival Sonic's world class speed as well.[52] Due to such speed, he can scale vertical surfaces and ceilings, out-speed bullets, and attack faster than the eye can see.[53] Even then, Shadow can take his speed further; by enveloping himself in an orange energy field, he can accelerate beyond the sound barrier on both the ground and in midair for a short time, allowing him to not only smash straight through enemies and obstacles like a living projectile, but also fly immense distances through midair. Using certain techniques, he can even achieve light-speed momentarily. While there are some inconsistencies about how fast Shadow is compared to Sonic, it is usually stated that they are complete equals.[41][45] Shadow has demonstrated complete mastery of his speed in any environment. Not only can he run at maximum tilt in straight lines, but also in full tight circles and through sharp turns with full control over his momentum. As far as stamina goes, Shadow's is seemingly limitless as he is never winded from running. His speed also allows him to perform several impressive feats, like spinning in circles or rotating his extremities at super speed to create winds strong enough to attack or blow away/suck in opponents, similar to aerokinesis.
+
+Kdvshadowflip
+Shadow displaying his acrobatic skills, from Sonic the Hedgehog (2006).
+
+An experienced athlete[54] that shares Sonic's agility,[45] Shadow has outstanding acrobatic skills and nimbleness, along with incredible reflexes that let him avoid any incoming obstacles with precise and delicate movements within split-seconds, grind expertly on Grind Rails, dodge bullets,[53] and perform various strafe movements. When launched into the air, he can also pull off several tricks before landing. Using the Light Speed Dash, he is able to dash across a trail of rings at super speed, further strengthening his maneuverability. Shadow also has superhuman strength, enough to match Sonic in power;[44] with effort,[55] he can overturn objects many times his weight and size such as trucks, buses and large slabs of concrete with one hand. In addition, Shadow possesses astounding kineticism, precision and has reaction time to match his speed. Shadow also has an incredible resilience to damage as he can take lots of major punishment before he goes down for the count. Notably, he is completely bulletproof[56] and even withstood atmospheric entry at the end of the Space Colony ARK incident (the latter which only left him with amnesia[57]). Even when he takes damage though, he is able to recover rather fast.[58]
+
+Owning to his "ultimate life form" physiology, Shadow possesses an immortal body, meaning he does not age and cannot be killed.[46][59][60] Being created as a cure, Shadow has a natural resistance to disease and was able to maintain contact with the Zombot virus for an extended period of time before getting infected. Furthermore, as seen during the Black Arms incident, due to being partly Black Arms, Shadow has a connection to the Black Arms' hive-mind, allowing him to sense his kind's presence and be immune to the Black Arms' body-paralyzing nerve gas.[61]
+
+Shadow also possesses an indomitable will and determination. His absolute refusal to give up in any situation and resolve to see his goals through to the end allows him to keep on persevering even in seemingly impossible situations. His enormous will even let him psychologically resist mind control powers; notably, Shadow was able to regain control of his body from Black Doom despite him being part Black Arms and therefore susceptible to Black Doom's mind control.[62]
+
+Sonic Heroes Chaos Inferno Inversion
+Shadow using Chaos Control, from Sonic Heroes.
+
+Shadow is naturally able to tap into the arcane powers of nearby Chaos Emeralds, either through physical contact or from a distance,[63][64] to empower himself and access different chaos powers. According to Shadow himself, he is the only one who knows how to use the Chaos Emeralds' true power.[65] His trademark ability in the field of chaos powers is Chaos Control, a technique achieved with the Chaos Emeralds that lets him warp time and space for various effects.[46][66] With this technique giving him control over time and space,[67] Shadow is able to warp himself and those close by across space instantaneously[68] over a range further than an island-annihilating explosion or between dimensions, slow down or freeze time entirely,[68][69] and create areas of distorted space.[70] Shadow is noticeably adept in using Chaos Control for anything between large-scale usages to small-scaled and delicate chaos powers inside and outside of combat. He can for example use it to either freeze or slow down opponents in time to give himself the speed advantage,[67] launch surprise attacks by suddenly warping up in front or behind opponents,[56] distort space around his fists for strikes that can blow opponents away, hide himself away in distorted space, attack foes with spots of distorted space, and even power his own healing abilities and guarding skills. However, Shadow cannot perform Chaos Control if he does not have any Chaos Emeralds to draw power from.[71]
+
+Shadow chaos spear gens
+Shadow using his Chaos Spear attack in Sonic Generations
+
+Beside Chaos Control, Shadow is able to use a number of additional chaos powers. One of these chaos powers include his Chaos Spear technique, in which he throws up to several bolts of Chaos Emerald energy at his opponent that can either paralyze or injure an opponent, depending on its power level. Shadow's most powerful technique, however, is the Chaos Blast, a chaos power where he releases a discharge of Chaos Emerald energy in a massive explosion that eliminates everything within a range of 10-20 yards.[69]
+
+Heroes BlackTornado
+Shadow's signature Black Tornado attack in Sonic Heroes.
+
+One of Shadow's main offensive maneuvers is the Spin Attack, a technique where he curls into a concussive ball or cutting disk and directs himself at his targets. With it, Shadow can shred or burrow through just about any substance given enough speed. Highly adept in its usage, Shadow can utilize several variants of the Spin Attack for both grounded and aerial maneuvers, including the Spin Dash, Spin Jump, Double Jump, Homing Attack, Air Dash, Somersault, Dark Spin Dash and the Light Speed Attack, which attacks at the speed of light.
+
+Even without his Spin Attack, Shadow is a powerful hand-to-hand combatant. In line with his nature and potent abilities, Shadow uses a fighting style where he utilizes strong blows, such as powerful chops, flying kicks, sideways kicks, high spin kicks, reverse spin kicks, downward dive kicks, or just barrages of punches and kicks. In addition, many of Shadow's stronger hand-to-hand combat moves revolves heavily around his usage of Chaos Control for space distortion effects to knock opponents away and his Air Shoes' exhaust for burning opponents.
+
+Shadow is an effective combat strategist, able to make split second calculations or adjustments to succeed in battle. His strategies can range from creative uses of his environment, manipulating his opponent's shortcomings, and outmaneuvering enemies.
+
+As shown during the second EX World Grand Prix, Shadow is talented with an his Extreme Gear (Darkness and Black Shot). During the tournament, he was able to put up quite a fight and even defeat some of the world's best Extreme Gear riders. When riding on an Extreme Gear, Shadow is skillful enough to ride on Grind Rails, execute complex tricks while in midair, and perform chaos powers and combat moves with ease.
+
+Shadow-the-hedgehog--with-motorcycle-min (1)
+Shadow's Dark Rider, from Shadow the Hedgehog.
+
+Shadow also has extraordinary skill when it comes to driving or piloting all forms of vehicles. Not only is he one of the best race car drivers in the universe with the Dark Reaper, but he is also able to perfectly operate weaponized buggies, armed motorcycles, modified gliders, hover crafts with machine guns, bipedal mechs and alien devices. Shadow is as well an expert gunner, capable of using weaponry like the G.U.N. Lifts and G.U.N. turrets with perfect accuracy. Also, whereas Sonic dismisses firearms, Shadow is not above using such weaponry, and has demonstrates proficient skills in a very wide range of weapons during the Black Arms incident, such as close combat weapons, guns, cannons, lock-on weapons and lasers. Shadow may also have some knowledge about machinery, having once been able to fiddle with a deactivated Omega and deduce he was in standby mode.[72] A miscellaneous ability Shadow has demonstrated as well is telekinesis, which is potent enough to let him move an Extreme Gear around with his mind with ease.[73]
+
+ShadowWithoutLimiters
+Shadow using his full power, from Sonic the Hedgehog (2006).
+
+As powerful as he is, Shadow is able to make himself stronger up tapping into an even greater power within himself. This power is so potent that should he remove his Limiter Rings, he becomes a walking dynamo of raw power. Eggman compares the overall output of the resulting energy from the rings' removal to that of a raging furnace in his log.[74] When unleashing this power, he releases such tremendous amounts of energy that it forms an impenetrable barrier around himself.[75] While in this state, Shadow gains increased strength and speed,[76] enough to overpower hundreds of clones of Mephiles the Dark at once.[75] However, using his full power tires him out more quickly.[76]
+
+IDW Publishing
+Shadow is an extremely powerful individual and combatant, capable of going toe-to-toe with and sometimes even overwhelming Sonic in fierce combat. He boasts superb agility and reflexes to match his rocket skate-induced speed, allowing him to act accordingly to even Sonic's split-second movements. Like Sonic, he can perform the Spin Attack, a technique where he curls into a concussive ball or cutting disk and directs himself at his targets. With it, Shadow can shred or burrow through just about any substance given enough speed.[77] Likewise, although he can only keep up with Sonic's level of super speed using his rocket skates, he is still faster than the average person, enough to chase after a speeding truck.[78]
+
+IDW61ChaosControl
+Shadow performing Chaos Control, from Sonic the Hedgehog #61.
+
+In addition, Shadow commands a number of Chaos Powers. He can warp space and time with Chaos Control, which allows him to teleport himself and, with the help of a Chaos Emeralds, he can teleport others instantaneously over wide distances at will. Chaos Control can alternatively be used to stop time temporarily. Shadow can also form spears out of green energy called Chaos Spears that he can either throw at opponents or wield as a solid melee weapon.[79][80][77][81] When Shadow attacked Eggperial City, he was able to manipulate the Giant Fake Chaos Emeralds to create a tower of them and to trap Eggman's central tower.[82] Shadow has impressive hand-to-hand combat skills as well, being able to utilize a mix of brutal punches and kicks, as he was able to beat up even Neo Metal Sonic, albeit with a surprise attack.[79]
+
+Equipment
+Hover Shoes flying
+Shadow using his Air Shoes to hover, from Sonic Adventure 2.
+
+Shadow wears a pair of specialized shoes called Air Shoes. These footwear are the primary source of Shadow's speed,[50] producing small jet streams that let him hover-skate at speeds supposedly even surpassing Sonic's speed.[83] Alternatively, Shadow can use his Air Shoes' exhausts to attack opponents with fire, empower his jumps, or achieve midair hovering.
+
+Shadow wears four Limiter Rings, one on each of his wrists and ankles, that limit the amount of power he uses during combat and other situations. By removing them, Shadow is able to utilize his full power.
+
+During the Black Arms incident, Shadow made use of a vast selection of weaponry. This included anything from close combat weapons like Survival Knives and Black Swords; guns like Pistols and Sub-Machine Guns; cannons like Bazookas and Grenade Launchers; lock-ons like 8-Shot RPGs and Worm Shooters; to lasers like Laser Rifles and Refractors.
+
+IDW Publishing
+Shadow wears a pair of specialized shoes. These footwear are the primary source of Shadow's speed, producing small jet streams that lets him hover-skate at speeds rivaling Sonic's supersonic running speed.[84][85] Alternatively, Shadow can use his rocket skates to produce fire to attack opponents with or achieve midair hovering.[86][87]
+
+Transformations
+Super Shadow
+Main article: Super Shadow
+Super shadow final
+Shadow transformed into Super Shadow, from Sonic Art Assets DVD.
+
+By harnessing the power of the seven Chaos Emeralds, Shadow can enter a Super State, transforming him into Super Shadow. In this state, all of Shadow's abilities far surpass his normal ones and his chaos powers are increased to their full limit. He is also able to fly and is nearly invulnerable. Initially, Shadow found it difficult to stay in this state due to inexperience,[88][89] but he has since mastered it. In addition, this transformation consumes a lot of energy, meaning it cannot be maintained for long.
+
+Hero Shadow
+Main article: Hero Shadow
+Hero Shadow
+Shadow in his Hero Shadow state, from Shadow the Hedgehog.
+
+When his mind is fueled by thoughts of justice, Shadow is able to attain an enhanced state known as Hero Shadow.[90][91] In this state, Shadow is temporarily invincible and can perform a large-scale use of Chaos Control. However, this state only lasts for a short period of time.
+
+Dark Shadow
+Main article: Dark Shadow
+Darkshadow36
+Shadow in his Dark Shadow state, from Shadow the Hedgehog.
+
+When his mind is fueled by thoughts of evil, Shadow is able to attain an enhanced state known as Dark Shadow.[90][91] In this state, Shadow is temporarily invincible and can perform a large scale-use of Chaos Blast. However, this state only lasts for a short period of time.
+
+Chaos Boost
+Main article: Chaos Boost
+S06ChaosBoost
+Shadow in his Chaos Boost state, from Sonic the Hedgehog (2006).
+
+On his own, Shadow can access an enhanced state known as the Chaos Boost. In this state, Shadow's powers are boosted significantly, granting him warp-like speeds, near invulnerability, and bolstered chaos powers.
+
+Color Powers
+Main article: Color Power
+By harnessing different variants of Hyper-go-on from Wisps, Shadow can use specific Color Powers to transform into a certain form, such as a drill, a laser or even a planet, each one possessing its own unique abilities. So far, Shadow has been able to transform into the Cyan Laser, Yellow Drill and Indigo Asteroid. However, these transformations require a steady supply of Hyper-go-on to be maintained.
+
+Weaknesses
+Dolphin 2015-09-05 20-34-39-930
+Shadow being temporarily controlled by Black Doom, from Shadow the Hedgehog.
+
+Shadow takes extreme measures to achieve his goals.[4]
+
+During the time he had amnesia, Shadow was initially a somewhat easy target for manipulation due to his confusion about who he was and his eagerness to learn anything more about his past. Dr. Eggman could deceive him with lies about his past and Black Doom could subtly manipulate him using visions. However, after learning of his true purpose, Shadow is no longer as easily deceived.
+
+Being part of the Black Arms, Shadow is partially an extension of Black Doom, making him vulnerable to mind control exerted by Black Doom himself. However, Shadow can fight this influence through sheer resolve and willpower.
+
+Despite his immortality, Shadow can be knocked down if taken off-guard. Most noticeably, this will leave him unable to walk and speak immediately after the attack.[92] Though he can still fight later on, this will risk his life if he pushes himself too far,[93] and it takes him several days to fully recover.
+
+Shadow when his Limiter Rings are taken off, if he uses all his energy, it can lead in into him over-exerting himself allowing him to be defeated easily from exhausting him.[74]
+
+IDW Publishing
+While Shadow has no known physical weaknesses, his rash and headstrong nature has caused him to fall to dire situations before; even though Sonic had told him he could similarly counter his infection with his speed, Shadow, misinterpreting it as meaning to retreat, refused to break away from fighting the Zombots. Also, despite the fact that his immune system is indeed more powerful than many others and cannot leave him sick from any known diseases, it is not immune to everything as he still got infected by the Metal Virus, albeit in a more delayed response compared to other people.[94]
+
+Relationships
+Main article: Shadow the Hedgehog/Relationships
+In other media
+Main article: Shadow the Hedgehog/Miscellaneous#In other media
+Sonic Prime
+Main article: Shadow the Hedgehog/History and appearances (Sonic Prime)
+ShadowPrimeRender3
+Shadow the Hedgehog, from Sonic Prime.
+
+Shadow is a focused, serious and powerful hedgehog known as the Ultimate Life Form. While trying to join in the fight against Eggman, he ends up trapped inside the Void of the Shatterverse, not allowed to visit other worlds. Shadow must try to find a way to help Sonic, but first, he must learn to trust the hedgehog once again.
+
+Paramount
+Main article: Shadow the Hedgehog (Paramount)
+Paramountshadow
+Shadow the Hedgehog, from Sonic the Hedgehog 2 (film).
+
+In the Sonic the Hedgehog film series produced by Paramount Pictures and its spin-offs, Shadow is an anthropomorphic hedgehog associated with a secret experiment called Project Shadow that took place over fifty years prior to Dr. Robotnik's return from the Mushroom Planet.
+
+IDW Publishing
+Main article: Shadow the Hedgehog/History and appearances (IDW)
+IDWShadowTheHedgehog
+Shadow the Hedgehog, from Sonic the Hedgehog #5.
+
+In the Sonic the Hedgehog comic series and its spin-offs published by IDW Publishing, Shadow's past is virtually identical to his game counterpart's, up until after the events of Sonic Forces. After the Eggman War, Shadow focused on finding Dr. Eggman and eliminating him. He eventually found him in Windmill Village, where Sonic defended Eggman, claiming he had lost his memory and was now harmless. After some persuasion, Shadow decided to leave Eggman be. He later took part in the battle for Angel Island and the fight against Neo Metal Sonic. Afterward, during the Metal Virus outbreak, Shadow, along with Team Dark, helped evacuate Sunset City. However, Shadow ended up getting infected with the Metal Virus and turned into a Zombot. Eventually, however, he was restored to normal on Angel Island, where he immediately began pursuing Eggman, but was foiled by Metal Sonic. He later followed a lead on Eggman to White Park Zone, where he got attacked by Dr. Starline. Soon after, Shadow helped Sonic save the White Park Grand Chateau from an avalanche caused by Starline.
+
+Sonic Wiki Zone
+Know something we don't about Sonic? Don't hesitate in signing up today! It's fast, free, and easy, and you will get a wealth of new abilities, and it also hides your IP address from public view. We are in need of content, and everyone has something to contribute!
+
+If you have an account, please log in.
+
+Sonic Wiki Zone
+Sonic Wiki Zone
+Explore
+Game Titles
+Game features
+Media
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Sonic Wiki Zone
+20,682
+pages
+Explore
+Game Titles
+Game features
+Media
+Community
+
+
+in: Shadow the Hedgehog, History and appearances subpages
+English
+Shadow the Hedgehog/History and appearances
+< Shadow the Hedgehog
+Sign in to edit
+Main page
+History and app.
+History and app.
+(IDW)
+History and app.
+(Sonic Prime)
+Relationships
+Misc.
+Gallery
+This article is about the video game character. For other uses, see Shadow the Hedgehog (disambiguation).
+Shadow the Hedgehog
+SXSG art Shadow 04
+Shadow the Hedgehog, from Sonic X Shadow Generations.
+Appearances
+First appearance
+Sonic Adventure 2
+Game appearances
+Sonic Adventure 2: Battle
+Sonic Pinball Party (mentioned)
+Sonic Battle
+Sonic Heroes
+Sega Superstars
+Sonic Gems Collection
+Shadow the Hedgehog
+Sonic Riders
+Sonic the Hedgehog (2006)
+Sonic Rivals
+Sonic and the Secret Rings
+Mario & Sonic at the Olympic Games
+Sonic Rivals 2
+Sonic Riders: Zero Gravity
+Super Smash Bros. Brawl (cameo)
+Sega Superstars Tennis
+Sonic Chronicles: The Dark Brotherhood
+Sonic Unleashed (mentioned)
+Sonic and the Black Knight
+Mario & Sonic at the Olympic Winter Games
+Sonic at the Olympic Winter Games
+Sonic & Sega All-Stars Racing
+Sonic Free Riders
+Sonic Colors (Nintendo DS)
+Sonic Generations (console/PC)
+Sonic Generations (Nintendo 3DS) (cameo)
+Mario & Sonic at the London 2012 Olympic Games (Wii)
+Mario & Sonic at the London 2012 Olympic Games (Nintendo 3DS)
+Sonic Adventure 2 (2012)
+Sonic Jump (2012) (cameo)
+Sonic & All-Stars Racing Transformed
+Sonic Dash
+Mario & Sonic at the Sochi 2014 Olympic Winter Games
+Sonic Jump Fever
+Super Smash Bros. for Nintendo 3DS and Wii U (cameo)
+Sonic Runners
+Mario & Sonic at the Rio 2016 Olympic Games
+Sonic Runners Adventure
+Sonic Forces: Speed Battle
+Sonic Forces
+Sega Heroes
+Super Smash Bros. Ultimate (cameo)
+Team Sonic Racing
+Sonic Racing
+Mario & Sonic at the Olympic Games Tokyo 2020
+Sonic at the Olympic Games (2020)
+Sega Streaming Theater Sonic Edition (cameo)
+Sonic Dash+
+Sonic Speed Simulator
+Sonic Frontiers (mentioned)
+The Murder of Sonic the Hedgehog
+Sonic Prime Dash
+Sonic Superstars (cameo)
+Sonic Rumble
+Shadow Generations
+Appearances in other media
+Archie Comics
+Sonic X
+Sonic Boom
+Sonic Comic
+Sonic Forces digital comic
+IDW Publishing
+Team Sonic Racing One-shot
+Team Sonic Racing Overdrive
+Cover stories (2021)
+Sonic the Hedgehog (film series)
+TailsTube
+Sonic Prime
+Otherworld Comedy (2023)
+Sonic & Friends
+Calendar Comedy (2024)
+Sonic X Shadow Generations: Dark Beginnings
+Real-world designer(s)
+Creator(s) (real-world)
+Kazuyuki Hoshino
+Shiro Maekawa[1]
+Takashi Iizuka[2]
+Yuji Uekawa
+Artist(s)
+Yuji Uekawa
+Voice actor(s)
+English
+David Humphrey (2001-2004)
+Ryan Drummond (briefly, Sonic Adventure 2)[3]
+Jason Griffith (2005-2010)
+Kirk Thornton (2010-present)
+Japanese
+Kōji Yusa
+Other languages
+Benoît DuPac (French)
+Claudio Moneta (Italian, 2013-present)
+Klaus Lochthove (German, 2011-2019, 2024)
+Manuel Gimeno (Spanish)
+Maurizio Merluzzo (Italian; 2011 - 1st voice)
+Riccardo Lombardo (Italian, 2011 - 2nd voice)
+TBA (German, 2024-present)
+Biographical overview
+Age
+Ageless[4] (created 50 years ago)
+Creator
+Gerald Robotnik †
+Black Doom †
+Birthplace
+Space Colony ARK
+Relative(s)
+All Black Arms †
+Black Doom (biological father)
+Nickname(s)
+The Ultimate Lifeform
+The Ultimate Hedgehog
+Fake Hedgehog
+Black Wind
+Project Shadow
+Black Hedgehog
+The Black Blur[5]
+Faker
+Species
+Hedgehog[6]/Black Arms
+Physical description
+Gender
+Male
+Height
+100 cm (3 ft 3 in)[6]
+Weight
+35 kg (77 lb)[6]
+Fur
+White, black, crimson
+Skin
+Tan
+Eyes
+Red
+Attire
+Air Shoes
+Limiter Rings
+White gloves with black and red-tongued cuffs
+Alignment and character traits
+Alignment
+Neutral
+Affiliation(s)
+Eggman Empire (formerly)
+United Federation
+Guardian Units of Nations
+Team Dark
+Resistance (formerly)
+Likes
+Maria Robotnik
+Team Dark
+Dislikes
+Fools[4]
+Anyone who opposes him
+Dr. Eggman
+Deception
+When others insult him
+When someone gets in his way
+Wasting time
+Losing
+Powers and abilities
+Skills
+Doom Powers
+Immortality
+Immense speed
+Superhuman strength
+Superhuman durability
+Superhuman jumping
+Absolute stamina
+Extreme acrobatic skills and reflexes
+Indomitable will
+Hand-to-hand combat skills
+Weapon and firearm combat skills
+Vehicle intuition
+Extreme Gear riding skills
+Grinding
+Telekinesis
+Harnessing Chaos Emerald energy
+Chaos Boost transformation
+Chaos powers
+Hero Shadow and Dark Shadow transformations
+Super transformation
+Hyper-go-on usage
+Moves and techniques
+Air Boost
+Air Ride
+Attack
+Black Tornado
+Boost
+Cartwheel
+Chaos Blast
+Chaos Boost
+Chaos Control
+Chaos Snap
+Chaos Spear
+Chaos Upper
+Color Power
+Crouch
+Crouch (grinding)
+Dash Boost
+Double Jump
+Drop Dash
+Fire Somersault
+Grab
+Grind Step
+Guard
+Homing Attack
+Jump Dash
+Kick
+Kick Dash
+Light Speed Attack
+Light Speed Dash
+Punch
+Quick Step
+Shadow's All-Star Move
+Skydiving
+Slide
+Somersault
+Speed Up
+Spin Attack
+Spin Dash
+Spin Jump
+Stomp
+Trick Action
+Wall Jump
+Ability type
+Speed
+
+Contents
+1	History
+1.1	Past
+1.2	Sonic Adventure 2
+1.3	Sonic Heroes
+1.4	Sonic Battle
+1.5	Shadow the Hedgehog
+1.6	Sonic the Hedgehog (2006)
+1.7	Sonic Rivals series
+1.7.1	Sonic Rivals
+1.7.2	Sonic Rivals 2
+1.8	Sonic Free Riders
+1.9	Sonic Colors
+1.10	Sonic Generations
+1.11	Sonic Forces
+1.12	Team Sonic Racing
+1.13	The Murder of Sonic the Hedgehog
+1.14	Shadow Generations
+2	Other game appearances
+2.1	Sonic Pinball Party
+2.2	Sonic Riders series
+2.2.1	Sonic Riders
+2.2.2	Sonic Riders: Zero Gravity
+2.3	Sonic Storybook Series
+2.3.1	Sonic and the Secret Rings
+2.3.2	Sonic and the Black Knight
+2.4	Mario & Sonic series
+2.4.1	Mario & Sonic at the Olympic Games
+2.4.2	Mario & Sonic at the Olympic Winter Games
+2.4.3	Mario & Sonic at the London 2012 Olympic Games
+2.4.4	Mario & Sonic at the Sochi 2014 Olympic Winter Games
+2.4.5	Mario & Sonic at the Rio 2016 Olympic Games
+2.4.6	Mario & Sonic at the Olympic Games Tokyo 2020
+2.5	Super Smash Bros. series
+2.5.1	Super Smash Bros. Brawl
+2.5.2	Super Smash Bros. for Nintendo 3DS and Wii U
+2.5.3	Super Smash Bros. Ultimate
+2.6	Sega All-Stars series
+2.6.1	Sega Superstars Tennis
+2.6.2	Sonic & Sega All-Stars Racing
+2.6.3	Sonic & All-Stars Racing Transformed
+2.7	Sonic Chronicles: The Dark Brotherhood
+2.8	Sonic Unleashed
+2.9	Sonic Jump series
+2.9.1	Sonic Jump (2012)
+2.9.2	Sonic Jump Fever
+2.10	Sonic Dash
+2.11	Sonic Runners series
+2.11.1	Sonic Runners
+2.11.2	Sonic Runners Adventure
+2.12	Sonic Forces: Speed Battle
+2.13	Sega Heroes
+2.14	Sonic Racing
+2.15	Sonic Speed Simulator
+3	Notes
+4	References
+History
+Past
+Main article: Project Shadow
+Shadow's history dates back to fifty years prior to the Space Colony ARK incident, when "Project Shadow", a secretive project sanctioned by the government, began under Professor Gerald Robotnik's supervision on the Space Colony ARK. The purpose of the project was to create immortality, and apply it to the "The Ultimate Lifeform", which the United Federation president planned to harness as a weapon. Gerald, however, had his own goal in mind: He planned to use the results of the project as a way of finding a cure for his dying granddaughter Maria, who was suffering from the incurable illness NIDS. As such, although Gerald had his own concerns that he was crossing a moral boundary by attempting to create immortality, he put these aside for the sake of his granddaughter.[7] There are two reasons why the name "Shadow" in particular was coined: one came from the irony that a shadow could not be created, referencing the belief that immortality was impossible[7] and working as a metaphor of "unreal things";[8] while the other one came from Maria herself, who said that it sounded "cute" and that shadows could "teach people the way to the light".[8] However, Gerald himself thought that the name sounded "villain-like".[8]
+
+Dolphin 2015-12-02 19-07-32-244
+Shadow awakening after his creation, from Shadow the Hedgehog.
+
+Despite receiving resources from the government to back the project, Gerald soon hit a barrier in his research, and, out of desperation, took advantage of the Black Comet passing by the Earth (something which only happened every 50 years) and contacted the Black Arms living on it. The leader of the Black Arms, Black Doom, offered his blood for usage in Project Shadow, in return for the seven Chaos Emeralds being delivered to him when the comet returned in 50 years. Gerald agreed, but secretly made preparations to defeat the aliens, as he had suspicions about their ulterior motives regarding the emeralds. Using the DNA from Black Doom, Gerald created Shadow the Hedgehog.
+
+Upon awakening, Shadow began his life on the ARK, forming a strong bond with Maria, and assisting the researchers. Meanwhile, with his research successful, Gerald shifted his focus to preparing for the return of the Black Arms. This led to the creation of the Eclipse Cannon, a laser which could harness the powers of the Chaos Emeralds to potentially destroy the Black Comet. At some point, Shadow was lamenting at how he can't seem to cure Maria, despite the point behind his creation being to cure diseases, only for Maria to comfort Shadow. During this time, an explosion occurred, with a robot proceeding to head towards Gerald's Lab with ill intent. Shadow then promised to return for Maria once he's saved Gerald. He then confronts Emerl inside Gerald's lab.[9]
+
+However, disaster struck when the results of Project Shadow and the research behind it were leaked to G.U.N.. This leak, combined with the already-strained ties between the United Federation, incited fear in the upper branches of the government, who, afraid of Gerald's true involvement with the Black Arms, ordered an invasion of the ARK to shut down the project.[7]
+
+GUPE8P-9-0
+Shadow hearing Maria's final wish before being sent to earth, from Shadow the Hedgehog.
+
+Raiding the ARK, the G.U.N. forces sealed the Biolizard away, and sent most of the colony's inhabitants back to Earth, while all the researchers involved with Project Shadow were killed, excluding Gerald, who attempted to flee, but was instead captured. Shadow and Maria also attempted to flee, having been instructed by Gerald to locate an escape pod.[7] However, just before they could reach the pod, G.U.N. Soldiers arrived, and Maria was fatally shot. With her dying breath, Maria activated the pod with Shadow in it, and implored Shadow to give all the people on Earth a chance to be happy. Confined to the pod, Shadow was forced to watch in agony as his friend fell to the ground, and the pod was ejected towards Earth.
+
+Shadow's pod was eventually recovered by G.U.N., and the hedgehog was sent in suspended animation to Prison Island, where Gerald was forced to continue his research under government supervision. Having gone insane with grief after learning of his granddaughter's death, Gerald began secretly brainwashing Shadow,[10] modifying his memories so he believed he was meant to destroy humanity. Gerald also secretly kept a diary of his experience, in which he encouraged anyone who found it to release Shadow, should they desire mass destruction. Soon after, Gerald was incarcerated and executed, while Shadow was kept sealed away on the island.[7]
+
+Sonic Adventure 2
+Sonic2app 2016-09-24 15-26-13-103
+Shadow meeting Sonic for the first time, from Sonic Adventure 2: Battle.
+
+In Sonic Adventure 2, Dr. Eggman set Shadow free from a G.U.N. base on Prison Island, where he had spent approximately fifty years in suspended animation. In exchange, Shadow agreed to aid the doctor in his plans to take over the world, holding to himself his true intentions as wishing to get revenge for the death of his friend, Maria Robotnik, as he thought she wanted. To achieve this, the black hedgehog revealed the Eclipse Cannon to the scientist. Beforehand, he also stole the green Chaos Emerald from a bank, unknowingly also framing Sonic the Hedgehog for the deed.
+
+He later participated in the second heist alongside Dr. Eggman and Rouge the Bat against Prison Island, where he would plant explosives throughout the island as part of their getaway, although his resemblance to Sonic also resulted in Amy Rose mistaking him for the latter. However, because Miles "Tails" Prower came to Amy's rescue from Dr. Eggman, he was forced to act fast due to the unexpected delay. In addition, after Rouge ended up getting caught and stranded in the containment area while recovering the four Chaos Emeralds, Shadow, largely because he realized that his plans of avenging Maria Robotnik would be for naught if Rouge perished in the explosion, rushed to get to Rouge and by extension the Chaos Emeralds.
+
+After meeting Sonic for a second time, Shadow also believed that Sonic was trying to copy him. They fought to a stalemate before Shadow was forced to leave to rescue Rouge (with Sonic also learning from Eggman via Shadow's radio that the island was about to blow up), and just barely arrived at Rouge's location and used Chaos Control to warp himself, Rouge, the four Chaos Emeralds and presumably Eggman out at the last possible second. After the demonstration, needing the final Chaos Emerald to fulfill their plans, Shadow pursued Tails' plane at a canyon. Although he was unable to stop them, he nonetheless reported to Eggman that they are headed his way. When Eggman discovered the presence of two apparent emerald readings, and thus deduced Tails' plan of placing a fake Chaos Emerald into the cannon, Shadow departed, apparently to confront Sonic and Tails to stop them for interfering, although Eggman stopped him, wanting to deal with them personally. After Sonic was seemingly killed by Dr. Eggman via a rigged escape capsule, Shadow, witnessing the explosion, guessed that Sonic was only an ordinary hedgehog.
+
+Sonic vs Shadow-0
+Shadow and Sonic having a rematch, from Sonic Adventure 2.
+
+Afterwards, Shadow stumbled upon Rouge's plan to steal the Chaos Emeralds, and deduced that she was in fact a spy for the President of the United Federations, although Rouge then unveiled a report from Gerald Robotnik regarding the Biolizard, claiming, it, not Shadow, was the actual Shadow. However, Shadow was forced to depart after Eggman mentioned an anonymous figure (Sonic) heading towards the Eclipse Cannon, although not before stating that he's still Shadow despite his memories possibly being fake, and that "the fake emerald is good enough for Rouge." He then discovers Sonic the Hedgehog at the area. Shadow, impressed at Sonic's capability of using Chaos Control despite using a fake Chaos Emerald, nonetheless stated that he cannot allow him to live before fighting on a collapsing runway. In the last story, Eggman inserted the final Chaos Emerald, only to initiate a destabilization program on the ARK. Professor Gerald Robotnik then revealed that he had made this function to have revenge for Maria, and that the ARK would destroy the Earth. Sonic, Eggman, Rouge, Tails and Knuckles took a shortcut to the cannon's core so they could stop the Professor's mad plan.
+
+Sonic2app 2015-10-22 15-07-18-562
+Shadow having transformed into Super Shadow, from Sonic Adventure 2.
+
+Amy Rose then helped Shadow realize Maria's true wish. In a twist of fate, Shadow ultimately aided Sonic when realizing, with Amy's help, Maria's true wish, which was to save humanity. Meanwhile, Sonic the Hedgehog and Knuckles had reached the central core, where they reactivated the Biolizard. Notably, a scene from Gerald Robotnik's diary appeared again. After Shadow defeated the Biolizard, Knuckles used the Master Emerald to stop the Chaos Emeralds. But the Biolizard, being the prototype of Project Shadow, used Chaos Control to fuse with the ARK, continuing its fall. Then, Sonic and Shadow, in their Super States, destroyed the Biolizard. The Ultimate Lifeform prototype became a monster, codenamed Finalhazard. Using their powers, Shadow and Sonic defeated him and executed an enhanced Chaos Control which stopped the fall and warped the ARK. Afterwards, Shadow's energy was drained out and after falling to the Earth, he was presumed dead.
+
+Sonic Heroes
+Android or Hedgehog
+Shadow in stasis, from Sonic Heroes.
+
+In Sonic Heroes, Rouge discovered Shadow unconscious in a stasis pod located in the deepest part of one of Dr. Eggman's bases, after he was believed to be dead. As she activated the capsule, E-123 Omega ban to scan Rouge and the newly awakened Shadow, believing him to be a creation of Eggman. As Shadow awakened, Omega fired a round of guns at Shadow and Rouge. Shadow ordered Rouge to step away while he took on Omega, but Rouge stepped in to break them up, quickly ending the skirmish. Shadow discovered that he has amnesia and could not remember anything before his release, aside from his name and brief images of Maria Robotnik's death. He unwillingly joined forces with Rouge and Omega, to form Team Dark and find Eggman.
+
+On their way to Eggman on Grand Metropolis, Shadow and his team met up with Team Chaotix, and began fighting against them as Rouge suspected them to be searching for "Eggman's treasure". Later, Shadow met Dr. Eggman in a casino, asking him for his identity; however, "Eggman" denied that Shadow had "a past to remember". On another battle against one of Eggman's machines, Shadow discovered that there are clones of him, much to his already established self-confusion. After giving it a brief break, Shadow, however, chose to proceed forward. Unbeknownst to him, Neo Metal Sonic had collected Shadow's data while the hedgehog was fighting during that moment.
+
+Vlc 2016-10-27 23-36-57-658
+Shadow mocking Sonic, from Sonic Heroes.
+
+In Lost Jungle, Shadow confronted Sonic and his team of Knuckles and Tails. When they encountered each other, Shadow had no memory of Sonic, and asked Rouge about him. The two teams began taunting each other until Omega threatened Sonic and his team to destroy them. Shadow then started a fight against Sonic and his friends. When they made it to the Egg Fleet, Shadow made up his mind to defeat Eggman once and for all even if he was not truly the ultimate lifeform.
+
+After "Eggman" was seemingly defeated, Shadow remarked that Rouge's desire to steal the Master Emerald from Knuckles as she was explaining her next plan is nothing strange for him. Shortly after that, Neo Metal Sonic revealed himself to them, and began transforming as Shadow, his teammates and the other teams were witnessing that moment. Having no other option, Shadow worked with everyone else to help defeat the monster, and gladly gave his Chaos Emerald to Sonic. After the final battle, Shadow and E-123 Omega were holding the defeated Metal Sonic.
+
+Sonic Battle
+Sonic vs Shadow
+Shadow confronting Sonic, from Sonic Battle.
+
+In Sonic Battle, Shadow had numerous instances of a mysterious voice telling him to not allow a so-called "strong power" to exist. Eventually, this prompted him to go to investigate at Dr. Eggman's Gimme Shelter base in Night Babylon, where he found the Gizoid, an ancient weapon of mass destruction in the scientist's possession which he recognized as the voice that called him. Soon after, he found Rouge, who also went to investigate after hearing rumors of Eggman hiding something important. Afterwards, however, the two were confronted by a horde of the doctor's Guard Robos, whom they promptly fought. Despite holding the advantage, the black hedgehog was attacked by one of the robots while he was looking away, heavily injuring him. The bat thus took him to her Club "Rouge" nearby, where he would spend several days recovering.
+
+A few days later, Shadow headed to Emerald Town, where he found Sonic with the Gizoid approaching Tails' house. Following a misunderstanding, the two hedgehogs fought in the area over the robot. After losing due to his weakened state, the black hedgehog left, but not before asking his rival not to let Eggman get ahold of the Gizoid. Much later, Shadow learned that Tails and the Gizoid, now named "Emerl", found out about the latter's background in a governmental computer, and told the fox to destroy the robot before it collected the seven Chaos Emeralds to regain its full power and destroy the world. However, Tails did not listen, and a confrontation between the two soon ensued in Central City. Fortunately, Rouge stepped in and stopped the battle, since Guard Robos were hot on their trails too. The black hedgehog was also forced to quit fighting when his poor condition got the best of him. Shadow promptly left with the bat while Tails and Emerl escaped to Emerald Town.
+
+Over the next few days, Shadow would have flashbacks of his past, from the time he was awakened by Dr. Eggman, to his recent fights with Sonic and Tails over Emerl and his formation of Team Dark with Rouge. When he finally recovered, the black hedgehog headed to Emerald Town, where he found the blue hedgehog and informed him that Emerl only needed one more Chaos Emerald to awake his full power, which would destroy the world, but Sonic believed the robot would not do that since he had a heart like Shadow, who was also a top secret ultimate weapon. As the black hedgehog brushed off his arguments, Sonic gave up trying to argue with him and let him have the Gizoid. Despite Emerl being attracted to Shadow's Chaos Emerald, the blue hedgehog let him go with the black hedgehog, believing he would learn who he really was with his help. Along the way, Shadow and Emerl were confronted by Chaos Gamma in Central City, whom they defeated. With Gamma unable to move and only uttering his wish for destruction, the hedgehog reminded the robot that this was the fate of weapons of war.
+
+Continuing along, Shadow and Emerl returned to Gimme Shelter, where they were confronted by Rouge. With the hedgehog wishing to know why he had a "soul" despite supposedly being a weapon of war, the bat explained to them that Professor Gerald had little interest in using his research for war, and thus gave Shadow a "soul" identical to that of Maria, wishing that the black hedgehog would never fight despite how crazed humanity might become. She continued, saying that while the professor was unable to erase Emerl's destructive code, he did implement a special code in him to turn him into a ordinary robot when the following quote was uttered: "Bring hope to humanity". Afterwards, Shadow gave the Gizoid his Chaos Emerald and ordered him to "bring hope to humanity", thus making Eggman no longer able to control the robot. Later, the hedgehog had a showdown with Emerl to see who was the strongest; midway through though, the Gizoid told him that he wanted to see his friends one last time. As such, Shadow ordered him to go meet his friends for the last time and then to go fight him at Central Highway.
+
+After complying with Shadow's orders, Emerl fought him in the specified area. When the Gizoid won though, the black hedgehog saw some unexpected help from Sonic, who wanted to give the robot a bigger challenge. After Emerl won despite the odds, he thanked the blue hedgehog and the others for raising him up. Believing that a weapon having feelings was ridiculous, Shadow left with a frown.
+
+Shadow eventually joined Sonic and his friends when they were watching Emerl take on Dr. Eggman in the Death Egg. However, things turned sour after the Gizoid went haywire when the scientist showcased the power of his Final Egg Blaster, which caused the robot to take control of the laser cannon and aim it at earth. Discovering that this was the doctor's plan all along, the black hedgehog saw as Sonic tried to use the Master Emerald to stop the rogue robot, with no success. With only thirty seconds left before the Final Egg Blaster fired and destroyed the planet, Shadow saw this as a result of human ignorance and greed. He and the others later watched as the blue hedgehog went onboard the Death Egg himself and defeated Emerl, stopping the cannon from firing and saving the world. Unfortunately, however, the robot was destroyed, with the black hedgehog seeing this as Gerald's final program: if a weapon went out of control, it would terminate itself. Upon his destruction, Emerl left an Emerald Shard in which, according to Sonic, his soul was still resting.
+
+Shadow tries to convince Sonic that Emerl is a threat, but Sonic refuses to believe him, forcing Shadow to fight Sonic. Sonic wins, but Shadow still warns him about the unknown dangers the Gizoid represents. Rouge the Bat saves Shadow while they are investigating Dr. Eggman's secret base and takes him back to her home. Shadow talks about how the people of Earth must destroy him and Emerl if they ever want peace, still believing that he is a weapon. It is revealed, however, that he ultimately has the heart and soul of Maria Robotnik, implying he could not be the enemy of humanity.
+
+Shadow the Hedgehog
+In Shadow the Hedgehog, while being haunted by the thoughts of his past memories, Shadow witnessed an alien race known as the Black Arms arriving on earth to invade, where the leader of the race, Black Doom appeared before him through Doom's Eye and told him to bring him the Chaos Emeralds "as promised" before disappearing. Fueled with the desire to seek out his past and find the truth behind Doom's words in hopes of uncovering his past, the black hedgehog went off to find the Emeralds. Beginning in the ruins of Westopolis, he seemingly collaborated with the Black Arms[note 1] before ending up at Dr. Eggman's Cryptic Castle. Believing that the doctor knew something about his past, Shadow infiltrated the castle and found Amy, whom he helped rescue Cream and Cheese, before being confronted by the scientist's Egg Breaker. With the pink hedgehog's help, however, he destroyed the mech and later found himself caught in the crossfire between the Black Arms' ancient aerial fortresses and the Eggman Empire's Eggman Fleet. In the aftermath, he had four Chaos Emeralds in his possession.
+
+After successfully gathering all of the Chaos Emeralds and ending up at the Black Arms's Black Comet, Shadow was confronted by Black Doom, who commanded him to give him the Emeralds so that they could begin the "prosperity ritual". However, Sonic the Hedgehog and the others, including Eggman himself, then arrived and told the black hedgehog not to listen to the alien leader. Nevertheless, after revealing the Black Arms' intention to harvest humans as an energy source, Doom took the Chaos Emeralds from Shadow and used Chaos Control to warp the Black Comet down to the surface of the earth. The alien overlord then explained that he helped Professor Gerald create Shadow, but only in return for the Chaos Emeralds, which were needed to bring the comet down to the surface, before he paralyzed everyone with a special gas and left them to be devoured by his alien offspring, the Death Leeches. Due to having the same blood as Black Doom, Shadow was the only one not affected by the gas and continued forward as he finally put his past behind, swearing to never let anyone manipulate him again, and was determined to destroy Black Doom.
+
+Dolphin 2015-12-02 19-22-09-847
+Shadow looking back at his past one last time before moving forward, from Shadow the Hedgehog.
+
+Black Doom fled, leaving behind Shadow, the only hope for the planet. Shadow caught up with Black Doom and suddenly was attacked by mind control. Black Doom told him that he could control him as they had the same blood running through their veins. Just then, Team Chaotix activated a film showing a sane Professor Gerald Robotnik sometime before the raid on the ARK. In the video, he told him that he was the only hope for the planet. It was revealed that the only way to defeat the Black Arms was to destroy the Black Comet using the Eclipse Cannon. As the video ended, Maria stepped into the frame and gave Shadow the inspiration he needed to break through Black Doom's control. Black Doom escaped and prompted Shadow to use the Chaos Emeralds to become Super Shadow and fight the alien leader. Black Doom, now in his Devil Doom form, fought Shadow but was defeated. Shadow then used a super-powered Chaos Control to warp the Black Comet back into the planet's orbit and tear it apart with a blast from the Eclipse Cannon. Onboard the ARK and with the world now safe, Shadow looked at a picture of Maria and Gerald before tossing it away, resolving to put his past behind him and move forward with his life.
+
+Sonic the Hedgehog (2006)
+Vlc 2016-06-22 15-39-09-546
+Shadow being informed about his mission in White Acropolis, from Sonic the Hedgehog (2006).
+
+In Sonic the Hedgehog (2006), Shadow is a playable character and has his own storyline and a new enemy called Mephiles the Dark. In this game, his story intertwines with those of Sonic and a new character, Silver the Hedgehog. In this role, Shadow is requested by the government to infiltrate Dr. Eggman's base at White Acropolis to rescue a G.U.N. agent, Rouge, who was last contacted 26 hours prior. After storming the base and taking out the robots in the outer perimeter, he started the mission upon being briefed. However, by the time he arrived at the main gate, he encountered Rouge who at the same time opened the gate, to which he explained to a surprised Rouge that he had orders directly from the President to rescue her. Afterwards, Shadow was asked by Rouge whether he wanted to know what she was sent to retrieve. Shadow did not care, as he was only sent to rescue her. On the way to the extraction point, they were ambushed by several Eggman Robots, including the Egg Cerberus.
+
+Upon arrival, he learned the history of Kingdom Valley, including the Solaris Project. He and Rouge encountered the new villain, Mephiles the Dark when the Scepter of Darkness falls and shatters (as Shadow rescued Rouge from freefall when she and the scepter were knocked away by Eggman). Mephiles, who had been sealed inside the Scepter of Darkness, was subsequently released with the relic's destruction, adopting Shadow's appearance due to absorbing his shadow. Shadow was confused by Mephiles' familiarity with him before the villain sent him and Rouge to the future as part of "a one way ticket to oblivion." Shortly after assessing their situation, they encountered Sonic, Tails, and Knuckles, who had themselves been transported to the future by Eggman. After explaining their shared predicament, Shadow then told Sonic that the only way to return to the present is to find two Chaos Emeralds and then perform Chaos Control together. Shadow and Rouge then found the Green Chaos Emerald but also discovered Omega's husk. Shadow then discovers that Omega's on standby mode. As they are unable to do anything for him, Shadow and Rouge reluctantly leave Omega behind. They then rendezvous with Sonic's group. Upon discovering that another Chaos Emerald was near the volcano, Shadow and Sonic proposed to locate it. Upon finding the Chaos Emerald, they fought Iblis, a fiery monster within the volcano. After the dispatching of the monster, Shadow proceeded to use Chaos Control with Sonic, opening a wormhole to their present. Before Shadow could follow after Rouge and the others, he noticed Mephiles' presence nearby and pursued him instead. Shadow followed Mephiles to a volcanic platform and questioned the demon whether he was responsible for the world's destruction. Mephiles showed the Shadow of that time period, held in stasis, revealing that in the aftermath of Iblis' destruction of the world, Shadow had been labeled as the enemy of mankind due to his perceived role in the disaster and their fear of his power. Despite the shock of this revelation, Shadow refused to join Mephiles, informing him that he "controls his own destiny." He fought Mephiles to a stalemate until Omega, who had awakened to fulfill Rouge's request from the present to aid Shadow in the future, intervened. The two then chased after Mephiles upon his defeat, returning the present, but he escaped from their presence.
+
+STH2006 SH Shadow & Omega return to the present 05
+Shadow and Omega having returned to their time frame, from Sonic the Hedgehog (2006).
+
+Shadow searched for Rouge near the warehouse docks after her disappearance from G.U.N.'s contact. Informed Dr. Eggman's robots were hunting Mephiles down and mistook Shadow for him, the black hedgehog left to find the scientist for answers to Mephiles' identity. Upon meeting the doctor, Shadow learned a vital clue to Mephiles' possible origins that it pertained to the accident during the Solaris Project, and was offered more information on the project in exchange for capturing Mephiles. Shadow later thwarted Silver's second assassination attempt on Sonic and fought him to allow the blue hedgehog to continue his own mission. After fighting to a stalemate, Shadow managed to overpower Silver with Chaos Control until the latter hedgehog's own use of Chaos Control interfered with his, causing a portal through time to appear. Understanding that Silver had been trying to kill Sonic to prevent his apocalyptic future from occurring at Mephiles' suggestions, Shadow informed him that Mephiles was really using him to erase the past. Shadow then suggested that Silver accompany him to the past if they are to discover the truth of what happened ten years prior. Shadow then entered the area just as the accident occurred, and checked on the Duke's body, although he soon witnessed the birth of both Iblis and Mephiles. Shadow then pursued Mephiles, although not before being handed the Scepter of Darkness by the Duke to seal Mephiles, while Silver went after Iblis, rendezvousing briefly to get by a switch in their paths. Shadow then proceeded to use Chaos Control when cornering Mephiles, and then sealed him in the scepter, although not before the latter threatened that he will die in the future (explaining how he knew Shadow upon his release). He and Silver then returned to the future, leaving the scepter behind since he already knew its fate.
+
+A minute of truth
+Shadow being informed that Omega is the one who seals him in the future, from Sonic the Hedgehog (2006).
+
+Meeting up with Rouge, Shadow requested her to contact GUN to see what the scepter was made out of, hoping to recreate it. He then rendezvoused with Omega upon learning that the latter had cornered Mephiles. By the time he and Rouge arrived, however, Shadow discovered that Omega had furiously driven Mephiles off. Omega then admitted that Shadow, in the future, is sealed away by the reprogrammed Omega. As the revelation shocked all of them, Rouge told Shadow that she would always remain by side even if the world would turn against him. Shadow's team then returned to Soleanna, where they had to find someone with archaeological knowledge on the object. They then rescued an archaeologist, who informed them that it would appear at a priest's fountain by lighting black flames, which Shadow accomplished. After taking out several of Iblis's and Mephiles' henchmen that had invaded the city from the desert, a grateful Lord Regis, acting under temporary authority after Eggman had kidnapped Princess Elise a third time, opened the way to the desert. Deducing that Mephiles needed at least one Chaos Emerald to reform with Iblis into Solaris and devour time, the trio went to the ruins that Mephiles was headed to, most likely because a Chaos Emerald was nearby. However, they found Mephiles getting the Emerald in the ruins' inner sanctum. When asked once more to join, Shadow exposed what Mephiles' true plans were. After which, they then fought in an intense battle.
+
+Wmplayer 2016-08-25 17-16-41-310
+Shadow and the others witnessing Sonic's revival, from Sonic the Hedgehog (2006).
+
+Although Shadow, Rouge and Omega ultimately won, Shadow's attempt to seal him failed due to Mephiles time traveling to his encapsulation and absorbing Shadow's power via his shadow, alongside his gaining of a Chaos Emerald (In the Japanese version, Mephiles said that since he had absorbed Shadow's power through the latter's shadow, Shadow cannot seal him again). Undeterred, Shadow, upon declaring to the newly created Mephiles clones that he will fight as he always had even if the world declares him to be as an enemy, and proceeded, alongside his teammates, to plow through the Mephiles clones with his full power backing him.
+
+Despite seemingly wiping out the clones, Mephiles nonetheless gained a hold of the seven Chaos Emeralds (an event Shadow briefly witnessed immediately after slaughtering the clones when the yellow and green Chaos Emeralds glowed intensely) and merges with Iblis, becoming Solaris. Shadow, along with Silver, Tails, Knuckles, Amy, and Dr. Eggman, also discovered that Mephiles had killed Sonic to ensure Iblis' release (due to his sealing of Iblis inside of Elise weakening due to crying). In order to defeat Solaris before it consumed all of time, Shadow and the others proceeded to find the Chaos Emeralds to revive Sonic (Shadow finding one in Kingdom Valley). Afterwards, with Super Sonic's help, he turns into Super Shadow and joins him along with Super Silver to defeat Solaris.
+
+After Elise extinguishes Solaris when it was just a tiny flame, the events of the game are then erased and do not occur; Shadow's future is then left open, since humanity would have yet to find reason to persecute him.
+
+Sonic Rivals series
+Sonic Rivals
+Shadow and metal sonic rivals
+Shadow and Metal Sonic encounter Sonic, from Sonic Rivals
+
+Shadow appears in Sonic Rivals as a playable character, alongside Sonic, Knuckles, Silver and Metal Sonic. Summoned to a strange island by Dr. Eggman via a cryptic transmission asking for his aid, Shadow is able to successfully locate Eggman and prevents Silver (who he meets for the first time due to their original meeting being retconned) from confronting him. Shadow assumes Silver was the one whom Eggman mentioned was targeting him, but once he mentions the cryptic message, Eggman denies it and sends his Egg Turtle on the hedgehogs. Initially deciding to leave things be, Shadow is contacted by Rouge who insists he keeps trailing Eggman while she uncovers more information. After contending with Knuckles in his pursuit of Eggman, Shadow is contacted by Rouge again only for the transmission to be cut short before she can reveal what she discovered about Eggman. Encountering Sonic and Metal Sonic, Shadow learns that Rouge had been captured within a card by Eggman and continues with more determination in learning what Eggman is hiding.
+
+At one particular encounter, Shadow sees Eggman possesses a card of himself. Running into Silver again, Shadow is told that Eggman may really be an imposter, meaning the real Eggman has been trapped in a card. Finally confronting the villain, Shadow learns "Eggman" is really Eggman Nega, his descendant. After being bested once again, Eggman Nega plans to take a picture of the entire world, thus trapping it in a card, with his camera. The real Doctor Eggman is eventually rescued who escorts Shadow and Silver to Nega's space station to stop Nega's ultimatum. Assisted by Silver and Sonic in making his way through, Shadow is able to defeat Eggman Nega and Rouge is finally rescued. Shadow also appears on four of the 150 collectible cards in the game.
+
+Sonic Rivals 2
+Shadow also appears in the sequel to Sonic Rivals, Sonic Rivals 2. He is confronted by Metal Sonic and Eggman via a speaker in Metal Sonic, and tells him that he needs help. Before he can ask questions, he and Metal Sonic find Espio and Silver. Curious as to why Silver has returned to the present, Shadow begins to follow Silver while Metal Sonic follows Espio. Eventually, Shadow forgets to ask the Doctor why he is helping him and just continues to work with Metal Sonic. Eggman then tells Shadow that Eggman Nega is trying to release the Ifrit with the seven Chaos Emeralds. He enters the Chaotic Inferno Zone to press a switch inside the dimension to seal the Ifrit in its own dimension and after engaging it in a battle, he and Metal Sonic proved to be victorious but they are trapped in the process. Metal Sonic tears himself open to reveal a Chaos Emerald, and Shadow uses Chaos Control to warp them back to their own dimension.
+
+Shadow appears on a few collectible cards as well:
+
+Image	Card Number	Card	Challenge	Unlocked
+Sonic Rivals 2 - Card Collection 05	05	Shadow the Hedgehog	Beat Sonic 20 times in any mode while using Shadow	Shadow's Mercenary Suit
+Sonic Rivals 2 - Card Collection 121	121	Shadow the Hedgehog (Pose)	Get an S Ranking in Zone 6 Act 3	N/A
+Sonic Rivals 2 - Card Collection 122	122	Shadow the Hedgehog (Bike)	Get an S Ranking in Zone 6 Boss	N/A
+Sonic Rivals 2 - Card Collection 149	149	Shadow the Hedgehog	Win 10 Multiplayer Battles	N/A
+Sonic Free Riders
+Sonic-Free-Riders-Shadow-artwork
+Shadow, from Sonic Free Riders.
+
+In Sonic Free Riders, Shadow entered the World Grand Prix with Rouge the Bat as "Team Dark". While Rouge was only interested in the large cash prize and treasure that was given to the winners, Shadow's only interest was testing racing skills.
+
+When the World Grand Prix started, Shadow and Rouge were fifteen minutes late to the opening ceremony. When they arrived, Omochao complained about their tardiness, but Shadow remarked that he had no interest in formalities. Discontent with the rule that three members were required for a team, but accepting it nonetheless, Team Dark chose their third teammate, an E-10000B, on a whim. At the races, Team Dark was insulted by their first opponent, Team Babylon. However, Shadow mocked his opponents in return as his team kept beating them.
+
+After defeating Team Babylon, Shadow and his team faced Team Heroes. Though Sonic praised Shadow's earlier performance, Shadow replied that his opponents were no challenge for him. During their face-offs, E-10000B began to overheat, but Shadow showed the robot no sympathy. Insisting to continue the competition anyway, Shadow faced off against Sonic in a final race and won. Having beaten Team Heroes, Shadow told Sonic that he would never beat him.
+
+In the finals, Team Dark faced Team Rose and was just one race away from winning when E-10000B began to smoke. However, Shadow kept pressuring the robot to continue. The two teams then quickly began arguing over how Shadow and Rouge treated their teammate. In the end, E-10000B was moved to the repairing department, while the rest of Team Dark had a final race with Team Rose by themselves. After beating Team Rose, Shadow and Rouge went for the Grand Prix Headquarters unannounced and took the cash prize and treasure themselves. As they were leaving though, Omochao informed them that they had only taken the dummy drops for the display and that the real prize was locked away, meaning they had to attend the award ceremony to get it.
+
+Near the end of the World Grand Prix, Team Dark and the other teams came down with an equal amount of victories, and Shadow came to the award ceremony with the others to collect their prize. Once there, they were all told by Dr. Eggman (under his alias, King Doc) that they had one more race against his Gear-jockey robots. Shadow and Sonic quickly saw through Eggman's ruse, but the doctor had them race anyway. After the race, however, Eggman revealed himself and announced that that he had been collecting all the data on the racers in the Grand Prix with his E-10000 to make the ultimate Extreme Gear that he could use for his own agenda and challenged them all to a race. After beating Eggman though, Shadow noticed that E-10000B was spewing out a lot of smoke. Metal Sonic then revealed himself as the one controlling E-10000B and passing fake data to Eggman, explaining for the doctor's loss.
+
+Shadow and the others then watched as Metal Sonic challenged Sonic the Hedgehog to a race, which the robot lost. Afterwards, it was revealed that Eggman never had any prize to give to the winners of the World Grand Prix. However, Shadow remarked that it was nothing new to him, just like the doctor's other schemes.
+
+Sonic Colors
+Shadown
+Shadow meeting Sonic and Tails in Asteroid Coaster, from the Nintendo DS version of Sonic Colors
+
+In the Nintendo DS version of Sonic Colors, Shadow was at Asteroid Coaster seeking information when he found Sonic and Tails, and gave Sonic a mission to test out if Sonic was still capable of fighting Dr. Eggman. After the mission, Shadow declined any hint of concern for the duo, but Sonic took it as a compliment.
+
+Reuniting with E-123 Omega, Shadow and his friend discovered secret amusement ride of Eggman's. On their way to investigate, they were joined by Sonic and Tails. They arrived at a lab where Tails discovered records of an experiment called Project "Mother" on the computers. Shadow was disappointed they did not find more to help, but Sonic just was just happy to find something and left. Omega then asked why Shadow gave Sonic information, to which Shadow said he was just happy to let Sonic do all the racing around. Omega found this hard to understand since Shadow and Sonic were equals, but Shadow just replied that data would not tell him everything, leaving the automaton stumped.
+
+Sonic Generations
+Shadow & Rouge (Sonic Generations)
+Shadow motivating the Sonics to defeat the Time Eater, from the console/PC version of Sonic Generations.
+
+In the console/PC version of Sonic Generations, Shadow was sucked into White Space by the Time Eater. After completing all acts in the Dreamcast era, Shadow can be found in the City Escape hub. When found, he is waiting for Sonic, stating that he neither knows nor cares where they are, as long as he gets a chance to finish Sonic. He has a unique rival battle, where the two have to race each other on a looped pathway to and gain Power Cores to unleash special attacks. The battle is won when one depletes the other's ring count whilst using a special attack.
+
+Shadow appears later on to motivate both Sonics, alongside Rouge and the all the other characters after their initial defeat against the Time Eater. After the Time Eater is defeated, Shadow shows up at Sonic's birthday party along with all the other characters. He is the only character who does not wave goodbye to Classic Sonic and Classic Tails in the end.
+
+Sonic Forces
+Shadow vs Infinite Episode Shadow
+Shadow defeating the Jackal Squad's leader, from Sonic Forces.
+
+Several months prior to Sonic Forces, Shadow was on his way to Eggman's Facility to destroy the base. Along the way, he wiped out the Jackal Squad defense unit and easily defeated their captain, whom Shadow told to never show his face to him again, before heading in to destroy the facility.
+
+A couple of months later, Shadow and his team went on a reconnaissance mission regarding a suspicious Eggman base. After being informed by Rouge that Omega went ahead of him, Shadow headed out to join up with him. After Omega, who attacked the base instead of investigating it stealthily, lost all communications with Rouge however, he went in search of the robot at his last recorded coordinates.[11] There, Shadow met Infinite, a mysterious being who had just defeated Omega. As Infinite ridiculed Omega, Shadow demanded answers from the unfamiliar entity. It was then that Infinite revealed that he was the Jackal Squad's captain, and that his loss to Shadow drove him to get assimilated with Eggman's finalized Phantom Ruby copy so he could never be as weak as he once was. Infinite then promptly repaid Shadow by trapping him in an illusion via the Phantom Ruby prototype's properties. Shadow ultimately escaped both the illusion and the doomed facility they were in, although not before learning that Infinite planned to overpower Sonic with his newfound abilities. About a month later, Shadow learned from Rouge that Sonic was in trouble, with the hedgehog already suspecting Infinite's presence thanks to the latter's final words to him beforehand, although he was seemingly unable to make it in time to help Sonic as he was overpowered by Infinite in the City and taken to the rebuilt Death Egg, leaving the world to assume him dead and lose hope of defeating Eggman quickly.
+
+ShadowGrandEntrance
+Shadow saving Sonic from his Phantom Copy counterpart, from Sonic Forces.
+
+Shadow eventually discovered an imposter was wrecking havoc in his name. This imposter turned out to be a heartless and soulless Phantom Copy created by Infinite, who served as a soldier in the Eggman Army, alongside Phantom Copies of Metal Sonic, Chaos and Zavok. This Phantom Copy, along with the others and Infinite, allowed the Eggman Empire to conquer over 99% of the world. Six months later, when Sonic confronted the Shadow Phantom Copy in Sunset Heights, Shadow destroyed his Phantom Copy when it tried to attack Sonic, using his Chaos Control to freeze time right before the Phantom Copy could strike and delivering a roundhouse kick to take it out in one hit. Linking up with the Resistance, Shadow revealed to them the true nature of Infinite's Phantom Copies and virtual reality powers, and joined the Resistance in the war against the Eggman Empire. He had Rouge collect intelligence regarding where they could locate Eggman's files on the Phantom Ruby and its power source, leading to Classic Sonic and Tails hitting the Chemical Plant for the data.
+
+Eventually, Shadow took part in the final battle between the Resistance and the Eggman Army at the Eggman Empire Fortress, which the Resistance sought to break into in order to destroy the reactor powering the Phantom Rubies and win the war. Just as Shadow and the others got pushed back by Infinite however, Omega, fully operational again, came and distracted the villain. After that, Infinite put Eggman's endgame into effect: using his Phantom Ruby prototype, he created a virtual sun above the planet to drop on the Resistance with and kill them all. While Shadow awaited the outcome however, the sun was neutralized by the Avatar. Shadow then reengaged the Eggman Army while Sonic and the Avatar defeated Infinite and destroyed the Phantom Rubies' reactor. However, when Eggman entered the battlefield with a Death Egg Robot armed with the original Phantom Ruby, which was powered by the mech itself, the doctor began producing thousands of Phantom Copies that threatened to overwhelm Shadow and the Resistance. Fortunately, Shadow and the Resistance were saved when Sonic, Classic Sonic and the Avatar destroyed the Death Egg Robot, causing the Eggman Army's Phantom Copies to vanish and leaving the Resistance as the winners of the war.
+
+In the aftermath, Shadow, alongside Sonic's other allies, bid farewell to Classic Sonic as he returned to his own world, and vowed to rebuild the world. Afterwards, back at the Resistance HQ, he watched the Avatar leave to go on their own adventure after the Resistance got disbanded.
+
+Team Sonic Racing
+In Team Sonic Racing, Shadow and his team joined Dodon Pa's Grand Prix alongside Dr. Eggman and his team. However, Team Dark's true intentions for joining the Grand Prix was to investigate Dr. Eggman.[12] In that Grand Prix awaited opponents like Team Sonic, Team Rose and Team Vector. For the races, Shadow received the Dark Reaper to race in.
+
+During a race between Team Dark and Team Sonic, Shadow focused solely on Sonic as they raced neck-to-neck in their speed-type race cars. Eventually however, Dr. Eggman intruded on the teams' race in order to compete against them on his own as a "special guest" (which Dodon Pa permitted despite knowing it was a lie). After Eggman began gaining the lead, Shadow, his team, and Team Sonic all agreed to put their feud aside and work together to keep Eggman from winning the race. Instructing his team to follow Team Sonic's example (only better), Shadow received a Slingshot speed boost from his team that allowed him to pass Eggman alongside Sonic. Shadow and Sonic would afterward pass the finish line while the others took care of Eggman with a combined Wisp power-up assault. However, Dodon Pa was too busy watching Eggman's beating to see which one between Sonic and Shadow crossed the finish line first. As such, the two hedgehog decided to have a rematch.[13]
+
+ShadowTeamSonicRacing
+Shadow stating his reasons for being in the Grand Prix, from Team Sonic Racing.
+
+Eventually, Shadow met Sonic after a race, who wanted to know if he was working with Dr. Eggman. Shadow replied grimly that he was only in the Grand Prix to stop whatever evil plans Eggman was cooking up. However, the two hedgehogs' egos soon clashed, and Shadow and Sonic ended up challenging each other to a race. Afterward, they agreed that they had to watch out for both Dodon Pa, whose motivations for hosting the Grand Prix was a mystery, and Eggman. Soon after, Shadow learned that Eggman and Dodon Pa were seemingly working together. Since they did not know what the pair was up to though, the heroes decided to keep racing for now. Later, Eggman would sent hundreds of Eggpawns after the racers. As Shadow set out to slag the robots with his team, he would end up competing with Sonic over who could beat the most Eggpawns. Later, after it was revealed that Dodon Pa was a good guy and that he was using the Grand Prix to gather information for his corporation's Ultimate Energy Engine, which Dodon Pa wanted to use for philanthropic purposes, Shadow came to Sonic and reminded him that they still had Eggman to worry about.
+
+Soon after, the heroes learned from Big that Eggman had kidnapped Dodon Pa and brought him to the Final Fortress. Wanting to rescue Dodon Pa, Shadow and co. went to the Final Fortress. There, Eggman had them compete in a number of races with Team Eggman and his army of Eggpawns in exchange for Dodon Pa, not knowing Eggman was using them to gather the Ultimate Team Energy needed to finish the Ultimate Energy Engine. Once the engine was complete, Eggman stole it from Dodon Pa and incorporated it into his Death Egg. Shadow and his crew subsequently faced the Death Egg, and beat it in a race. However, the Death Egg soon after went crazy and drove into the Final Fortress's core. As the Final Fortress crashed, Shadow and his comrades were forced to abandon their cars and evacuate the airship while Team Sonic saved Dodon Pa. Down on the ground, Shadow was reunited with Team Sonic when they arrived with Dodon Pa. Just as the Grand Prix seemed over since the cars had been destroyed when the Final Fortress crashed, Dodon Pa decided to give everyone new cars, thus allowing Shadow and his allies to race once more.
+
+The Murder of Sonic the Hedgehog
+This section requires an expansion.	
+Sonic-Icon-Sonic-CD
+Shadow Generations
+In Shadow Generations, Shadow will appear in his own storyline where he has to revisit his past. In this journey, Shadow will run into Black Doom and the Biolizard again and explore familiar locations.
+
+Other game appearances
+Sonic Pinball Party
+In Sonic Pinball Party, Shadow's name appeared on the list of participants that took part in the Egg Cup Tournament.
+
+Sonic Riders series
+Sonic Riders
+In Sonic Riders, Shadow is a playable character for Free Races. He is unlocked after beating the Hero story mode. He is a Speed Type character and his default Extreme Gear is Darkness, which he uses to skate like his default shoes. His Level 1 Attack temporarily stuns a nearby opponent; the Level 2 attack makes an opponent temporarily lose his or her balance. His Level 3 attack freezes a nearby opponent so that Shadow can easily pass them. He plays no role in the story. Shadow has the following stats in gameplay:
+
+Image	Type	Stats
+Dash	Limit	Power	Cornering
+SonicRiders Shadow	Speed	★★★	★★★★	★★★	★★
+Sonic Riders: Zero Gravity
+Shadow uses his gb
+Shadow on the Black Shot, from Sonic Riders: Zero Gravity.
+
+Shadow appears in the sequel, Sonic Riders: Zero Gravity, as a speed character and his default Gear is called the Black Shot. Again, he is unlocked by completing the Hero Story. Once again, he plays no role in the story. Shadow has the following stats in gameplay:
+
+Image	Type	Stats
+Dash	Limit	Power	Curve
+Shadow the Hedgehog (SRZG)	Grind	★★★★	★★★★★	★★★★	★★★★
+Sonic Storybook Series
+Sonic and the Secret Rings
+In Sonic and the Secret Rings, Shadow appears as a playable character in Party Mode. He can be unlocked by obtaining thirty Fire Souls.
+
+Sonic and the Black Knight
+In Sonic and the Black Knight, Shadow appears as a playable character in Battle Mode. He can be unlocked in Battle Mode by clearing the "Defeat the Boss: Sir Lancelot" mission in Deep Woods. In gameplay, he has the same moveset as Sir Lancelot, Shadow's alternate reality doppelganger from the world of Camelot. He also wields Arondight during battle and his Soul Surge is Chaos Punishment.
+
+Mario & Sonic series
+Mario & Sonic at the Olympic Games
+Like Sonic the Hedgehog, Shadow is an extremely fast hedgehog that can give his more famous blue rival a run for his money in most Speed events. Additionally, his accuracy will help give him a leg up in the events like the archery and fencing.
+
+— Shadow's profile, Mario & Sonic at the Olympic Games website 
+In Mario & Sonic at the Olympic Games, Shadow appears as one of the playable characters in both the Wii and Nintendo DS version of the game.
+
+In both versions of the game, Shadow has the following characteristics and icons:
+
+Icon	Skill Type	Stats	Emblem
+Shadow icon (Mario & Sonic 2008)	Speed	Shadow-Stats	MyS emblem Shadow
+In the Mission Mode in both the Wii and Nintendo DS versions of the game, Shadow has to beat a set of five missions, which will unlock a final mission. Clearing all six missions will award the player with the Shadow Emblem. These missions include:
+
+Wii:
+100m Freestyle: Beat your rival! - Finish before Tails! (Your overall place doesn't matter.)
+Dream Fencing: Win by knocking your opponent out of bounds! - Win after forcing your opponent out of bounds 1 time(s)! (Force your opponent to the fence, and land a Special Move.)
+110m Hurdles: Beat your rival! - Finish before Blaze! (Your overall place doesn't matter.)
+Single Sculls: Beat your rival! - Finish before Vector! (Your overall place doesn't matter.)
+400m: Beat your rival! - Finish before Sonic! (Your overall place doesn't matter.)
+100m: Beat your rival! - Finish before Sonic! (Your overall place doesn't matter.)
+Nintendo DS:
+100m - Don't let Sonic pass you!
+Javelin Throw - Throw 3 times in a row for a total of at least 220m!
+Cycling - Collect all of the stamina!
+Dream Fencing - Win with a special attack as your final move!
+Dream Race - Use items on all of your opponents.
+Dream Shooting - Beat Luigi when he's in top condition!
+in both the Wii and Nintendo DS versions of the game, the player can also earn the Shadow Crown by getting all gold and 1st medals using Shadow.
+
+Mario & Sonic at the Olympic Winter Games
+Shadow the Hedgehog, in his black fur and red stripes, returns to test his skills in the Olympic Winter Games. With the ability to harness the power of the Chaos Emerald, Shadow can perform Chaos Boost on the Wii and DS, and Chaos Control on the DS.
+
+— Shadow the Hedgehog's profile, Mario & Sonic at the Olympic Winter Games website 
+In both the Wii and Nintendo DS versions of Mario & Sonic at the Olympic Winter Games, Shadow appears as a playable character. He has the special skill, the Chaos Boost, which he can use in certain events to gain speed.
+
+In both versions of the game, Shadow has the following characteristics and icons:
+
+Icon	Skill Type	Stats	Special Skill	Emblem
+Wii	DS
+Shadow (Mario & Sonic series)	Speed	Shadow-Wii-Stats	Shadow-DS-Stats	
+Chaos Boost
+Chaos Control (DS only)
+Shadow flag
+In the Wii version of the game, a Mii costume based on Shadow can be unlocked in the game after winning five gold or/and 1st place medals in any Olympic/Dream Events with Shadow and then buying the costume in the boutique.
+
+Mario Sonic Olympic Winter Games Adventure Mode 159
+Shadow using a Chaos Spear to freeze icons on the console, from Mario & Sonic at the Olympic Winter Games.
+
+In Adventure Tours mode in the Nintendo DS version of the game, Shadow appears as one of the unlockable characters who can take part in the mode's sports events. He can be found in Cubirynth where he must be beaten in a Ski Cross Racing dream event upon his insistence. After that, Shadow will join the player's team, just after he spots a flying treasure hunter on the way. Later, back in Frostown with Rouge, Rouge wonders where Shadow has been. Shadow reveals to her that he has been in Cubyrinth looking for her. Rouge then tells him that she is going to look for Whitestones, and Shadow convinces her to trade her Whitestones in exchange for using her treasure hunting skills to find the stolen Olympic memorabilia. Also, in Sparkleton, Shadow is needed for the "Arrange the Marks!" mini-game. Here, the player is presented with a console with revolving icons depicting Dr. Eggman, Metal Sonic, Bowser, and Bowser Jr. on it. It is the player's objective to use Shadow's Chaos Spear to stop the revolving symbols in the right order within 40 seconds. Once done, it will open a gate in the overworld. Later, at Icepeak, when Rouge decides to help Dr. Eggman and Bowser when the villains bribe her with Whitestones, Shadow reminds Rouge of their agreement to search for Whitestones together. However, Rouge tells him that the opportunity is too good to pass up, much to his aggravation. After beating Rouge, who proceeds to free one of the Snow Spirits and pursue Eggman and Bowser when they go back on their deal, Shadow has confidence in Rouge that they can release the Snow Spirits together.
+
+Mario & Sonic at the London 2012 Olympic Games
+Like Sonic, Shadow is an extremely fast hedgehog that can give his more famous blue rival a run for his money in most Speed events. Additionally, his accuracy will help give him a leg up in events like Pistol Shooting and Fencing.
+
+— Shadow the Hedgehog's profile, Mario & Sonic at the London 2012 Olympic Games website 
+In both the Wii version and Nintendo 3DS version of Mario & Sonic at the London 2012 Olympic Games, Shadow appears as one of the playable characters. In the Wii version specifically, Shadow also has the special skill, the Chaos Boost, which he can use in certain events to gain speed.
+
+In this game, across both versions, Shadow has the following characteristics and icons:
+
+Icon	Skill Type	Stats (Wii)	Class (3DS)	Special Skill	Flag
+Shadow (Mario & Sonic series)	Speed	Shadow stats	Challengers	Chaos Boost	Shadow flag
+In the Wii version of the game, Shadow also appears as an interactable character in London Party. Here, the player can speak to him in order to play minigames and earn stickers. Also, a Mii costume based on Shadow can be unlocked in the game by either winning it through a Scratch Card or paying ten blank cards.
+
+ShadowFogMachine
+Shadow destroying a Fog Machine, from the Nintendo 3DS version of Mario & Sonic at the London 2012 Olympic Games.
+
+In the Nintendo 3DS version of the game, Shadow belongs to the Challengers class and can only take part in sports events selected for this class. In the game's story mode, before the Olympics, Shadow and Silver were destroying Badniks that had gotten out of control and begun attack the people of London. After they caught up with an Egg Pawn and Flapper, Bowser Jr. fell from the sky and destroyed the two robots. Amazed by the strength of Bowser Jr., Shadow and Silver decided to test him by challenging him to an event. After the two hedgehogs were defeated, they admitted that they had fun and that they would meet again at the stadium. When a dense and colored fog later appeared on London Bridge, Shadow and Silver met Sonic, Tails, and Yoshi. Soon after, Jet flew overhead. After the group cornered Jet, Shadow challenged Jet to a race to get the latter to show them the Fog Machine that was on the bridge. In the end, Shadow won. When everyone got to the Fog Machine however, Bowser Jr. appeared, who was protecting the machine. Shadow, Silver and Yoshi managed to defeat him however. Shadow subsequently destroy the Fog Machine, which made the fog disappear and causing the bridge to be lowered. After Bowser Jr. then fled the scene, Shadow's group decided to split up and explore the other foggy areas in London. Some time after however, the fog returned, except now more intense, to London. In response, Shadow, Silver, Jet and Yoshi cleared the London Bridge of the fog, which the group later reported back to Sonic and Mario about to support them during their showdown with the masterminds behind the fog: Dr. Eggman and Bowser. After everything had been resolved, Shadow came to the opening ceremony for the Olympic Games.
+
+In the Nintendo 3DS version of the game, a badge of Shadow can also be obtained from the badge machine.
+
+Mario & Sonic at the Sochi 2014 Olympic Winter Games
+In Mario & Sonic at the Sochi 2014 Olympic Winter Games, Shadow appears as one of the playable characters. In this game, Shadow has the special skill, the Chaos Boost, which he can use in certain events to gain speed.
+
+In this game, Shadow has the following characteristics and icons:
+
+Icon	Skill Type	Special Skill	Biography	Flag
+Shadow (Mario & Sonic series)	Speed	Chaos Boost	Matching his great rival Sonic in almost every regard, Shadow is out to prove he's the ultimate competitor.	Shadow flag
+In Legends Showdown, Shadow is on the third team, along with Vector, Luigi and Princess Daisy. Also, a Mii costume based on Shadow can be unlocked in the game by getting at least twenty perfects in a row in a single Speed Skating 500m race.
+
+Mario & Sonic at the Rio 2016 Olympic Games
+In the Wii U version, Nintendo 3DS version and arcade version of Mario & Sonic at the Rio 2016 Olympic Games, Shadow appears as a playable character.
+
+In the Wii U version of the game, Shadow is available from the beginning and playable in all events. Also, a Mii costume set based on Shadow can be unlocked in the game by completing Shadow's Carnival Challenge. However, it must be collected in two separate parts, each with their own stat changes.
+
+In the Wii U version of the game, Shadow has the following characteristics, description and icons:
+
+Icon	Skill Type	Stats	Playable Event(s)	Biography	Flag
+Power	Speed	Technique
+Shadow icon (Mario & Sonic 2016)	Speed	5	9	4	All events	A black-and-red hedgehog who bears a striking resemblance to Sonic. While Shadow may seem like Sonic's rival, he personally hates for the two of them to be seen together. A stoic perfectionist, Shadow has a great deal of pride in his own exceptional abilities. He hopes the Olympic Games will provide him the ultimate competition - one he has no intention of losing.	Mario Sonic Rio Shadow Flag
+In the Nintendo 3DS version of the game, Shadow is available from the beginning and has the following characteristics:
+
+Artwork	Stats	Playable Event(s)	Challenged in Road to Rio?
+Shadow The Hedgehog 2015	Rio2016Stats3DSShadow	
+Football
+100m
+✗
+In the arcade edition of the game, Shadow is available from the beginning and has the following characteristics:
+
+Icon	Skill Type	Stats	Recommended Event(s)
+Power	Speed	Technique
+Shadow (Mario & Sonic series)	Speed	6	9	3	
+Long Jump
+100m
+Mario & Sonic at the Olympic Games Tokyo 2020
+In both the Nintendo Switch version and arcade version of Mario & Sonic at the Olympic Games Tokyo 2020, Shadow appears as a playable character.
+
+KnucklesAndShadowInTokyo
+Shadow and Knuckles talking with Tails and Luigi, from the Nintendo Switch version of Mario & Sonic at the Olympic Games Tokyo 2020.
+
+In the Nintendo Switch version of the game, Shadow appears as one of the characters in the story mode. In this mode, Shadow and Knuckles came across Tails and Luigi, who were looking for a way to charge an object called the Excitement Battery with the cheer of the Olympic Games' audience so that they could save Sonic, Mario, Dr. Eggman, Bowser and Toad, who were suck inside a dying gaming system. To help excite the audience and produce enough cheers, Shadow and Knuckles went up against Peach and Yoshi is a Badminton court event, which they lost. Afterward, Shadow and Knuckles joined Tails and Luigi's team on their mission. After the five had gotten out of the gaming system, Shadow was convinced to compete in a 100m event with the others by Sonic. After that, Shadow left as the Olympics were ready to commence.
+
+In the Nintendo Switch version of the game, Shadow is only playable in the 2020 events and has the following characteristics:
+
+Artwork	Skill Type	Biography	Wears unique clothing
+between events
+Shadow Tokyo	Speed	A black hedgehog known as the ultimate life form. Created with an immortal body, he wields Chaos Emeralds to warp space and time.	✓
+In the arcade version of the game, Shadow is only playable in the 2020 events and has the following characteristics and icons:
+
+Icon	Skill Type	Stats	Wears unique clothing
+between events?
+Power	Speed	Technique
+Shadow icon (Mario & Sonic 2016)	Speed	6	9	3	✓
+Super Smash Bros. series
+Super Smash Bros. Brawl
+Shadow is featured as an Assist Trophy in Super Smash Bros. Brawl, found after Sonic becomes a playable character. Shadow activates Chaos Control when he is used, slowing down the user's opponents. He also appears as a sticker.
+
+Trophy
+ID	Name	Image	Description	Acquisition
+NA	PAL
+366	535	Shadow	Shadow Trophy	Shadow the Hedgehog is a black hedgehog who resembles Sonic. He was created by Dr. Eggman's grandfather, Gerald Robotnik, to be the ultimate life-form. Not only does he look like Sonic, but he has equal abilities. He has great skill with the space-time warping technique called Chaos Control. To reach his goals, he'll use any means necessary.
+(GameCube) SONIC HEROES
+(GameCube) SHADOW THE HEDGEHOG
+Random
+Sticker
+Image	Name	Page	ID	Area of Effect	Effect	User
+NA	PAL
+Brawl Sticker Shadow The Hedgehog (Sonic Adventure 2 Battle)
+Shadow The Hedgehog (Sonic Adventure 2: Battle)	Shadow the Hedgehog (Sonic Adventure 2: Battle)	274	685	Specials: Direct	Attack +20	Sonic
+Super Smash Bros. for Nintendo 3DS and Wii U
+Shadow reappears in Super Smash Bros. for Nintendo 3DS and Wii U with the same role he had in Super Smash Bros. Brawl.
+
+Wii U Trophy
+Name	Picture	Category	Trophy Box	Description	Acquisition
+NA	PAL	NA	PAL
+Shadow	Shadow the Hedgehog	ShadowSSB4model	Assist Trophy	N/A	Engineered to be the ultimate life-form by the brilliant Professor Gerald Robotnik, this black hedgehog appears very much like Sonic. He has a dark side, however. In Smash Bros., he uses Chaos Control to warp space-time, slowing every fighter down except the player who summoned him.
+(GameCube) Sonic Adventure 2 Battle (02/2002)
+(GameCube) Shadow the Hedgehog (11/2005)
+A black hedgehog created by Professor Gerald Robotnik to be the Ultimate Lifeform. Though he looks a lot like Sonic, he's ruthless and will do anything to achieve his goals. In this game, he uses Chaos Control to warp time and space, slowing down everything around whoever summoned him.
+(GameCube) Sonic Adventure 2 Battle (02/2002)
+(GameCube) Shadow the Hedgehog (11/2005)
+Clear the "All-Star Battle: Secret" event on hard difficulty.
+Nintendo 3DS Trophy
+Name	Picture	Category	Description	Acquisition
+NA	PAL	NA	PAL
+Shadow	Shadow the Hedgehog	ShadowTheHedgehogTrophy3DS	Assist Trophy	Engineered to be the ultimate life-form by the brilliant Professor Gerald Robotnik, this black hedgehog appears very much like Sonic. He has a dark side, however. In Smash Bros., he uses Chaos Control to warp space-time, slowing every fighter down except the player who summoned him.	A black hedgehog created by Professor Gerald Robotnik to be the Ultimate Lifeform. Though he looks a lot like Sonic, he's ruthless and will do anything to achieve his goals. In this game, he uses Chaos Control to warp time and space, slowing down everything around whoever summoned him.	Clear Solo 100-Man Smash with all fighters.
+Super Smash Bros. Ultimate
+Shadow returns as an Assist Trophy in Super Smash Bros. Ultimate. He now holds a green Chaos Emerald in his hand. Like his previous appearances, Shadow performs Chaos Control to slow down the opponents of the fighter that summoned him. However, in this game there is a brief second phase that completely stops the opponents. His visual distortion is green and is much more apparent with lightning also striking around him. In addition to this, Shadow appears as a Primary Spirit with the following characteristics:
+
+Image	Stat statistics	Spirit Battle
+Base	Max	Enemy Fighter(s)	Enemy Power	Stage	Battle conditions
+SF Shadow Variant	Power: 2,702
+Attack: 1,648
+Defense: 1,054	Power: 8,147
+Attack: 4,970
+Defense: 3,177	Sonic	9,100	New Pork City (Battlefield form)	Rule(s): Assist Trophy Enemies (Shadow); Item: Timer
+The enemy's dash attacks have increased power
+Hostile assist trophies will appear
+The enemy is easily distracted by items
+Name	Type	Class	Music	Acquisition
+Shadow the Hedgehog	Attack	★★★ (Ace)	"Live and Learn"	
+Battle via Spirit Board
+Purchase from the Vault Shop for 6000G
+No.	Slots	Ability
+788	2	Can Be Enhanced at Lv.99
+Sega All-Stars series
+Sega Superstars Tennis
+In Sega Superstars Tennis, Shadow is a playable character that can be unlocked after completing the last mission in the Sonic the Hedgehog world. He plays tennis with other Sega characters.
+
+Sonic & Sega All-Stars Racing
+Shadow 31
+Shadow, from Sonic & Sega All-Stars Racing.
+
+In Sonic & Sega All-Stars Racing, Shadow appears as a playable character. In this game, he is available from the beginning of the game. For the racing in this game, he is driving the Dark Rider, a modified G.U.N. motorcycle with the Black Arms insignia on the fuel tank.
+
+In gameplay, Shadow has low speed and average turbo-boost, but his acceleration and maneuverability are at a very high level. His All-Star Move, "Super Sonic," lets him turn him into Super Shadow. In this state, Shadow can fly down the tracks while launching exploding Chaos Spears at everyone that gets into his line of fire.
+
+Sonic & All-Stars Racing Transformed
+In Sonic & All-Stars Racing Transformed, Shadow appears as a playable character again. The player can unlock him by spending thirty-five stars in the World Tour. For the racing in this game, he is driving an experimental G.U.N vehicle that has tank treads instead of wheels, which can transform into a boat, a plane, or a car, depending on the surrounding terrain. In order to test his vehicle's raw power, Shadow entered the race.[14]
+
+In gameplay, Shadow has high speed and boost, above-average handling, and low acceleration. His All-Star Move lets him perform the Chaos Blast, which can inflict damage to any racer or obstacle set on the track. He also has two stickers in the game; one can be unlocked by winning a race with him, and the other can be unlocked by sending a certain amount of challenges.
+
+Sonic Chronicles: The Dark Brotherhood
+Shadow 26
+Shadow, from Sonic Chronicles: The Dark Brotherhood.
+
+Shadow appears in Sonic Chronicles: The Dark Brotherhood where he first searched for Omega who disappeared looking for Eggman's robots. The first fight against Shadow takes place in Mystic Ruins, though, depending on the player's choice of dialogue, Sonic may not have to fight him. If, however, the player chooses the more hostile dialogue options, Sonic will have to fight Shadow. The second encounter happens when the team reaches Blue Ridge Zone. At the start of the battle, Shadow states that while he can't outrun Sonic, he can outfight him. After suffering damage at the hands of Sonic and his team, Shadow flees from the scene. Sonic is the only one fast enough to catch him, so once Sonic catches up, the two have a showdown without the rest of the group. When Sonic ultimately wins, Shadow remarks that Sonic "has been practicing."
+
+At first, Shadow only joins Sonic's team to help find Omega, but when he finds out that Omega was attacked by the Nocturnus, he remains with the party to help defeat them. If Shadow happens to be included in Sonic's team when they are about to face Commander Raxos, Shadow states that he can see many ways out this situation for himself but not for the others, possibly meaning he could simply use Chaos Control to escape leaving the others to their fate. In combat, Shadow deals medium attack power and has medium armor and is as quick as Sonic, allowing him three attacks per round.
+
+When Omega joins the team, they can work together to use "Focus Field." When Rouge the Bat is in the party, the three can use "Metal Storm," which sends Omega through the air like a missile at the enemy. Shadow can team up with Sonic to use a move called "Atomic Strike," in which the two hedgehogs use Spin Dashes to circle around all of the enemies to create an electrical field.
+
+Sonic Unleashed
+In the Xbox 360/PlayStation 3 version of Sonic Unleashed, Shadow does not appear (though he and Knuckles were supposed to appear), but is briefly mentioned; during an interview with Brenda Hernandez, she will ask the name of the creature that came from the planet's core, with Sonic being able to incorrectly answer "Shadow the Hedgehog".
+
+Sonic Jump series
+Sonic Jump (2012)
+In the 2012 remake of Sonic Jump, Shadow was supposed to be released as a playable character in an update, but was later scrapped. Despite this, Shadow holds a record of 5650m in every stage of Arcade Mode, placing first on the preset leaderboards.
+
+Sonic Jump Fever
+In Sonic Jump Fever, Shadow appears as a playable character. In this game, he can be unlocked after either collecting 300 Shadow Character Tokens or paying 900 Red Star Rings for him. In gameplay, Shadow is armed with the Chaos Spear. The power-ups he can utilize in this game include the Shield, Stun, Spring Shoes and Magnet.
+
+Shadow also appears on the game's preset leaderboards, placing sixth in each Zone. When playing a Zone, a destructible monitor containing Shadow's portrait will appear if his score has been passed.
+
+Sonic Dash
+In Sonic Dash, Shadow makes an appearance as a playable character. In this game, he can be unlocked by either restoring Sky Sanctuary Zone, by purchasing him for $14.99 USD, or by collecting 100 of his character cards.
+
+Image	Rarity	Affinity Bonus	Upgrade Profile
+Power-Up	Highest level
+Sonic Dash Shadow Portrait 7.0
+Epic	Sonic Dash Picky	Dash Boost	11
+x2 Multiplier	11
+Magnet	9
+Shield	9
+Headstart	8
+On 26 October 2019, as part of a Halloween event, Shadow was rereleased as Vampire Shadow, a variant character of Shadow previously featured in Sonic Forces: Speed Battle.
+
+Image	Rarity	Affinity Bonus	Upgrade Profile
+Power-Up	Highest level
+Sonic Dash Vampire Shadow Portrait 7.0
+Epic	N/A	Dash Boost	11
+x2 Multiplier	11
+Magnet	10
+Shield	11
+Headstart	7
+On 17 May 2021, Shadow was re-released as Captain Shadow, a variant character of Shadow dressed in a pirate-inspired costume, as a celebration of the 30th anniversary of the Sonic the Hedgehog series.
+
+Image	Rarity	Affinity Bonus	Upgrade Profile
+Power-Up	Highest level
+Sonic Dash Captain Shadow Portrait 7.0
+Epic	N/A	Dash Boost	11
+x2 Multiplier	11
+Magnet	8
+Shield	11
+Headstart	9
+Sonic Runners series
+Sonic Runners
+Sonic Runners Shadow 2
+Shadow, from Sonic Runners.
+
+In Sonic Runners, Shadow is a playable Speed/Dark Type character with the following characteristics:
+
+Icon	Type	Controls	Profile	Unlock Requirement
+Sonic Runners Shadow Icon
+Sonic Runners Speed Dark
+Triple jump
+50% Score Bonus
+A black hedgehog who looks just like Sonic. Shadow was created by Dr. Eggman's grandfather, and has a burning desire to achieve his aims - by fair means or foul.	
+Spend 200 Red Star Rings
+Spend 2000000 Rings
+Later, Shadow was rereleased as "Halloween Shadow," a Speed/Dark Type variant character of Shadow dressed in a Halloween costume, as a part of the Halloween Event. This character has the following characteristics:
+
+Icon	Type	Controls	Profile	Unlock Requirement
+Sonic Runners Halloween Shadow
+Sonic Runners Speed Dark
+Triple jump
+75% Score Bonus
+Shadow's gotten all dressed up to take part in the Animals' Halloween event!	Available on Premium Roulette (Halloween Event)
+During the "Birthday on Windy Hill" event, Shadow saved Team Sonic's life when Dr. Eggman lured them into a trap. Gruff as ever, Shadow destroyed Eggman's Death Egg drone with his Chaos Blast and sent the doctor off. However, Shadow rejected Team Sonic's offer to join them in their confrontation with Eggman. While having no interest in going to Sonic's subsequent birthday party, he had Rouge give Sonic his regards.
+
+Sonic Runners Adventure
+In Sonic Runners Adventure, Shadow is a playable character that can be unlocked by spending 2000 Rings upon reaching level 5 in Green Hill. He retains his triple jump and the Speed/Dark-type from the predecessor, with the "Dark" bonus here changing enemies into Golden enemies (which count as two normal enemies point-wise) for a limited time.
+
+Sonic Forces: Speed Battle
+In Sonic Forces: Speed Battle, Shadow is a playable character. He has the following gameplay characteristics:
+
+Image	Rarity	Stats	Items
+Projectile	Boost	Trap
+Shadow Speed Battle
+SFSBSuperRareCardIcon
+Super Rare	
+Speed: 10/10
+
+Acceleration: 9/10
+
+Strength: 3/10
+
+SFSBLightning
+Lightning	
+SFSBSpeedShoes
+Power Sneakers	
+SFSBStormCloud
+Storm Cloud
+On 31 October 2018, Shadow was re-released as "Vampire Shadow," a variant character of Shadow dressed in a vampire costume based on "Halloween Shadow" from Sonic Runners, as a part of the version 2.4.1 update. This character has the following gameplay characteristics:
+
+Image	Rarity	Stats	Items
+Projectile	Boost	Trap
+Shadow-VampireHD
+SFSBSpecialCardIcon
+Special	
+Speed: 10/10
+
+Acceleration: 8/10
+
+Strength: 4/10
+
+Drac-O'-Lantern
+Drac-O'-Lantern	
+SFSBElectroBoost
+Electro Boost	
+SFSBStormCloud
+Storm Cloud
+
+Sega Heroes
+In Sega Heroes Shadow is a Red Epic Striker hero that can be looted and is available to unlock after the player collects 50/10 shards. After the player completes Zone 6, Amy was surprised to see him and Blaze Fielding, questionining his intentions.
+
+His MAX skill is Chaos Boost which requires nine mana. His Star skill is Chaos Spear and his Passive Skill is Indomitable Will.
+
+Sonic Racing
+In Sonic Racing, Shadow is a playable character. He becomes available by reaching League 7.
+
+Image	Vehicle	Skill	Bio
+Sonic Racing Shadow	Dark Reaper	Capsule Gift	The "Ultimate Lifeform". Once an enemy, now a close ally to Sonic.
+Sonic Speed Simulator
+In Sonic Speed Simulator, Shadow appears as one of the playable characters for the player to choose from in the options menu. He first appeared during the "Release Shadow" Event on 11 March 2023:
+
+Image	Unlocking requirement	Rarity
+SHADOWSSS	
+Complete the four objectives during "Release Shadow Event"
+Purchase for 1,499 Robux during "Release Shadow Event"
+Legendary
+On 18 March 2023, Shadow was re-released as "Flame Shadow", a variant character of Shadow heavily inspired by one of the unlockable outfits for him in Sonic Rivals 2 .
+
+Image	Unlocking requirement	Rarity
+FlameShadow	
+Complete all 2 missions during "Shadow's Revenge Event"
+Purchase for 999 Robux during "Shadow's Revenge Event"
+Legendary
+On 25 March 2023, Shadow was re-released as "Riders Shadow", a variant character of Shadow dressed in his Sonic Riders-exclusive attire.
+
+Image	Unlocking requirement	Rarity
+RidersShadowIcon	
+Land on Riders Shadow on Spin to Win wheel
+Purchase for Robux during:
+Race Update
+Legendary
+On 5 May 2023, Shadow was re-released as "Gold Style Shadow", a variant character of Shadow with golden accessories.
+
+Image	Unlocking requirement	Rarity
+GoldStyleShaodwIcon	
+Complete all 5 quests during "Golden Adventure Event"
+Purchase for 699 Robux during "Golden Adventure Event"
+Legendary
+On 27 May 2023, Shadow was re-released as "Racesuit Shadow", a variant character of Shadow wearing his "Racer" outfit from Sonic Adventure 2: Battle (however with a lack of bottom attire).
+
+Image	Unlocking requirement	Rarity
+RacesuitShadowICON	
+Buy from the Raceshop for 1,250 Race Tickets via "Racing."
+Legendary
+On 25 August 2023, Shadow was re-released as "Cheetah Shadow", a variant character of Shadow with Yellow Glasses and a Cheetah Jacket, having the Black Arms logo imprinted on his Chest Fur.
+
+Image	Unlocking requirement	Rarity
+CheetahShadowICON	
+Complete all 5 Quests during "Cheetah Shadow Event"
+Purchase for 799 Robux during "Cheetah Shadow Event"
+Exotic
+On 27 October 2023, Shadow was re-released as "Vampire Shadow", a variant character of Shadow with a Purple Top-hat and Tuxedo, with a Purple Bow near his Chest Fur. This character was first previously featured in Sonic Forces: Speed Battle:
+
+Image	Unlocking requirement	Rarity
+VampireShadowICON	
+Complete all 5 Quests during the "Vampire Shadow Event"
+Purchase for Robux during "Vampire Shadow Event"
+Seasonal
+On 30 December 2023, Shadow was re-released as "Winter Shadow", a variant character of Shadow with a pair of goggles, Brown, White and Red Hands, Cuffs and Shoes and a Beige Bandana.
+
+Image	Unlocking requirement	Rarity
+WinterShadowICON	
+Buy from the Raceshop for 1,500 Race Tickets via "Racing."
+Seasonal
+On 9 March 2024, Shadow was re-released as "Royal King Shadow", a variant of Shadow wearing a crown based on his Light Mobius counterpart from the Archie Sonic the Hedgehog Comics:
+
+Image	Unlocking requirement	Rarity
+SSSRoyalKingShadowIcon	Complete all four tasks during the "Royal Anniversary" event	Legendary
+On 4 May 2024, Shadow was re-released as "Rockstar Shadow", a variant of Shadow dressed similarly to what he wore in the Sonic Channel Artwork.
+
+Image	Unlocking requirement	Rarity
+RockstarShadow	
+Collect 20 Music Notes during the "Symphony Showdown" event
+Exotic
+Notes
+ At one point in Shadow the Hedgehog's Expert Mode, Cream thanks Shadow for saving her. This is something that can be done in Cryptic Castle, which is acceeded after helping the Black Arms in either Digital Circuit or Glyphic Canyon. As such, it can be assumed that Shadow teamed up with the aliens during at least the early phases of their invasion.
+References
+ Creators Interview 006: Maekawa Shiro. Sega. Archived from the original on 26 June 2019. Retrieved on 5 September 2022. "Interviewer: Who is your favorite character in the Sonic series? Please tell me why. / Shiro Maekawa: It's Shadow the Hedgehog. In fact, I am also the creator, but sometimes I feel a stronger bond than my real parents and siblings. I can't think of anyone else anymore."
+ Fast talking. PlayStation UK. Archived from the original on 26 June 2009. Retrieved on 4 September 2016. "Interviewer: If you had to pick a character from the Sonic universe who would you be and why? / Takashi Iizuka: ...I also would have to pick Shadow for the fact he is a character I created."
+ Ryan Drummond (@RYANtheDRUMMOND) on Twitter. Twitter (15 October 2020). Archived from the original on 15 October 2020. "SADKOOLAID: So......basically even before Jason Griffith, Sonic and Shadow were voiced by the same guy (at least for a few seconds during the final leave) this true @RYANtheDRUMMOND? / Ryan Drummond: Yup. For just that one game. Don’t tell Sega! 🤣"
+ Devra Newberger Speregen (2016). Sonic: The Ultimate Character Guide. Scholastic. p. 31. ISBN 978-1338033243.
+ Sonic City. Sega. Archived from the original on 29 February 2008.
+ Sega . Sonic Channel (Japanese). Characters: Shadow. Archived from the original on 26 May 2019. Retrieved on 3 July 2015.
+ "５０年前の真実" (in Japanese). ソニックアドベンチャー2パーフェクトガイド. Enterbrain. 10 October 2001. ISBN 978-4757706255.
+ Sega (29 July 2016). Act:006 影の来し方. Sonic Channel. Archived from the original on 8 May 2022. Retrieved on 29 May 2022.
+ Sonic X Shadow Generations: Dark Beginnings
+ Prima Development (20 June 2001). "The Beginning". Sonic Adventure 2: Prima's Official Strategy Guide. Prima Games. pp. 2–3. ISBN 978-0761536147.
+ Sonic Forces: Looming Shadow, "Looming Shadow"
+ 【特別企画】『チームソニックレーシング』レーサー直撃インタビュー！ その3「チーム ダーク」 (Japanese). Characters. Sega. Archived from the original on 5 June 2019. Retrieved on 7 May 2019.
+ Team Sonic Racing One-shot, "Team Sonic Racing"
+ Sonic & All-Stars Racing Transformed Official website (Japanese). Characters: Shadow. Sega. Retrieved on 29 July 2015.
+Shadow the Hedgehog
+Categories
+Languages
+Community content is available under CC-BY-SA unless otherwise noted.
+
+Recent Images
+ShadowGenDoomSurf.jpeg
+Doom Powers
+38 minutes ago
+ShadowGenDoomWings.jpeg
+Doom Powers
+38 minutes ago
+ShadowGenDoomSpears.jpeg
+Doom Powers
+38 minutes ago
+
+Popular Pages
+Sonic the Hedgehog
+Sonic the Hedgehog
+Shadow the Hedgehog
+Shadow the Hedgehog
+Sonic the Hedgehog 3 (film)
+Sonic the Hedgehog 3 (film)
+Amy Rose
+Amy Rose
+Miles "Tails" Prower
+Miles "Tails" Prower
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+Sonic Wiki Zone is a FANDOM Games Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Check out Fandom Quizzes and cha
+Search this wiki
+Search all wikis
+
+
+Sonic Wiki Zone
+Know something we don't about Sonic? Don't hesitate in signing up today! It's fast, free, and easy, and you will get a wealth of new abilities, and it also hides your IP address from public view. We are in need of content, and everyone has something to contribute!
+
+If you have an account, please log in.
+
+Sonic Wiki Zone
+Sonic Wiki Zone
+Explore
+Game Titles
+Game features
+Media
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Sonic Wiki Zone
+20,663
+pages
+Explore
+Game Titles
+Game features
+Media
+Community
+
+
+in: Shadow the Hedgehog, Relationships subpages
+Shadow the Hedgehog/Relationships
+< Shadow the Hedgehog
+Sign in to edit
+Main page
+History and app.
+History and app.
+(IDW)
+History and app.
+(Sonic Prime)
+Relationships
+Misc.
+Gallery
+This article is about the video game character. For other uses, see Shadow the Hedgehog (disambiguation).
+Shadow the Hedgehog
+SXSG art Shadow 04
+Shadow the Hedgehog, from Sonic X Shadow Generations.
+Appearances
+First appearance
+Sonic Adventure 2
+Game appearances
+Sonic Adventure 2: Battle
+Sonic Pinball Party (mentioned)
+Sonic Battle
+Sonic Heroes
+Sega Superstars
+Sonic Gems Collection
+Shadow the Hedgehog
+Sonic Riders
+Sonic the Hedgehog (2006)
+Sonic Rivals
+Sonic and the Secret Rings
+Mario & Sonic at the Olympic Games
+Sonic Rivals 2
+Sonic Riders: Zero Gravity
+Super Smash Bros. Brawl (cameo)
+Sega Superstars Tennis
+Sonic Chronicles: The Dark Brotherhood
+Sonic Unleashed (mentioned)
+Sonic and the Black Knight
+Mario & Sonic at the Olympic Winter Games
+Sonic at the Olympic Winter Games
+Sonic & Sega All-Stars Racing
+Sonic Free Riders
+Sonic Colors (Nintendo DS)
+Sonic Generations (console/PC)
+Sonic Generations (Nintendo 3DS) (cameo)
+Mario & Sonic at the London 2012 Olympic Games (Wii)
+Mario & Sonic at the London 2012 Olympic Games (Nintendo 3DS)
+Sonic Adventure 2 (2012)
+Sonic Jump (2012) (cameo)
+Sonic & All-Stars Racing Transformed
+Sonic Dash
+Mario & Sonic at the Sochi 2014 Olympic Winter Games
+Sonic Jump Fever
+Super Smash Bros. for Nintendo 3DS and Wii U (cameo)
+Sonic Runners
+Mario & Sonic at the Rio 2016 Olympic Games
+Sonic Runners Adventure
+Sonic Forces: Speed Battle
+Sonic Forces
+Sega Heroes
+Super Smash Bros. Ultimate (cameo)
+Team Sonic Racing
+Sonic Racing
+Mario & Sonic at the Olympic Games Tokyo 2020
+Sonic at the Olympic Games (2020)
+Sega Streaming Theater Sonic Edition (cameo)
+Sonic Dash+
+Sonic Speed Simulator
+Sonic Frontiers (mentioned)
+The Murder of Sonic the Hedgehog
+Sonic Prime Dash
+Sonic Superstars (cameo)
+Sonic Rumble
+Shadow Generations
+Appearances in other media
+Archie Comics
+Sonic X
+Sonic Boom
+Sonic Comic
+Sonic Forces digital comic
+IDW Publishing
+Team Sonic Racing One-shot
+Team Sonic Racing Overdrive
+Cover stories (2021)
+Sonic the Hedgehog (film series)
+TailsTube
+Sonic Prime
+Otherworld Comedy (2023)
+Sonic & Friends
+Calendar Comedy (2024)
+Sonic X Shadow Generations: Dark Beginnings
+Real-world designer(s)
+Creator(s) (real-world)
+Kazuyuki Hoshino
+Shiro Maekawa[1]
+Takashi Iizuka[2]
+Yuji Uekawa
+Artist(s)
+Yuji Uekawa
+Voice actor(s)
+English
+David Humphrey (2001-2004)
+Ryan Drummond (briefly, Sonic Adventure 2)[3]
+Jason Griffith (2005-2010)
+Kirk Thornton (2010-present)
+Japanese
+Kōji Yusa
+Other languages
+Benoît DuPac (French)
+Claudio Moneta (Italian, 2013-present)
+Klaus Lochthove (German, 2011-2019, 2024)
+Manuel Gimeno (Spanish)
+Maurizio Merluzzo (Italian; 2011 - 1st voice)
+Riccardo Lombardo (Italian, 2011 - 2nd voice)
+TBA (German, 2024-present)
+Biographical overview
+Age
+Ageless[4] (created 50 years ago)
+Creator
+Gerald Robotnik †
+Black Doom †
+Birthplace
+Space Colony ARK
+Relative(s)
+All Black Arms †
+Black Doom (biological father)
+Nickname(s)
+The Ultimate Lifeform
+The Ultimate Hedgehog
+Fake Hedgehog
+Black Wind
+Project Shadow
+Black Hedgehog
+The Black Blur[5]
+Faker
+Species
+Hedgehog[6]/Black Arms
+Physical description
+Gender
+Male
+Height
+100 cm (3 ft 3 in)[6]
+Weight
+35 kg (77 lb)[6]
+Fur
+White, black, crimson
+Skin
+Tan
+Eyes
+Red
+Attire
+Air Shoes
+Limiter Rings
+White gloves with black and red-tongued cuffs
+Alignment and character traits
+Alignment
+Neutral
+Affiliation(s)
+Eggman Empire (formerly)
+United Federation
+Guardian Units of Nations
+Team Dark
+Resistance (formerly)
+Likes
+Maria Robotnik
+Team Dark
+Dislikes
+Fools[4]
+Anyone who opposes him
+Dr. Eggman
+Deception
+When others insult him
+When someone gets in his way
+Wasting time
+Losing
+Powers and abilities
+Skills
+Doom Powers
+Immortality
+Immense speed
+Superhuman strength
+Superhuman durability
+Superhuman jumping
+Absolute stamina
+Extreme acrobatic skills and reflexes
+Indomitable will
+Hand-to-hand combat skills
+Weapon and firearm combat skills
+Vehicle intuition
+Extreme Gear riding skills
+Grinding
+Telekinesis
+Harnessing Chaos Emerald energy
+Chaos Boost transformation
+Chaos powers
+Hero Shadow and Dark Shadow transformations
+Super transformation
+Hyper-go-on usage
+Moves and techniques
+Air Boost
+Air Ride
+Attack
+Black Tornado
+Boost
+Cartwheel
+Chaos Blast
+Chaos Boost
+Chaos Control
+Chaos Snap
+Chaos Spear
+Chaos Upper
+Color Power
+Crouch
+Crouch (grinding)
+Dash Boost
+Double Jump
+Drop Dash
+Fire Somersault
+Grab
+Grind Step
+Guard
+Homing Attack
+Jump Dash
+Kick
+Kick Dash
+Light Speed Attack
+Light Speed Dash
+Punch
+Quick Step
+Shadow's All-Star Move
+Skydiving
+Slide
+Somersault
+Speed Up
+Spin Attack
+Spin Dash
+Spin Jump
+Stomp
+Trick Action
+Wall Jump
+Ability type
+Speed
+
+Contents
+1	Gerald Robotnik
+2	Maria Robotnik
+3	Dr. Eggman
+4	Emerl
+5	Sonic the Hedgehog
+6	Rouge the Bat
+7	E-123 Omega
+8	Black Doom
+9	Mephiles the Dark
+10	Silver the Hedgehog
+11	Humanity
+12	Miles "Tails" Prower
+13	Knuckles the Echidna
+14	Amy Rose
+15	The Commander
+16	Metal Sonic
+17	Team Chaotix
+18	Infinite
+19	Nine
+20	Alpha Grim Sonic
+21	Friends/allies
+22	Neutral
+23	Enemies
+24	References
+Gerald Robotnik
+Gerald and Maria Photo Shadow the Hedgehog
+Gerald Robotnik and Maria Robotnik in a photo, from Shadow the Hedgehog (game)
+
+Shadow, I'm counting on you.
+I know, Professor... The Ultimate life form born to ensure peace and justice amongst all of mankind. Now, I know what I have to do.
+— Gerald Robotnik and Shadow the Hedgehog, Shadow the Hedgehog 
+Shadow was created by the renowned scientist Gerald Robotnik, using Black Doom's DNA. Gerald had made many attempts to create the Ultimate Lifeform before Black Doom and his children, the Black Arms, came to earth. Unfortunately, the closest he came was the Biolizard. Black Doom, however, approached Gerald and offered his help, but only on one condition; if Black Doom helped Gerald, the professor must promise to deliver the seven Chaos Emeralds to him. Gerald agreed to these terms and Black Doom gave some of his DNA, which was added to the samples that Gerald had already obtained. The outcome of this experiment was Shadow the Hedgehog. Gerald seems to be one of few people whom Shadow felt happy around, and the professor might have acted as a surrogate father to him. This is further proven when Gerald refers to the hedgehog as his "son," having given Shadow genuine emotions to prevent him from becoming a weapon as the government intended. However, despite these predisposed emotions, after defeating the Finalhazard, Shadow stated that he promised to "destroy all evil that the professor had created," implying that, while he might still respect Gerald Robotnik, he nonetheless feels that any bad things that Gerald Robotnik had done after going insane must be stopped.
+
+In the climax of the Black Arms incident, Shadow finally uncovered the true purpose of his creation from Gerald's recorded video. In order to put the past behind him, he decided to fulfill Gerald's true wish of protecting the planet by destroying the Black Arms and any future threats that may come Earth's way.[7]
+
+Maria Robotnik
+SandM
+Maria and Shadow watching the earth together, from Sonic Adventure 2.
+
+Maria... I still remember what I promised you... For the people of this planet, I promise you... REVENGE!
+— Shadow the Hedgehog, Sonic Adventure 2 
+Professor Gerald's granddaughter, Maria Robotnik, is by far the one person that made Shadow the happiest. Shadow and Maria bonded closely during their time together; Shadow's feelings for Maria were the closest he ever came to love[8] and viewed her as a sister. Maria seemed to be a guiding force in Shadow's life, doing her best to erase any doubts he had about the purpose of his existence. They shared the same dream: to visit earth together someday.
+
+Unfortunately, G.U.N. deemed Project Shadow to be too big of a threat to the world. As a result, they attempted to eliminate everyone and everything they could in relation to the project. Maria was shot and killed by a G.U.N. soldier during the raid on the ARK. Her parting words were "Sayonara, Shadow the Hedgehog."
+
+Maria Screenshot 4
+Maria begging Shadow to help those aboard the Space Colony ARK, from Shadow the Hedgehog.
+
+In a 1UP interview, Shadow has stated that if he could change one thing about his past, it would be to give up his life for that of Maria's. He is forever haunted of losing someone that really cared for him. Despite his grief, Shadow stays strong and continues to keep his promise to her, to make the people of earth happy.
+
+After getting amnesia, Maria was the only thing that Shadow could really remember. At the end of Shadow the Hedgehog, he is putting his tragic past behind him, though he continues to save the world in her name.
+
+Dr. Eggman
+STH2006 SH Who is Mephiles 06
+Shadow and Dr. Eggman, from Sonic the Hedgehog (2006).
+
+You'll regret this, doctor... Even if I'm not real, I'm still the ultimate life form, Shadow the Hedgehog!
+— Shadow the Hedgehog, Sonic Heroes 
+Gerald Robotnik's grandson, Dr. Eggman is one of Shadow's worst enemies, and the two have opposed each other at several points. Their relationship mainly comes from the fact that the black hedgehog was created by the doctor's grandfather. Their first meeting was during the Space Colony ARK incident, where the scientist liberated Shadow from his stasis capsule on Prison Island, thus making the latter grant him one wish in gratitude. In reality, Shadow used his creator's grandson's ambitions to carry his revenge against the world for Maria's death. The hedgehog would stick with Eggman for the remainder of that incident, until his supposed death after defeating the Finalhazard with Super Sonic. In the aftermath, the one who rescued Shadow turned out to be none other than Eggman himself, who later put him in a stasis capsule in one of his bases. Following Shadow's unexpected release, Eggman would take advantage of his amnesia to gaslight him into believing that he was just a copy of himself and that the real Shadow was dead to turn him back to his side.
+
+After the Black Arms incident, Shadow became another thorn in Eggman's side, despite not being an intermediate member of Sonic's group of friends[9]. It is proven that the black hedgehog cares very little about the doctor's safety if it has nothing to do with him or his teammates,[10] but will nevertheless team up with him if a greater threat arises. In truth though, he just does not like it when anyone, the scientist included, does something he sees as foolish or harmful, causing him to go against him if needed.[11]
+
+Shadow sees Eggman as a menace to the world, despite working with him in the past. After the events of the Eggman War, Shadow spent a month searching for him to finish him off before he could be a threat. Once he found him as the amnesiac Mr. Tinker, Shadow was prepared to kill him until Sonic appealed to his merciful nature.[12] Shadow would regret showing leniency towards the doctor once he returned to his old self,[13] and after the Metal Virus was destroyed, Shadow would once again look to fighting off the Eggman Empire by himself.[14]
+
+Emerl
+Shadow feels that he and Emerl are similar both in personality and what their hearts desire. They were both created and discovered by Gerald Robotnik, respectively, and Shadow felt a connection to Emerl. He initially told Sonic that Emerl was meant to be a weapon of war, yet Rouge stated that Emerl still has feelings for living beings, feelings that he can understand.[citation needed]
+
+Sonic the Hedgehog
+Shadow2
+Shadow and Sonic, from the console/PC version of Sonic Generations
+
+So, there's more to you than just looking like me.
+— Shadow the Hedgehog, Sonic Adventure 2 
+Shadow and Sonic the Hedgehog are both rivals and uneasy allies, as well as the virtual equal of one another. At first Shadow tried to disregard Sonic, but Sonic's quips quickly sparked a mutual rivalry in Sonic Adventure 2. Throughout the game, the feats Sonic accomplishes, such as surviving Eggman's death trap and learning Chaos Control, impressed Shadow, and he began to respect Sonic, giving him his props and asking for his identity before the final battle between them. Since meeting each other, their rivalry has developed, and while it is now usually friendly thanks to Shadow's reformation, the two can still occasionally be at odds.
+
+When they first met, Shadow believed Sonic to have been copying him, and vice-versa from Sonic. He temporarily had this belief in Sonic Heroes as well, though this was largely because of his amnesia.
+
+Shadow and Sonic's conflicts tend to occur due to the fact that though their goals tend to align, their views on justice, morality, and how to act on them can sometimes differ. Their disagreements sometimes turn to bitter fights. Shadow admits no hesitation in opposing Sonic like he would with Eggman if he deems him a foolish individual who thinks he can do whatever he pleases[11]. In a sense, the two hedgehogs are polar opposites in every way except their appearance and goals.[15]
+
+STH2006 SN Silver and Shadow 11
+Sonic thanking Shadow for his help, from Sonic the Hedgehog (2006).
+
+If knowing you has taught me anything, there's always another way.
+— Shadow the Hedgehog, "Grim Tidings" 
+Despite their differences, Shadow and Sonic have helped each other on several occasions. Shadow helped Sonic defeat Metal Sonic in Sonic Heroes, allied himself and Rouge with Team Sonic to return both teams to their proper time period, and saved the blue hedgehog from Silver's second attempt on his life in Sonic the Hedgehog (2006). He showed grief in the face of Sonic's death and stated to Silver that they cannot defeat Solaris without his help.[16] In the Nintendo DS version of Sonic Colors he clearly shows some concern for Sonic's safety. Additionally, he helped motivate Sonic to defeat the Time Eater in Sonic Generations and attended his birthday party. He seemed concerned for Sonic when Infinite mentioned he would use his newfound power against him and raced to save him in Sonic Forces at the beginning of the game, but was unfortunately too late. Shadow later succeeded in saving Sonic from a Phantom Copy of himself in Sunset Heights despite the blue hedgehog's initial suspicions about the situation. Nonetheless, Shadow did participate in fighting alongside the hedgehog for the rest of the war.
+
+Overall, while the two still are at odds because of their conflicting views, there is also a mutual respect between them.[17] They are both willing to put their differences aside for the greater good and help each other when needed. In recent games, Shadow is more confident about Sonic doing what is right and Sonic has more faith in Shadow's choices as well.
+
+Super Sonic & Super Shadow2
+Super Sonic and Super Shadow saving the day, from Sonic Adventure 2
+
+If there is one thing that can be said about Shadow and Sonic, it is that they are some of the only people who can get up close and personal with each other. Because of the high performance of both Shadow and Sonic in terms of their physical abilities and their thoughts, there are not many who can keep up with them. Also, there are fewer still of the ones who, despite their rejection, are able to persist, to offer opinions, to meddle, or to stand in their way and try to stop each other like those two can. In fact, Sonic is perhaps the only person who can get so up close and personal with Shadow as he can say something to him that reaches his heart (though it often does not). In a sense, Sonic's kind of presence is troublesome to Shadow, but it is also one of the most important ones. They help each other grow and push them to be better. However, while Sonic is receptive to hearing things that strike a little close to home, from Shadow's point of view, Sonic is a real pain. Regardless of much of an impact they each have on each other, the two of them both share the philosophy of following their hearts' desires, which makes them collide with each other, crossing paths with each other, and sometimes dividing into an ally and enemy.[11]
+
+Sonic vs Shadow (IDW)
+Sonic vs Shadow, from Sonic the Hedgehog #6.
+
+Despite their uneasy relationship, Shadow is willing to put aside his dislike for Sonic in some situations and help him; he just does not want to dwell on his motivations for doing so later on. Shadow has also been known to listen to Sonic's advises and arguments, and even ponders about them more deeply at times, knowing that as the ultimate lifeform, he cannot allow himself to make mistakes.[12][18]
+
+Rouge the Bat
+Dolphin 2015-12-02 19-01-44-664
+Shadow and Rouge, from Sonic Heroes.
+
+Shadow... Even if you believe everyone in the world will be against you. Know that I'll always remain by your side. Remember that.
+— Rouge the Bat, Sonic the Hedgehog (2006) 
+Rouge the Bat is one of Shadow's closest companions. The two are teammates in Sonic Adventure 2 and Sonic Heroes, and they often work together during mission stages. Despite the fact that the pair have not casually spent much time together, they still greatly appreciate and respect one another. Rouge and Omega are shown to be the two who Shadow cares about and appreciates the most. Rouge is certainly one of, if not the closest person for Shadow to interact with. Shadow was implied to have at least heard of her before their formal meeting onboard the Space Colony ARK, as Shadow responds: "Now I know who you are! You're that government spy, Rouge the Bat, aren't you!" when stumbling upon her true intentions at the controls of the Eclipse Cannon.
+
+In Sonic Adventure 2, Shadow saved her life when Rouge was trapped in Security Hall, though when she questioned him about his actions later aboard the ARK, he told her he only returned for the Chaos Emeralds that she had acquired. However, it is still unknown if he didn't lie; Rouge teased that this wasn't "the whole story." Their conversation was then interrupted by Dr. Eggman. It's also implied via the repeated images of Maria during that time that he saved Rouge partly because he compared Rouge's situation to that of Maria's last moments.
+
+In Sonic Heroes, Shadow saves Rouge from Omega's fire when not even remembering her. Later, when they find a broken Shadow Android, Rouge looks over to Shadow with pity and asks, "Shadow...?" in a sympathetic mannerism, while he simply dismisses the situation. Later, when Rouge mentioned intending to steal Knuckles' Master Emerald, Shadow replied that "things never change, do they?", implying that he regained enough of his memory to remember her rivalry with Knuckles' Master Emerald.
+
+In Sonic Battle, Rouge lets Shadow stay with her at Club Rouge when he is injured during a fight at the Gimme Shelter. When Shadow is dreaming and an image of Rouge appears and he whispers, "Ally." After he regains consciousness Rouge seems somewhat offended when he does not thank her for helping him. Upon finding out she saved him, Shadow thanks her.
+
+In Sonic the Hedgehog (2006), Shadow shows he is protective of Rouge's well-being. He showed this once when catching her from a fall after she was momentarily knocked out by one of Dr. Eggman's robots, and again when he jumps in front of her after Iblis takes them all by surprise. When Omega reveals to Shadow that he is the one who traps him in the future; Rouge tells Shadow, "Even if you believe the entire world will be against you, know that I will always remain by your side... Remember that..." Shadow pauses, then strongly replies, "I will." However, this event was erased along with the rest of the events within the game after the "future was reversed." Nonetheless, it is implied in Sonic Forces that she ultimately stayed true to that claim and maintained contact with Shadow while he was still assumed to have gone rogue due to his Phantom Copy. This is evidenced by how, when, reconvening with Rouge, he asks her about whether she found what he had requested earlier.[19]
+
+Shadow & Rouge (Sonic Generations)
+Shadow and Rouge cheer Sonic on, from Sonic Generations
+
+In Sonic Rivals, after Shadow saves Rouge from Eggman Nega, Rouge tries to convince him to going treasure hunting with her and suggests the two "take a peek" into their own future using Eggman Nega's device. Shadow declines and the story ends with Rouge still trying to convince Shadow to join her in hunting for the remaining cards.
+
+Shadow and Rouge (IDW)
+Shadow and Rouge, from Sonic the Hedgehog #31.
+
+In Sonic Rivals 2, their encounter was less than friendly from their previous ones to separate the fact their overall relationship seems to be more partner-focused when they ally for the occasion. Shadow is consistently trying to stop Rouge and Knuckles from reaching the Chaos Emeralds at all costs, seeking to manipulate the Chaos-tracking device from Rouge. Rouge tells Shadow that he can trust her and Shadow tells her about the Ifrit. When Rouge mentions her client, Shadow demands to know who her client is, but Rouge refuses against him, leading him to yell after for her to, "get back here." When Shadow catches up to her, Rouge still refuses to tell him about her client as Shadow mildly threatens her, and then she trips him over and replies that he was being "clumsy," and he growls, "Why you...!" The conversation then devolves into a fight between the two, proving that although they may be on good terms sometimes, that does not mean that they let each other get in the way of their goals.
+
+In Sonic Free Riders, both Shadow and Rouge appear as Team Dark along with E-10000B. Their main focus during the game is winning the treasure and prize money. Unlike in previous games, Shadow seems perfectly content with helping Rouge obtain the treasure she covets.
+
+Even though they would be considered closer than any of Shadow's other allies, he rarely spends time with her outside of their missions. Rouge has come to understand Shadow's dislike for wasting time but becomes annoyed by his often disregard for caution and lack of planning when handling situations on his own. Shadow also has a habit of not always listening to Rouge while on missions in spite of Rouge's good intentions for him.[13][12][20][21][22] Sometimes, however, Rouge is the only one who can reason with him.[23]
+
+E-123 Omega
+Dolphin 2015-12-02 18-58-23-995
+Shadow and Omega's fight being interrupted by Rouge, from Sonic Heroes.
+
+You should've known better than to send Omega on an op like this.
+— Shadow the Hedgehog, Sonic Forces (Episode Shadow) 
+Shadow has been known to trust Omega as a partner in his missions, though with a mutual understanding of both of them being seen as weapons used for destruction. However, their relationship goes beyond their seemingly gruff, aloof, and mighty exteriors, revealing a trusting, mutual friendship between the two. As stated by Rouge, the two "go together like chili and hot dogs." This relationship is first shown when Shadow looks out for Omega in Sonic Heroes halfway into the game. This was also shown in Shadow the Hedgehog when Shadow willingly helped Omega in Iron Jungle and Lava Shelter. In Sonic the Hedgehog (2006), Shadow is the one who first spots the deactivated Omega, 200 years into the future. Shadow shows real sadness at the sight of this, as Rouge has to force him to continue moving. Both Shadow and Rouge were somewhat saddened by Omega being reprogrammed to hunt down Shadow in the future, due to Shadow being seen as too strong of a lifeform, causing humanity to fear him.
+
+Shadow and Omega (IDW)
+Shadow and Omega, from Sonic the Hedgehog #19.
+
+He knows he can count on Omega to do his job to the best of his ability, leaving the two on good terms allowing them to get along quite well and coordinate in the fight. Though Omega feels the same way about Shadow however, he will not hesitate to fight him should he become hostile; when Shadow got turned into a Zombot, Omega was ready to destroy him just because he had become one of Dr. Eggman's robots.[13][22] Their relationship, however, does not go beyond a formal bond, as Shadow himself once openly declared that he was not interested in helping repair Omega after he got damaged during the Zombot apocalypse.[14]
+
+Black Doom
+Dolphin 2015-09-05 20-27-45-016
+Black Doom trying to manipulate Shadow, from Shadow the Hedgehog.
+
+I don't know who he is, but for now, I have to believe him. That's it.
+— Shadow the Hedgehog, Shadow the Hedgehog 
+The relationship between Shadow and Black Doom may have been brief, but has played a significant role in Shadow's life. Shadow was made from Black Doom's blood, in a deal between the alien and Professor Gerald; this technically makes Black Doom Shadow's biological father. Black Doom constantly follows Shadow throughout the game, trying to get him to see what he believed to be the truth about humanity and that they needed to be punished. Even after Shadow opposes him several times, Black Doom will still insist on trying to get Shadow to join him, turn on humanity and see things his way. Regardless of the path taken during gameplay, Shadow defeats Black Doom and destroys the Black Comet along with the Black Arms.
+
+Throughout the events of Shadow the Hedgehog, Black Doom cares nothing about him and is only interested in his power. He also shows strong disapproval and demands extreme loyalty and respect from him, especially when he shows opposition to him. He also doesn't tolerate any kind of mistake or failure, no matter how difficult the task on Shadow's part may be. In the end, Shadow refused to aid him and decided to put an end to his biological father and his "offspring" after learning of the nature of his plans.[24]
+
+Mephiles the Dark
+STH2006 SH Mephiles' whisper 01
+Shadow confronts Mephiles, from Sonic the Hedgehog (2006).
+
+You have no desire for revenge, you only crave destruction. Your only lust is to fuel Iblis, until there is nothing left of time itself.
+— Shadow the Hedgehog, Sonic the Hedgehog (2006) 
+Mephiles the Dark is one of Shadow's deadliest enemies. When they first met, Shadow, due to not having sealed Mephiles away yet at that time, expressed a sense of familiarity despite not knowing who he was, before Mephiles sent him to the future. In Shadow's second meeting with Mephiles, he tried to convince Shadow to turn against humanity, but Shadow refused. After the battle, Shadow tried to collect some information about Mephiles to stop him, which led him to investigate Mephiles' origin at the Solaris Project ten years ago. There, Shadow sealed Mephiles in the Scepter of Darkness shortly after his birth, where Mephiles swore that he would remember Shadow and that he would kill him. This made Shadow realize how Mephiles knew him and why he was obsessed with him.
+
+Shadow later faced Mephiles in Dusty Desert where Mephiles tried to convince him to join his cause, but Shadow saw through his deceit and proclaimed he knew that Mephiles only craved destruction. After Shadow failed to seal Mephiles, Mephiles tried to confuse him by asking why he wanted to save humanity when they would persecute him, but Shadow proclaimed he would always keep fighting. Solaris and Mephiles were both later erased from existence, resulting in the erasure of Shadow's relationship with Mephiles.
+
+Silver the Hedgehog
+Vlc 2016-06-29 23-11-31-815
+Shadow and Silver time travel in order to get the answers they each seek, from Sonic the Hedgehog (2006).
+
+Mephiles isn't trying to help you create a better future... He's trying to eliminate the past.
+— Shadow the Hedgehog, Sonic the Hedgehog (2006) 
+Shadow and Silver the Hedgehog were enemies at first due to Silver being tricked by Mephiles and Shadow intervening in his second attempt to kill Sonic, but became partners later on in Sonic the Hedgehog (2006). They became allies when they worked together after their fight. After attempting Chaos Control on each other, which Shadow was impressed by, the black hedgehog told the misguided Silver that Mephiles was using him for his own ends. To get their answers, the two traveled back ten years to witness the Solaris Project accident. They later split up to go after their own targets; Silver watching the King of Soleanna sealing Iblis inside Elise and Shadow sealing Mephiles inside the Scepter of Darkness. After they finished, Shadow and Silver meet up outside the Aquatic Base, where they then use Chaos Control to return to the present. They meet up once more during Solaris' resurrection. Seeing Sonic's death, Shadow silently stares at Silver when he realizes Mephiles had tricked him into nearly releasing Iblis on the world, recognizing the villain outwitted both of them, and tells him his plan to defeat Solaris could have worked if Sonic was alive. After they and the others revive Sonic, they and the blue hedgehog battle Solaris, which results in the events becoming retconned.
+
+In the Sonic Rivals games, Shadow and Silver are rivals. Shadow does not trust Silver's intentions and speculations about Dr. Eggman's identity, but after he discovered that Silver was right, Shadow showed tolerance toward Silver. In Sonic Rivals 2, they are at odds; mostly because Silver did not want Shadow getting in his way.
+
+Humanity
+Shadow sa2 end
+Shadow's image over earth after sacrificing himself and seemingly dying to save humanity, from Sonic Adventure 2.
+
+It is my desire to bring hope to humanity. I can't stand it...
+— Shadow the Hedgehog, Sonic Battle 
+Initially, Shadow did not hate humanity and promised his best friend Maria to give them a chance to live happy lives. However, his opinion about them changed after G.U.N. killed Maria and he came to loathe humanity itself for what they did to her. After his reawakening, the hedgehog planned to destroy humanity, thinking he had promised his friend revenge against them for her death. However, when he remembered his true promise, he cast aside his vendetta and risked his life to save humanity.
+
+After becoming amnesiac, Shadow did not care for humanity, even regarding them as pathetic and held no sympathy towards them. However, when he regained his memories, he once again chose to protect humanity to keep his promise to Maria and stay true to his purpose. He has as well gained his own desire to bring hope to humanity, though he has misgivings about them[25] and holds a personal dislike towards them.[6] In his encounters with Mephiles during the Solaris incident, the hedgehog proclaimed that if someday the world chooses to become his enemy, then he will fight like he always has, showing that it is up to humanity to decide whether he is their enemy or not.
+
+Miles "Tails" Prower
+CIRCUS42
+Shadow and Tails in Circus Park, from Shadow the Hedgehog.
+
+Hmph. Looks like you'll never understand. The builders will never know how their creations truly feel.
+— Shadow the Hedgehog, Sonic Battle 
+Miles "Tails" Prower and Shadow were at first enemies in Sonic Adventure 2 because Shadow was impersonating Sonic and got him thrown in jail on Prison Island. Towards the end of the game, they became allies when they had to save the planet from the Space Colony ARK. For the most part Shadow and Tails' relationship seems to depend on their goals, especially due to the latter being the closest ally of Sonic, Shadow's antithesis.
+
+The two are on opposing sides in Sonic Heroes, Sonic Battle, and Sonic Rivals 2. In Sonic Heroes they fought very briefly because Shadow and Rouge had provoked Team Sonic into fighting them; Tails, in possible concern for his amnesia, asked Shadow if he remembered them. In Sonic Battle, Shadow and Tails fought at the end of Tails' Story because Tails resisted giving up Emerl to Shadow. Shadow threatened Tails that he would have to give Emerl up or else they would fight for him, Tails admitted that he admires Shadow's spirit but would not give up in a fight. When Tails won the fight Shadow warned him that he would be back again to get Emerl, but Rouge showed up and told Shadow to go back to Night Babylon. In Sonic Rivals 2. Shadow and Metal Sonic confronted Tails and Sonic because they were all going after Eggman.
+
+However despite this, Shadow and Tails seem to be on very good terms with each other, and seem to get along quite well. Also, when Eggman suggests they build a weapon to hurt the enemy, and Tails says he has a better idea, Shadow with a smile asks why he is not surprised. Shadow is actually the second most helpful member of Tails' Team in Metropolis, helping Tails with numerous mechanical ideas with Eggman. He is also very helpful if the player is looking for Omega, often giving tips to tell of where Omega would have gone if he had gotten the chance. If the player succeeds in finding Omega, Shadow thanks Tails for helping him. Overall, Shadow and Tails hold a great deal of mutual respect for each other, and despite being occasional enemies, they seem to support each other, and they have helped each other on several occasions.
+
+Knuckles the Echidna
+Shadow and knuckles race
+Shadow and Knuckles during a competitive race, from Team Sonic Racing Overdrive.
+
+Do whatever you need to, Knuckles. I've got my own reasons for being here.
+— Shadow the Hedgehog, Shadow the Hedgehog 
+Shadow and Knuckles have not interacted much, but at times they are either loose allies or bitter rivals. In Sonic Adventure 2, they didn't have much interaction, but they were indirectly enemies at first and then worked together to save the world from Space Colony ARK. The first real fight between them happened in Sonic Heroes, although Shadow didn't remember Knuckles at the time. After the fight, Knuckles jokingly mentioned that they might have fought Shadow's ghost. In Shadow the Hedgehog, Knuckles appears in Glyphic Canyon, Central City, and Black Comet stages asking for Shadow's help in Hero missions. In Sonic the Hedgehog (2006), he and Shadow loosely worked together again for a time in order to return to the present.
+
+Shadow and Knuckles appear to have some bitter resentment towards each other as seen in Sonic Rivals, when Shadow bluntly pointed out that Knuckles was useless for his shortcomings while retaining an indifferent attitude towards his challenges, and Knuckles seemed to be irritated by Shadow's presence. Knuckles seems to have a bit of a disliking towards Shadow, mostly because he finds him complacent and smug. Additionally, Knuckles is not fond of Shadow's egotistical tendencies, which is seen in Sonic Free Riders when he says, "I see your ego's as big as ever, Shadow," in a rather annoyed tone.
+
+Amy Rose
+Amy asking Shadow
+Amy pleading for Shadow's help, from Sonic Adventure 2.
+
+I know that people fight over the most trivial things. Some people may be selfish, like the professor said, but they're basically good. If they try their best and never give up on their wishes, they always have a reason to be happy. That's why you should help them out. Saving them is a good thing!
+— Amy Rose, Sonic Adventure 2 
+Shadow and Amy Rose have not interacted much with each other throughout the series. In Sonic Adventure 2, Amy first meets Shadow when she mistakes him for Sonic and hugs him from behind, while Shadow remains still after having been briefly caught off-guard by her touch. He also does not shake her off or resort to violence. When Amy senses the lack of a reaction, she releases him, causing him to glance back at her. Amy demands his name when she realizes that he is not Sonic, but Shadow continues to glare at her quietly. After Amy notices Dr. Eggman, she also realizes the mistake she has made, and runs off screaming. During this, Shadow simply tilts his head when she is out of range as Dr. Eggman tells the team that he'll take care of Amy.
+
+Later in the game aboard the ARK, Amy meets Shadow again and this time begs Shadow to save the world. At first, Shadow simply replies that it is pointless, but then Amy points out that despite people sometimes being selfish, they were still inwardly good and that saving them was right. Because of this, Shadow suddenly has a flashback of Maria begging Shadow to make people happy. When Shadow comes to his senses he goes off to fight the Biolizard, determinedly and softly telling Amy that he has to keep his promise to "Maria... and [her]."
+
+Amy was also the only one to see Shadow's tear after he remembered that Maria wanted him to save the people that live on earth.
+
+During Sonic Battle, Amy shows excitement and concern upon hearing Shadow's survival through Rouge, but quickly becomes angry when Rouge will not tell her why he's there.
+
+During Shadow the Hedgehog, Shadow can choose to assist Amy in helping find Cream the Rabbit and have her fight alongside the player during the stage and in the boss battle, but this time, there is no reward in return. Also, at the end of Shadow the Hedgehog, Amy shows an odd amount of faith and admiration for Shadow, regardless of him being Sonic's rival. When Rouge expresses concern for Shadow following the destruction of the Black Comet, Amy reassures her with her hands clasped and a cheerful smile on her face, "I'm sure he's fine, Rouge! After all, he is Shadow!" which further displays her positive outlook on the black hedgehog and her general optimism.
+
+The Commander
+Shadow and the Commander
+Shadow will accept his fate if what the Commander says is true, from Shadow the Hedgehog.
+
+Shadow, do you read me? First... I want to apologize for the other day. Actually, I just became a grandfather last week, and I was thinking of maybe having you over. I know that training is tough, but try and do your best.
+— The Commander, Shadow the Hedgehog 
+The Commander and Shadow were enemies at first because the Commander blamed Shadow for the death of his family and Maria fifty years ago during the G.U.N. raid on the Space Colony ARK. Throughout the game, he orders his troops to kill Shadow. After the events of Shadow the Hedgehog, the Commander apologized and invited Shadow over to his house to see his new grandchild; this is presumably the time that Shadow became a G.U.N. agent.
+
+Metal Sonic
+Shadow and metal sonic heroes
+Shadow and E-123 Omega carry a defeated Metal Sonic, from Sonic Heroes.
+
+Even the Ultimate life form can't stop me!
+— Metal Madness, Sonic Heroes 
+As the prized creation of Dr. Eggman, Metal Sonic is generally viewed by Shadow as both a threat and an enemy. A prime example of this was during the Neo Metal Sonic incident, when Metal Sonic (in his upgraded Neo Metal Sonic form) secretly copied Shadow's data, and used it in conjunction with the other data he gathered to transform himself into Metal Madness. Recognizing the evil and destructive nature of the robot, Shadow worked with Team Dark and the other teams to distract him long enough for Team Sonic to transform into their Super States. Following the battle, Shadow and Omega picked up Metal Sonic's deactivated body, although it is unknown what they ultimately chose to do with it.
+
+However, another side of Shadow's stance on Metal Sonic was shown during the Ifrit incident, when Metal Sonic is sent by Eggman to enlist Shadow in stopping the Ifrit's release. Despite fighting the robot previously, Shadow agreed to help for the greater good, and worked with Metal Sonic to hunt down the Chaos Emeralds, temporarily becoming the one commanding the robot whenever Eggman was unable to form contact. Throughout the adventure, Shadow showed concern for Metal Sonic's condition several times, such as when the robot had to tear the green Chaos Emerald out of himself in order for Shadow to perform Chaos Control and warp both of them out of the Chaotic Inferno Zone. It is unclear, however, whether Shadow's concern was simply because he needed Metal Sonic's assistance to combat the Ifrit, or if Shadow had gained some form of respect for the robot during their quest together.
+
+Despite their previous teamwork, by the conclusion of the second World Grand Prix Metal Sonic and Shadow were once again on negative terms with each other as a result of Metal Sonic infiltrating Team Dark under the disguised form of E-10000B, and secretly copying the data of every racer's Extreme Gear in order to empower himself.
+
+Team Chaotix
+Shadow and team chaotix
+Shadow with Team Chaotix, from Shadow the Hedgehog.
+
+You should thank me for letting you live.
+— Shadow the Hedgehog, Sonic Heroes 
+Shadow has had several altercations with the Chaotix Detective Agency, the first being a confrontation in Sonic Heroes that escalated into a brawl, with their differences then seemingly set aside later when they joined forces against an evolved Metal Sonic. Team Chaotix resumed their role as allies in Shadow the Hedgehog, with each member participating as a partner in the hero missions of various levels.
+
+Individually, Vector perceives Shadow as a friend, as demonstrated in one of the endings of Shadow the Hedgehog when the crocodile attempted to console him when he concluded himself to being nothing more than a living weapon of mass destruction, though Shadow apparently did not want to hear it. Espio has shown his capacity of camaraderie with the black hedgehog and the two proved to make a good team when they confronted Dr. Eggman. When Eggman tries to lie and manipulate Shadow, Espio tells the hedgehog not to fall for the doctor's tricks and to defeat him first. Charmy has exercised a more enthusiastic relationship with Shadow, demonstrating how much he respects and looks up to him while often stating how "cool" Shadow is. All the Chaotix voices are present in supporting Shadow during the last story as well as Expert Mode.
+
+Infinite
+Shadow vs Infinite Episode Shadow
+Shadow fighting against Infinite, from Sonic Forces.
+
+I've only become what I am because of you, yet you don't remember. But I suppose that's the way it goes. It simply means that the old me was too weak, too pathetic to remember. And now, you've become nothing more than an insect, waiting to be crushed underfoot.
+— Infinite, Sonic Forces (Episode Shadow) 
+Shadow first encountered Infinite back when he was known as the Ultimate Mercenary after decimating the Jackal Squad group he led. Although the Ultimate Mercenary expressed confidence that he could beat Shadow with his own abilities, Shadow promptly proved him wrong by easily beating him before the latter could get a chance to fight back, leaving the mercenary terrified. Shadow was less than impressed with the Ultimate Mercenary during this time, downgrading him that he was worthless, as well as telling him not to show "[his] pathetic face" before him ever again before taking his leave. Little did Shadow know, however, that this would ultimately prove to have serious ramifications months later, when the Ultimate Mercenary proceeded to fuse with the Phantom Ruby to become stronger.
+
+Several months later, he encountered Infinite, who reminded Shadow (who had already forgotten who he was) of their earlier encounter, and then proceeded to fully demonstrate his new abilities by trapping him within a Virtual Reality world via the Phantom Ruby. The encounter left Shadow shaken, as well as disturbed by Infinite's letting slip of his intention to defeat Sonic.[26]
+
+Nine
+CD 296
+Shadow meeting Nine, from "Cracking Down".
+
+No. He's not Tails, he's Nine, and they're not your real friends!
+— Shadow the Hedgehog, "Avoid the Void" 
+During the Paradox Prism incident, Shadow was unable to enter Gateways, but he would be able to see Sonic travel through them.[27] Shadow then saw Nine which he did not trust throughout the adventure. Then, Sonic manages to introduce Nine to Shadow to which they ended up working together. However, despite it, he still did not trust Nine. Later on, in Ghost Hill, Nine ends up betraying them, which leaves Shadow furious at Sonic for choosing to trust Nine.[28] After he fought his creation, Alpha Grim Sonic, then Shadow figures out that Nine wants Sonic's energy to finish The Grim. Soon after, Sonic gets thrown deeper into The Grim by a Sonic Trooper, to which Shadow saves him, and then eventually, Nine apologizes and Shadow sees him as an ally after helping them get back to their world.[29]
+
+Alpha Grim Sonic
+HSH 204
+Shadow approaching Alpha Grim Sonic, from "Home Sick Home".
+
+Finally. Prove your worth, machine!
+— Shadow the Hedgehog, "Home Sick Home" 
+Shadow had a sense of rivalry towards Alpha Grim Sonic, as a result of the robot defeating him and hindering his efforts to restore the Shatterverse during the Paradox Prism incident.[30][31] After returning from his initial defeat, Shadow targeted Alpha Grim Sonic whenever possible, and through much effort, was finally able to destroy the robot in The Grim by crushing its body into the Citadel.[32]
+
+Friends/allies
+Amy Rose
+Avatar
+Barry the Quokka
+Belle the Tinkerer
+Big the Cat
+Blaze the Cat
+Cheese
+Chocola
+Conductor
+Conductor's wife
+Cream the Rabbit
+Dodon Pa
+Duke of Soleanna
+E-123 Omega (close friend and partner)
+Emerl
+Froggy
+Gemerl
+Gerald Robotnik (creator)
+Jack
+Jewel the Beetle
+Knuckles the Echidna
+The Kraken's crew
+Batten Rouge
+Black Rose
+Catfish
+Froggy
+Knuckles the Dread
+Rusty Rose
+Sails Tails
+Maria Robotnik (best friend)
+Miles "Tails" Prower
+Nine
+Omochao
+Rouge the Bat (close friend and partner)
+Resistance (New Yoke City)
+Rebel Rouge
+Renegade Knucks
+Denizen 1998
+Froggy
+Squad Commander Red
+Silver the Hedgehog
+Sonic the Hedgehog (arch-rival)
+Sticks the Badger
+Scavengers
+Birdie
+Mangey Tails
+Gnarly Knuckles
+Prim Rouge
+Hangry Cat
+Froggy
+Thorn Rose
+Tangle the Lemur
+Team Chaotix
+Charmy Bee
+Espio the Chameleon
+Vector the Crocodile
+United Federation
+Guardian Units of Nations
+Commander
+President
+Vanilla the Rabbit
+Whisper the Wolf
+Neutral
+Babylon Rogues
+Jet the Hawk
+Storm the Albatross
+Wave the Swallow
+Chaos Gamma
+Enemies
+Alpha Grim Sonic
+Alpha Grim Amy
+Alpha Grim Rouge
+Alpha Grim Birdie
+Alpha Grim Knuckles
+Biolizard
+Black Arms
+Black Doom (archenemy)
+Doom's Eye
+Clutch the Opossum
+Chaos Council
+Dr. Babble
+Dr. Deep
+Dr. Done-It
+Dr. Don't
+Mr. Dr. Eggman
+Dr. Starline
+Eggman Empire
+Badniks
+Metal Sonic
+Cubot
+Dr. Eggman
+Jackal Squad
+Infinite
+Orbot
+Phantom Copies
+Shadow Androids
+Eggman Nega
+Grim Troopers
+Amy Trooper
+Birdie Trooper
+Knuckles Trooper
+Rouge Trooper
+Sonic Trooper
+Grim Big
+Iblis
+Ifrit
+Mephiles the Dark
+Metal Sonic 3.0
+Mirage Express
+Prismatic Titan
+Solaris
+Deadly Six
+Zavok
+References
+ Creators Interview 006: Maekawa Shiro. Sega. Archived from the original on 26 June 2019. Retrieved on 5 September 2022. "Interviewer: Who is your favorite character in the Sonic series? Please tell me why. / Shiro Maekawa: It's Shadow the Hedgehog. In fact, I am also the creator, but sometimes I feel a stronger bond than my real parents and siblings. I can't think of anyone else anymore."
+ Fast talking. PlayStation UK. Archived from the original on 26 June 2009. Retrieved on 4 September 2016. "Interviewer: If you had to pick a character from the Sonic universe who would you be and why? / Takashi Iizuka: ...I also would have to pick Shadow for the fact he is a character I created."
+ Ryan Drummond (@RYANtheDRUMMOND) on Twitter. Twitter (15 October 2020). Archived from the original on 15 October 2020. "SADKOOLAID: So......basically even before Jason Griffith, Sonic and Shadow were voiced by the same guy (at least for a few seconds during the final leave) this true @RYANtheDRUMMOND? / Ryan Drummond: Yup. For just that one game. Don’t tell Sega! 🤣"
+ Devra Newberger Speregen (2016). Sonic: The Ultimate Character Guide. Scholastic. p. 31. ISBN 978-1338033243.
+ Sonic City. Sega. Archived from the original on 29 February 2008.
+ Sega . Sonic Channel (Japanese). Characters: Shadow. Archived from the original on 26 May 2019. Retrieved on 3 July 2015.
+ Sega Studio USA (15 November 2005). Shadow the Hedgehog. Nintendo GameCube. Sega. Area/level: The Last Way.
+ Black, Fletcher. "Sonic Boom: Cast". Sonic the Hedgehog: PRIMA Official Game Guide. Prima Games. p. 5.
+ TailsTube #2 (feat. ???). YouTube. Sonic the Hedgehog (9 June 2022). Retrieved on 9 June 2022. Eggman: "Shadow's gone on to become another thorn in my side. He's not one of Sonic's buddies, but he's still a problem all the same."
+ Backbone Entertainment, Sega Studio USA (24 November 2006). Sonic Rivals. Sega. Area/level: Forest Falls Zone (Shadow). "Shadow: The doctor's acting strange... it makes no sense, but this has nothing to do with me... Hmm, guess this was just a waste of my time..."
+ Sega (28 June 2021). ソニック & シャドウ (Japanese). Sonic Channel. Archived from the original on 28 June 2021. Retrieved on 28 June 2021.
+ Sonic the Hedgehog #6, "The Fate of Dr. Eggman, Part 2"
+ Sonic the Hedgehog #19, "Crisis City, Part 1"
+ Sonic the Hedgehog #33, "Chao Races and Badnik Bases, Part 1"
+ Sonic Rivals 2 (PlayStation Portable) United States instruction booklet, pg. 10.
+ Sonic Team (14 November 2006). Sonic the Hedgehog. Xbox 360. Sega. Area/level: End of the World. "Shadow: Certainly, it might have been possible, if he was still alive."
+ Sonic Central: Since Shadow is Sonic's enemy, what does this game mean for Sonic? Is he your main enemy in this game? How does Robotnik fit into things? / Sonic Team: Shadow is more of a nemesis to Sonic rather than a true enemy; they may be adversaries but there is a mutual respect between the two of them.
+ Sonic the Hedgehog #31, "Recovery, Part 1"
+ Sonic Team (7 November 2017). Sonic Forces. Nintendo Switch. Sega. Area/level: Chemical Plant. "Shadow: Rouge, have you found the intel I was looking for? / Rouge: No, not yet. But I have reports that Eggman's database is located at the Chemical Plant. If we can check that out, we might find something there."
+ Sonic the Hedgehog #12, "The Cost of the Battle for Angel Island"
+ Sonic the Hedgehog #9, "The Battle for Angel Island, Part 1"
+ Sonic the Hedgehog#20, "Crisis City, Part 2"
+ Sonic the Hedgehog#36, "Chao Races and Badnik Bases, Part 4"
+ Sega Studio USA (15 November 2005). Shadow the Hedgehog. Nintendo GameCube. Sega. Cutscene: Last Story. "Shadow: I've heard enough! You're boring me to death, Black Doom! You're going down!"
+ Sonic Team (27 February 2004)). Sonic Battle. Game Boy Advance. Sega. Area/level: Ending sequence (Emerl's Episode). "Shadow: This was Gerald's final program... Should a weapon go out of control, the weapon will terminate itself... ... ... ... It is my desire to bring hope to humanity. I can't stand it..."
+ Sonic Team (7 November 2017). Sonic Forces. Nintendo Switch. Sega. Area/level: World Map. "Infinite: Hahaha... Oh, this power, before we've even tuned it! Just as I thought, it is unrivaled! Not even Sonic will be able to stand against me now! / Shadow: Sonic? What are you plotting? / ... / Shadow: What--IS this? STOP! Where do you think you're going, Infinite?!"
+ Avoid the Void
+ Ghost of a Chance
+ From the Top
+ Rudell, Ishi (11 January 2024). "Grim Tidings". Sonic Prime. Season 3. Episode 1. Netflix.
+ Sangherra, Kiran; Wiese, Erik (11 January 2024). "Home Sick Home". Sonic Prime. Season 3. Episode 5. Netflix.
+ Sangherra, Kiran; Wiese, Erik (11 January 2024). "The Devil Is in the Tails". Sonic Prime. Season 3. Episode 6. Netflix.
+Shadow the Hedgehog
+Categories
+Community content is available under CC-BY-SA unless otherwise noted.
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+Sonic Wiki Zone is a FANDOM Games Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Sonic Wiki Zone
+Know something we don't about Sonic? Don't hesitate in signing up today! It's fast, free, and easy, and you will get a wealth of new abilities, and it also hides your IP address from public view. We are in need of content, and everyone has something to contribute!
+
+If you have an account, please log in.
+
+Sonic Wiki Zone
+Sonic Wiki Zone
+Explore
+Game Titles
+Game features
+Media
+Community
+ FANDOM
+Fan Central
+BETA
+Games
+Anime
+Movies
+TV
+Video
+Wikis
+Start a Wiki
+Advertisement
+Sign In
+Register
+Sonic Wiki Zone
+20,656
+pages
+Explore
+Game Titles
+Game features
+Media
+Community
+
+
+in: Shadow the Hedgehog, History and appearances subpages, Sonic Prime characters
+English
+Shadow the Hedgehog/History and appearances (Sonic Prime)
+< Shadow the Hedgehog
+Sign in to edit
+Main page
+History and app.
+History and app.
+(IDW)
+History and app.
+(Sonic Prime)
+Relationships
+Misc.
+Gallery
+Shadow the Hedgehog
+ShadowPrimeRender3
+Shadow the Hedgehog
+Appearances
+First appearance
+'"Shattered'"
+Voice actor(s)
+English
+Ian Hanlin
+Japanese
+Kōji Yusa
+Other languages
+Anders Bye (Norwegian)
+Benoît DuPac (French)
+Claudio Moneta (Italian)
+Dániel Hamvas (Hungarian)
+Dave Ramos (Latin Spanish)
+Fadhli Mohd Rawi (Malay)
+Felix Spieß (German)
+Giorgos Mataragas (Greek)
+Ihwan Zaid (Indonesian)
+Iker Díaz (Basque)
+Jae-heon Jeong (Korean)
+Jamil Drissi (Swedish)
+Joey Schalker (Dutch)
+Kamal Chaturvedi (Hindi)
+Kosai Kodsiah (Arabic)
+Lucian Ionescu (Romanian)
+Manuel Gimeno (Castillian Spanish, Catalan)
+Marcin Przybylski (Polish)
+Marek Libert (Czech)
+Minh Triet (Vietnamese)
+Mladen Vujčić (Croatian)
+Norberto Vilanova (Galician)
+Panu Kangas (Finnish)
+Pedro Leitão (Iberian Portuguese)
+Reginaldo Primo (Brazilian Portuguese)
+Sebastian Jessen (Danish)
+Sorawit Tongteng (Thai)
+Steven Bontogon (Tagalog)
+Talha Sayar (Turkish)
+Teng Chang (Mandarin Chinese)
+Zachi Cohen (Hebrew)
+Zbyšek Horák (Czech)
+Biographical overview
+Nickname(s)
+Edgelord (by Dr. Deep)
+Grumpy Shadow (by Sonic)
+Sheriff Shadow of Floating Rock World (by Sonic)
+Alignment and character traits
+Alignment
+Good
+Powers and abilities
+Skills
+Immortality
+Immense speed
+Superhuman strength
+Superhuman durability
+Superhuman jumping
+Absolute stamina
+Extreme acrobatic skills and reflexes
+Moves and techniques
+Chaos Control
+Homing Attack
+Spin Attack
+Spin Dash
+I am the ultimate life form. I go wherever I want.
+— Shadow the Hedgehog, "From the Top" 
+
+Contents
+1	History
+1.1	TV series
+1.1.1	Past
+1.1.2	Season one
+1.1.3	Season two
+1.1.4	Season three
+2	References
+History
+TV series
+Past
+Not much is known about Shadow's past, but through Sonic's introduction to Shadow, he notes that he is his greatest rival, implying the two have had multiple battles before the series, and that based upon several meetings with Sonic, Sonic considers him to be "a total buzzkill". Later on, he also states he is the "Ultimate Life Form", which is what he was called by the military and his creator Gerald Robotnik.
+
+Season one
+TYOU 30
+Shadow finds the green Chaos Emerald, from "The Yoke's on You".
+
+Sometime after Sonic Advance 3, before the shattering of the Paradox Prism, Shadow would be rushing through Green Hill, smashing through several rocks with a Spin Attack as he would be searching for a Chaos Emerald. After obtaining the green Chaos Emerald, Shadow would proceed to utilize Chaos Control, teleporting around before being interrupted with a shockwave caused by Sonic's battle with Dr. Eggman, making him have a brief glimpse into the future. Recognizing the shockwave as Sonic's attack, he would then proceed to head off.
+
+TYOU 190
+Shadow arguing with Sonic, from "The Yoke's on You".
+
+Shadow would then proceed to intercept Sonic later on as Sonic would be rushing around, and soon punching him in the face.[1] Shadow would then interrogate Sonic as to what was going on, but Sonic would play off Shadow's annoyance as simple jealousy for Sonic's strength. The two would then get into a battle, Shadow catching up to Sonic while the latter was running, wanting to end the fight early to get to a mission, with Sonic refusing to explain the mission to Shadow. The fight would continue up until Sonic would be distracted, Shadow then landing a punch on Sonic's face. Sonic would return the favor, however, distracting Shadow by pointing to a location claiming Eggman was there and using his Spin Attack to send Shadow into a wall of rocks as Sonic would escape.[2] Shadow would soon erupt from the wall, giving chase after Sonic, and upon arrival at the battle, he would witness the shattering of the Paradox Prism, but would utilize Chaos Control to teleport out of the way of the blast, him then reappearing in the Void between the Shatterspaces.[3]
+
+Shadow would be soon heard by Sonic as the latter would be running around in the hamster ball used by the Chaos Council. Sonic would initially wave off this interaction as him hallucinating however.
+
+Shadow would then tell Sonic that he was lost in the Void whilst he saw the latter picking up speed in the Boscage Maze, telling him that he had to keep moving, only for Sonic to exit, and Shadow tried to get to him, with no avail.
+
+It is unknown as to where he was when Sonic and Nine left New Yoke City and headed to The Grim in Nine's Shattercraft, and where he was when Sonic was travelling through the Void to get back to New Yoke City.
+
+Shadow would be heard from once again as Sonic would be speeding up while fighting in New Yoke City, saying that he needed to keep running as Sonic would soon run fast enough to break into the Void between the Shatterspaces.[4]
+
+Shadow would be seen once again as after Sonic would be sent back into the Void between the Shatterspaces from No Place, he would intercept Sonic with one of the crystals inside the area. After hearing Sonic's voicing of wanting to head home, Shadow would angrily tell him that there is no more home to go to as he would rush at Sonic once again, ready to fight him.[5]
+
+Season two
+Ugh, I don't understand. I thought the tech would get me through the Gateways. Why didn't it work? I saw Nine give you the tech, in the lab, you kicked up the prismatic energy when you ran fast and crossed over into the Void. I just assumed it was the tech. But it's something else... it's you.
+— Shadow the Hedgehog, "Avoid the Void" 
+ATV 318
+Shadow comes up with a plan to save their world, from "Avoid the Void".
+
+Shadow attacks Sonic in the Void, furious about the world-shattering event that his rival caused. Sonic is surprised to learn that he is in fact the original and real Shadow, and not another version of him. Shadow explains to Sonic what happened to him since the Prism shattered. He explains he is unable to enter the other worlds, but can see Sonic when he goes fast. He also tells him he lost his Chaos Emerald in the dark abyss at the bottom of the Void. Shadow takes Sonic to the only portal he can enter. Both hedgehogs go into a distorted version of Green Hill. Sonic finds ghost versions of his friends, but Shadow warns him that they are just part of this Shatterspace. He takes Sonic to the top of the Temple Mountain, where the incident happened. The yellow Shard is still in its place. Shadow believes they can fix everything if they bring the other Shards there.
+
+ATV 474
+Shadow steals Sonic's tech, from "Avoid the Void".
+
+Not wanting to deal with Sonic, Shadow attacks him declaring he is about to steal his tech to go on the mission alone. Sonic of course refuses, and the two hedgehogs engage in battle. Shadow seems to have the upper hand, as he quickly steals all of Sonic's tech. He uses his speed to get into the Void. He is attacked by Sonic, and the two continue fighting for a while. Then they witness the Chaos Council entering the Void, and heading to the Boscage Maze. Shadow tries to follow them, but despite having the tech, its not enough to let him in. The Gateway throws him away at full speed, and he lands unconscious onto a crystal. He is about to fall into the dark part of the Void, but Sonic rescues him. Shadow is impressed that Sonic is the only one who can enter the Gateways, so he is forced to make a deal and work together with him.
+
+GOAC 135
+Shadow fighting Dr. Deep, from "Ghost of a Chance".
+
+While Sonic travels across Shatterspaces, Shadow is always present in the Void. He often messed with the Chaos Council's Mothership, and gives them some trouble. Sometime later, Shadow meets up with Sonic and Nine in the Void, and the three head to Ghost Hill. Shadow and Sonic leave Nine alone while he works to put the Paradox Prism together. Shadow still doesn't trust him, but Sonic has pure faith in his new fox friend. When the Council arrives, Shadow and Sonic go into action. Shadow defeats some Eggforcers, and then battles Doctor Deep and Doctor Babble. Things get a little more complicated when Mister Doctor Eggman creates a Prismatic Titan out of most of the the remaining Shard Energy the Council had left. Shadow tries to attack the gigantic Eggman, but fails. He tells Sonic to go to the Temple Mountain and protect the Shards. After Nine steals them for himself and leaves for The Grim, Shadow is seen angry at Sonic once again.
+
+Season three
+GT 206
+Shadow and Sonic fight together, from "Grim Tidings".
+
+Shadow notices Ghost Hill is starting to collapse and tells Sonic they need to get out of there as soon as possible. The hedgehogs run through it trying to find a way out. When Sonic sees his ghostly friends again, Shadow reminds him that they can't be saved at the moment, and that they need to keep running. Eventually, they are able to get out of Ghost Hill and make it to the Void by exiting through a tear in the Gateway. Shadow is still furious at Nine and wants to get back at him. Sonic suggests that they should go to The Grim. Shadow is finally able to enter a Shatterspace thanks to one of the tears on The Grim's gateway. Shadow is decided to fight Nine, but Sonic tries to reason with him one more time. When that doesn't work, the hedgehogs take on the metal counterparts of Sonic and his friends. Shadow is shown to be very good at combat, fighting all of the robots at some point. When he realizes Nine is after Sonic's Prism Energy to complete the Paradox Prism, he creates a tornado to throw Sonic back to the Void. All the Grim robots attack Shadow at the same time, and Alpha Grim Sonic is able to punch Shadow due to his exhaustion and was able to make him fall through an chasm that was caused by Nine to make sure that Sonic didn't escape.
+
+TDIITT 91
+Shadow helps the rebels, from "The Devil Is in the Tails".
+
+Shadow was trapped in the crack on the floor for some time, while being guarded by Grim Troopers. Sometime later, Sonic falls into the same chasm when Nine reopened it. When he is about to be attacked by a robot, Shadow comes into action to save him. Once he gets out of the crack, Shadow finds himself involved in the fight. He suggests to Sonic that the Alpha Grim Robots should be their main goal. And while he wants revenge on Nine, Sonic convinces him to follow his plan. Shadow proves to be of great assistance to the rebels, fighting several robots. He gets on an intense fight with Alpha Grim Sonic and is able to defeat him on his own. On top of Nine's tower, Shadow (along with Knucks) are having a hard time after the fox uses the Prism Energy against them. Sonic goes after Nine once he realizes that he won't stop.
+
+FTP 292
+Shadow saves Sonic, from "From the Top".
+
+Shadow,all the other Shatter Variants of Sonic's friends and the Chaos Council break into Nine's lab. Shadow agrees to Sonic's idea of draining his Prism Energy in hopes to fully restore the Paradox Prism. When the Chaos Council starts fighting, Shadow is excited to take them out. When Nine restores all the other Shatterspaces using the complete Paradox Prism (including Ghost Hill, which transformed into Green Hill), Shadow gets on the Kraken as Black Rose and Rusty Rose give him a ride. As Sonic's condition gets worse, Shadow decides to take him the rest of the way to the Gateway. He races across the Void, and is able to save Sonic. The events restart from a point before the Paradox Prism incident. While Sonic and friends defeat Eggman in the cave, Shadow arrives with the Chaos Emerald he once lost. He uses Chaos Control and steals the Paradox Prism from Eggman, who was distracted by Sonic and his friends, moving it to a hidden and unknown location.
+
+References
+ Wiese, Erik (15 December 2022). "Shattered". Sonic Prime. Season 1. Episode 1. Netflix.
+ Wiese, Erik; Man of Action (15 December 2022). "The Yoke's on You". Sonic Prime. Season 1. Netflix.
+ Spahi; Omar (15 December 2022). "It Takes One to No Place". Sonic Prime. Season 1. Netflix.
+ Rinehart, Marcus (15 December 2022). "Situation: Grim". Sonic Prime. Season 1. Netflix.
+ Peniston, Jason (15 December 2022). "There's No ARRGH in "Team"". Sonic Prime. Season 1. Netflix.
+Shadow the Hedgehog
+Sonic Prime characters
+Categories
+Languages
+Community content is available under CC-BY-SA unless otherwise noted.
+Fandom logo
+Explore properties
+Fandom
+Muthead
+Fanatical
+Follow Us
+Overview
+What is Fandom?
+About
+Careers
+Press
+Contact
+Terms of Use
+Privacy Policy
+Digital Services Act
+Global Sitemap
+Local Sitemap
+Community
+Community Central
+Support
+Help
+Do Not Sell or Share My Personal Information
+Advertise
+Media Kit
+Contact
+Fandom Apps
+Take your favorite fandoms with you and never miss a beat.
+Fandom App logo
+Store icon
+Store icon
+Sonic Wiki Zone is a FANDOM Games Community.
+View Mobile Site
+Follow on IG
+TikTok
+Join Fan Lab
+Search this wiki
+Search all wikis
+
