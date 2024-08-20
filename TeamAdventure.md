@@ -3,6 +3,8 @@ Random place
 Random enemie
 Sometimes random allies
 Ash:
+
+-------------------------------------
 He is a Pokémon Trainer from Pallet Town whose goal is to become a Pokémon Master. His first Pokémon was a Pikachu that he received from Professor Oak after arriving late at his laboratory. On his journeys around the Pokémon world, he's been accompanied by a multitude of close friends.
 In Galar, he becomes the new Monarch and World Champion of the Pokémon World Coronation Series.
 Ash grew up in Pallet Town in the Kanto region with his mother, Delia, as his father spent most of his time traveling. Eventually, Ash would meet Professor Oak and his grandson Gary Oak.
@@ -312,6 +314,141 @@ Rank 15 (Ultra Class; as of Battling Turned Up to Eleven!)
 Rank 9 (Ultra Class; as of Taking Two For The Team!)
 Rank 8 (Master Class; as of Aim For The Eight!)
 Monarch (Master Class; as of Partners in Time!)
+
+May:
+-----------------------------------------
+May is a Pokémon Coordinator from Petalburg City and a former traveling companion of Ash. She is the daughter of Norman and Caroline, and her first partner Pokémon was a Torchic given to her by Professor Birch.
+
+Initially on a journey to meet new places, May found her true calling in Pokémon Contests and made it her goal to become a Top Coordinator. She traveled through Hoenn and Kanto with Ash, Brock, and her little brother, Max.
+May grew up in Petalburg City in the Hoenn region with her parents, Caroline and Petalburg Gym Leader Norman, and brother, Max. As revealed in A Cacturne for the Worse, May, when she was younger, was playing in the water with some Tentacool, but found herself surrounded by a horde of them. However, when her parents saw this, Caroline tried to catch her because she had mistaken her for a Tentacool. Ever since that experience, May developed a dislike and fear of Pokémon.
+
+Pokémon the Series: Ruby and Sapphire
+Years later in Get the Show on the Road!, May was old enough to become a Pokémon Trainer, but she used it as an excuse just so she could travel, even though everyone expected her to follow in her father Norman's footsteps. However, after seeing a Pokémon Contest in All Things Bright and Beautifly!, she decided to become a Pokémon Coordinator instead. Since May initially knew almost nothing about Pokémon or attacks, Ash assumed the role of her mentor. She gradually gained experience through her journey and practice with Ash.
+
+As a Coordinator, May was able to learn more about Pokémon and form stronger bonds with them. In Come What May!, after winning the Fallarbor Contest, May told her Beautifly that she loved it. This is an example of her growth — from someone who initially disliked Pokémon to someone who cared deeply for them.
+
+With her Pokémon, May was able to come up with different attack combinations to use during her Contest Battles. For instance, she would use her Combusken's Fire Spin and her Squirtle's Bubble to create a combination of fire and water, dubbed "Fire and Water Whirlwind" by Lilian, after witnessing Tucker use it against Ash with a combination of Water Pulse and Fire Blast. This even made a rival of hers angry, thinking she thought he was not worthy of the move as May did not use it against him.
+
+She also developed a love for making her own Pokéblocks with recipes that she thought up, including ones called "May's Purple Surprise" and "May's Pink Surprise" (Japanese: Haruka's Delicious and Haruka's Delicious 2). Unfortunately, the only ones who liked her "Purple Surprise" were her Munchlax and Jessie. Her "Pink Surprise" came from the recipe Professor Oak uses to make Ash's Snorlax's food. Thus, after May first fed it to her Munchlax, it was automatically made full. This Pokéblock was regularly used to feed Munchlax in order to prevent it from eating the food of others.
+
+
+May and Drew
+During her journey, she found a rival in Drew, a skilled and sometimes arrogant Coordinator. Drew became one of her main inspirations to try harder to sharpen her skills as a Coordinator. At first, Drew had claimed that May had "no style" as a Coordinator, but by the end of May's second Contest campaign, when she defeated him in the Kanto Grand Festival, he recognized her growth and skill. Another rival of hers, Harley, is a flamboyant man who goes to extremes to beat May and has no qualms about cheating or using unfair tactics. An example of Harley's depravity was seen in A Cacturne for the Worse, when he recorded Max telling him a story from May's childhood. May had been wearing a blue swimming cap in the ocean, and her mother had mistaken her for a Tentacool from afar and attempted to catch May with one of her Poké Balls. Harley played the recording of this story during the Izabe Island Pokémon Contest to embarrass May into losing. May was able to beat Harley in the end, but she claimed that she had never been more humiliated. Another example is when Harley joined forces with Team Rocket in an attempt to sabotage May's performance with Combusken, which ended up contributing to a more dazzling appeal.
+
+At the Kanto Grand Festival, May also competed against Solidad, an experienced Coordinator to whom she lost in the semifinals. At the end of Pokémon the Series: Ruby and Sapphire, she left to compete with Drew, Harley, and Solidad in the Johto region, aiming to find her own battling style. The decision to stop traveling with Ash was an important one for May's character. Because Ash played the role of a mentor to her through most of the series, she was largely influenced by his offensive battle style. By the end of their journey through Kanto, May had realized that an offensive style was not necessarily the best for her and for Contests. Her constant use of dazzling attacks ultimately proved to be her downfall at the Kanto Grand Festival, when Solidad was able to recognize and counter these moves by leading May to attack and then successfully dodging. Her goal to find her own style was therefore also a goal to improve her Contest Battle skills and ultimately become a Top Coordinator.
+
+May has Contest Passes to compete in Hoenn, Kanto and Johto. She also has a personal theme song, I Won't Lose! ~Haruka's Theme~, performed by KAORI.. It was first used as background music in Curbing the Crimson Tide and was used multiple times after that during May's Contest performances and battles. The song became the ending theme of the show between Pokémon Ranger - Deoxys' Crisis! (Part 2) and Home is Where the Start Is!.
+
+
+May in Pokémon the Series: Diamond and Pearl
+Pokémon the Series: Diamond and Pearl
+May reappeared from Our Cup Runneth Over! to Strategy With a Smile! to participate in the Wallace Cup. During this period, she wore her game counterpart's outfit from Pokémon Emerald. She shared that many of her Pokémon had evolved and that she had already won three Johto Ribbons. Dawn recognized May upon meeting her and said that some people in the Sinnoh region called her the "Princess of Hoenn", causing May to blush.
+
+In A Full Course Tag Battle!, May spoke with Ash and Brock about her journey in Johto, and revealed that her Eevee had evolved into Glaceon shortly before meeting them. Before starting training for the Wallace Cup, May suggested everyone go to the Seven Stars Restaurant on the Valor Lakefront. where they participated in a series of Tag Battles to earn a right to an exclusive meal. Before May and Dawn started their battles, Team Rocket had stolen the food supply, this motivated May to help find the food and when they found it, May and Dawn battled Jessie and James, defeating them easily.
+
+
+May and Ash holding their halves of the Terracotta Ribbon
+Once everything was resolved, May and Dawn had their battles against Roman and Kylie, winning using a combination of Water and Fire-type moves. At the end of the night, May remembered with Ash the moment they both competed for the Ribbon of Terracotta Town, and together with Dawn, May discovered that Ash was also interested in the competition.
+
+During the Wallace Cup, May showed the new battle style that she had come up with after leaving Ash, battling against Dawn's rival Zoey and winning using her Beautifly. She made it all the way to the finals but narrowly lost to Dawn in the end. Afterwards, May returned to Johto to resume competing in Contests there.
+
+May reappeared in a picture on Brock's memory wall in the special episode DPS02.
+
+
+Pokémon the Series: Black & White
+
+May in Pokémon Journeys: The Series
+May reappeared in a fantasy in The Dream Continues!.
+
+Pokémon Journeys: The Series
+May reappeared in a flashback of the Wallace Cup in Reuniting for the First Time!, alongside Dawn. In the same episode, Chloe wore a Contest Costume that Serena mentioned was worn by the "Princess of Hoenn", referencing May's nickname.
+
+In Partners in Time!, May was revealed to have returned to Hoenn when she appeared alongside Max, Serena, and Lisia, watching Ash's Masters Eight Tournament match against Leon. Soon after, when Pikachu was at the limit of his strength, May, Max, and Serena were shown to be anxious about the state of the battle, each holding on to another for comfort.
+
+I Choose You!
+May made a cameo appearance in the ending credits of I Choose You! alongside with Max.
+
+Character
+
+May and Max
+May is generally a very sweet and optimistic girl. She enjoys feminine and cute things as well as shopping. In fact, she and Brock occasionally went on shopping trips together throughout Pokémon the Series: Ruby and Sapphire. May cares about her appearance, sometimes spending so much time in front of the mirror that it caused her traveling companions to become frustrated with her, such as in The Bicker the Better. May also is interested in helping other people with their romantic problems.
+
+Though she is generally kind, she occasionally argues with her little brother, Max. The two had arguments since Max's debut episode, but one of their most notable was in Take This House and Shuppet. May's harsh words to Max made him declare that he hated May and he ran away for a portion of the episode. Even though she had been angry, May quickly felt guilty for hurting Max's feelings and became very worried that he would be hurt on his own. In Date Expectations, when Max again went missing, May revealed that she had promised her mother to always take care of Max on their journey, and was prepared to miss her last chance of qualifying for the Hoenn Grand Festival in order to find him. Though the siblings had many quarrels over their joint travels, May deeply cares for her brother and would go to great lengths to protect him.
+
+
+May's rage at her loss of food
+In You Never Can Taillow, May heard Brock used to act as a cook during Ash's journeys. As she, Max and Ash were hungry, she was the one who asked Brock if he could prepare some food for them. If a person or a Pokémon were to steal her food she would become extremely angry, which was demonstrated numerous times. Food was one of the few things May would become angry about, so it was an important tool to show a different side to her usually cheerful character. When May returned for Pokémon the Series: Diamond and Pearl, she expressed excitement over the chance to eat at the Seven Stars Restaurant, but having her meal stolen made her enraged. She was later shown enjoying a large cookie, once again affirming her love of food and sweets.
+
+
+May after shopping
+When May first left her home, she was only interested in the traveling aspect of a Pokémon journey. This sparked one of May's most memorable quirks in Hoenn, "May's Expeditions". Starting from A Mudkip Mission, May would occasionally make a camera lens with her fingers, pretending she was the host of a traveling show. Uniquely for one of Ash's friends, May originally didn't like Pokémon and was afraid of them, due to the trauma of being swarmed by a group of Tentacool when she was little. However, after seeing Ash risking his life to save his Pikachu on the day they met and later upon forming close bonds with her first two Pokémon, Torchic and Wurmple, May grew to care about Pokémon, which helped her overcome her dislike and fear of them.
+
+As mentioned, May also enjoys making Pokéblock. She first learned about making Pokéblock in the episode Pokéblock, Stock and Berry when she met Kelly. She learned that Kelly's mother owned a Pokéblock shop, and May was curious about it. Kelly then taught her how to use a Berry Blender. May's first attempt of making a Pokéblock was not successful, but that didn't stop her from trying. In the episode Berry, Berry Interesting, May continued to make Pokéblock, calling the result "May's Purple Surprise". However, only her Munchlax had taken a liking to it. Later on, Professor Oak had created a Pokéblock recipe for May, which May calls "May's Pink Surprise", that is specially made for Munchlax, similarly to the recipe used to feed Ash's Snorlax. May uses it to stop her Munchlax from causing too much trouble on many occasions.
+
+
+May and Dawn
+May was unsure on what path and goal to pursue, even though she was expected to become a Pokémon Trainer like her father. However, after witnessing Pokémon Contests in All Things Bright and Beautifly!, May decided to become a Pokémon Coordinator, and has been training both herself and her Pokémon since then. In Hi Ho Silver Wind!, May revealed that she stayed in contact with many of the friends she made through competing in Pokémon Contests, using emails, phone calls and letters. This included Kelly, Savannah, Sandra, Timmy, Dr. Abby, and Janet. May also said that being friends with the people she met throughout her journey, and knowing they were cheering for her, gave her the confidence to overcome any nervousness she could face.
+
+
+May after catching a Pokémon
+Throughout her journey with Ash, Brock, and Max, May has changed remarkably as a person and Trainer, but maintains her habit of finding popular food spots and her sweet nature. May has also learned to not take her Pokémon for granted, as seen in Cruisin' for a Losin', when she realized how hard she pushed her Bulbasaur in the Rubello Pokémon Contest and that the first two ribbons that she won were because her Pokémon came through for her. In addition, May has exceptionally improved her battling skills, as shown in her battle against Drew in the Kanto Grand Festival. As time passed, May became a well-known coordinator and received the nickname "Princess of Hoenn", which was stated by Dawn in A Full Course Tag Battle! and Serena in Reuniting for the First Time!.
+
+May's Contest cry is "Take the stage!" (Japanese: ステージ・オン！ Stage On!). In the English dub, she also uses variations, such as "On stage!". In the Japanese version, May usually ends her sentences with (Japanese: ～かも ~kamo), a word often used to express uncertainty.
+
+Pokémon
+
+May and her Pokémon in Pokémon the Series: Ruby and Sapphire.
+The Pokémon she acquired on the course of her journey appear to resemble the Pokémon that Ash had obtained at some point at the beginning of his own journey. At first, she preferred cute Pokémon and dazzling techniques, but over the course of her journey, she was able to obtain Pokémon outside that preference. She has a tendency to rely on luck, often using her Skitty's Assist or her Munchlax's Metronome to win. Most of May's Pokémon were not caught through battle. Unlike many of Ash's friends, May has never had a consistently disobedient Pokémon.
+
+Throughout her journey, May has used combinations with her Pokémon, as she used her Blaziken, while it was a Combusken, and Wartortle's, while it was a Squirtle, Fire and Water-type attacks to form the fusion of Fire and Water. Some of May's Pokémon have shown to be naturally inclined to Pokémon Contests, such as her Beautifly, Skitty, and Wartortle. Her Blaziken is usually used in battle as her strongest Pokémon, but it has also been used in the appeal rounds in Pokémon Contests.
+
+Contests
+
+May's Hoenn Ribbons
+
+May's Kanto Ribbons
+
+May's Johto Ribbons
+Hoenn Ribbons
+This listing is of the Ribbons May has obtained in the Hoenn region:
+
+Fallarbor Ribbon (Come What May!)
+Verdanturf Ribbon (Disguise Da Limit)
+Lilycove Ribbon (Lessons in Lilycove)
+Purika Ribbon (A Cacturne for the Worse)
+Pacifidlog Ribbon (Pacifidlog Jam)
+Kanto Ribbons
+This listing is of the Ribbons May has obtained in the Kanto region:
+
+Saffron Ribbon (A Hurdle for Squirtle)
+Silver Ribbon (Weekend Warrior)
+Chrysanthemum Ribbon (Spontaneous Combusken!)
+Gardenia Ribbon (What I Did for Love!)
+Mulberry Ribbon (Going for Choke!)
+Johto Ribbons
+This listing is of the Ribbons May has obtained in the Johto region:
+
+Three unknown Ribbons (prior to A Full Course Tag Battle!)
+Grand Festival ranking
+May has competed in the following Grand Festival tournaments:
+
+Hoenn Grand Festival - Top 8 (Rhapsody in Drew)
+Kanto Grand Festival - Top 4 (Channeling the Battle Zone!)
+Other achievements
+May has competed in the following Pokémon Contests:
+
+Slateport Contest - Top 8 (Win, Lose or Drew!)
+Rubello Contest - Top 4 (Cruisin' for a Losin')
+Wisteria Contest - Runner-up (Harley Rides Again)
+Unofficial Terracotta Contest - Winner (tied with Ash; Home is Where the Start Is!)
+Wallace Cup - Runner-up (Strategy with a Smile!)
+
+Pokémon competitions
+May has competed in the following Pokémon competitions:
+
+Trick House Contest - N/A (A Poké-BLOCK Party!)
+Crossgate PokéRinger - Group stage (That's Just Swellow)
+Pokémon Orienteering - N/A (Off the Unbeaten Path)
 
 Jaden:
 ---------------------------------
