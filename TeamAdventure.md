@@ -267,7 +267,54 @@ Ash is very attached to his Pokémon and prefers to battle and train with them. 
 Though Ash normally catches five or more Pokémon per region (not including when he traveled through the Orange Islands and challenged the Battle Frontier in his second tour of Kanto), he rarely ever switches the Pokémon in his current party with those in storage at Professor Oak's Laboratory. He usually only does so when battling against powerful opponents (such as Trainers in the Pokémon League Conferences, and Frontier Brains), or when attending certain events that require a specific Pokémon (like Tauros at the Pokémon Swap Meet or Snorlax at the Sumo Conference). However, during Pokémon the Series: Black & White, Ash actively cycled through the nine Pokémon he managed to catch in Unova, although these Pokémon when not in his party, were instead kept in storage at Professor Juniper's lab in Nuvema Town. Near the end of his journey in Unova, Professor Juniper transferred all of Ash's Pokémon to Professor Oak's lab. Ash did not use this system of training in the following series, though he did leave his Alolan party with Professors Kukui and Burnet at the end of Pokémon the Series: Sun & Moon.
 
 Ash currently has ownership of 78 Pokémon, including all 30 of his Tauros. Including pre-evolved forms, traded, released, and given away Pokémon (and not including the additional Tauros), in total, Ash has currently officially owned a total of 98 different Pokémon species.
+
+Achievements
+
+Ash's Badge and trophy collection
+Main article: Ash Ketchum's achievements
+Pokémon League rankings
+Ash has competed in the following Pokémon League Conferences:
+
+Indigo Plateau Conference - Top 16 (Friend and Foe Alike)
+Silver Conference - Top 8 (Johto Photo Finish)
+Ever Grande Conference - Top 8 (At the End of the Fray)
+Lily of the Valley Conference - Top 4 (The Semi-Final Frontier!)
+Vertress Conference - Top 8 (A Unova League Evolution!)
+Lumiose Conference - Runner-Up (Down to the Fiery Finish!)
+Manalo Conference - Winner (Enter the Champion!)
+Championship matches
+Ash has challenged the following Pokémon championships as well:
+
+Orange League - Winner (Enter The Dragonite)
+World Coronation Series
+
+Ash with the World Championship Trophy
+Ash has competed in the World Coronation Series. His rank and class are as follows:
+
+Rank 3,763 (Normal Class; as of Destination: Coronation!)
+Rank 1,512 (Normal Class; as of Dreams Are Made of These!)
+Rank 1,022 (Normal Class; as of A Festival Reunion!)
+Rank 921 (Great Class; as of A Festival Reunion!)
+Rank 901 (Great Class; as of Betrayed, Bothered, and Beleaguered!)
+Rank 890 (Great Class; as of Trade, Borrow, and Steal!)
+Rank 930 (Great Class; as of Solitary and Menacing!)
+Rank 975 (Great Class; as of Making Battles in the Sand!)
+Rank 1,021 (Normal Class; as of Making Battles in the Sand!)
+Unknown rank (Great Class; as of Octo-Gridlock at the Gym!)
+Rank 415 (Great Class; as of Trials of a Budding Master!)
+Rank 381 (Great Class; as of Trials of a Budding Master!)
+Rank 273 (Great Class; as of Beyond Chivalry… Aiming to be a Leek Master!)
+Rank 184 (Great Class; as of Beyond Chivalry… Aiming to be a Leek Master!)
+Rank 99 (Ultra Class; as of Thrash of the Titans!)
+Rank 64 (Ultra Class; as of Ultra Exciting from the Shocking Start!)
+Rank 36 (Ultra Class; as of A Battle of Mega Versus Max!)
+Rank 15 (Ultra Class; as of Battling Turned Up to Eleven!)
+Rank 9 (Ultra Class; as of Taking Two For The Team!)
+Rank 8 (Master Class; as of Aim For The Eight!)
+Monarch (Master Class; as of Partners in Time!)
+
 Jaden:
+---------------------------------
 Personality
 Jaden is friendly, optimistic, laid-back, enthusiastic, kind, confident, funny, and very passionate about Dueling. Jaden loves Dueling and believes that all problems can ultimately be solved through it. He keeps going no matter how hard things get or how hopeless it seems, with a few exceptions (though it doesn't take much encouragement for him to start fighting again), although he does sometimes doubt himself. He always shows respect towards his opponents, with a few exceptions, even complimenting them during a Duel.
 
