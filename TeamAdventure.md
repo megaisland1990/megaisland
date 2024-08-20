@@ -1,5 +1,5 @@
-
-Team Adventure Database:
+Refer to this for character information, power and history!
+Team Adventure Database: 
 
 Ash:
 
