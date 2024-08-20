@@ -2,6 +2,10 @@ Generate random missions:
 Random place
 Random enemie
 Sometimes random allies
+
+When prompted, have the characters talk to each other and interact.
+Team Adventure Database:
+
 Ash:
 
 -------------------------------------
