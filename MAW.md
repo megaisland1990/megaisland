@@ -1,4 +1,4 @@
-Faces (Good Guys):
+Face Roster:
 
 Captain America (MCU)
 Iron Man (MCU)
@@ -75,8 +75,7 @@ Popeye
 Michael Knight (Knight Rider)
 Magnum P.I. (Magnum P.I.)
 Inuyasha
-Tweeners (Morally Ambiguous):
-
+Tweener Roster:
 Deadpool (MCU)
 AJ Styles
 Godzilla (Monsterverse)
@@ -92,7 +91,8 @@ Reptile
 Smoke
 Kratos
 Dracule Mihawk
-Heels (Bad Guys):
+
+Heel Roster:
 
 Loki (MCU)
 Donkey Kong
