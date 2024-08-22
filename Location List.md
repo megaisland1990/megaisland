@@ -1,5 +1,3 @@
-Here are the locations you provided, alphabetized and numbered:
-
 1. Able Sisters Store
 2. Alien Avenue
 3. Angel and Charle’s House on North Road
